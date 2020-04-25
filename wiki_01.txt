@@ -1,0 +1,11582 @@
+Agerram Augustin (Saint Augustin) Agerram Augustin (Saint Augustin)
+
+Ilul ugurram Augustin (Aurelius Augustinus s tlatint, Saint Augustin s tefṛansist, di Taggast ass n 13 Wamber 354 (deffir n Ɛisa), yeǧǧa-yaɣ ass n 28 ɣuct 430 di temdint n Hippone (Ɛennaba). Yella d amesnagay, amaru, amasnakuc; baba-s d yemma-s d imaziɣen, maca baba-s yeṛṛummen (yuɣal d amdan aṛumi), ma d yemma-s ur teṛṛummen ara (teqqim d tamdant tamaziɣt) qqaṛen-as: "sainte monique".
+
+Yella d yiwen si kuz ibabaten n taknisa talatinit akked "saint Amboise, saint Jérome Grégoire amezwaru I", daɣen d yiwen ger 33 n imejjayen (ṭebbat) n taknisa. Yettfuggul ass n 28 ɣuct n yal aseggas sɣur ikaṭulikiyen, ass n 15 yunyu sɣur urṭuduksiyen. Am umesnagay yugmed aṭas n tmussni sɣur Platon maca Augustin d amasiḥi daɣen, ayen i t-yeǧǧan ad yagwi kra n tmeḍriwin n Platon neɣ n Plotin am tin i d-yennan d-akken Akuc ur d-yesnulfa ara amḍal s umaɣzal, ayagi ur imsadan ara d wayen id-enna tisreḍt tamasiḥit akked tudayt.
+
+Tinṭelt-is tezga-d di Pavie. Deffir Saint Paul; Saint Augustin d udem ameqqṛan n tisreḍt tamasiḥit, yettwannen (yettwaɣer) s waṭas di tallit nni n wemdur alemmas Moyen Age.
+
+Ala netta deg babaten n taknisa i d-yeǧǧan anagraw n tesnezgimt i wumi neqqaṛ augustinisme. Tazrirt ines tḥuza ammur ameqqṛan n yimasnakucen n tallit n wemdur alemmas Moyen Age d wid n tura.
+
+Augustin i wennened (ḥkad) temẓ-is di tmelkitin ines "confessions".
+Mi d-ilul Augustin, tamdint n Tagast di Numidia (ass-agi Suq-Ahṛas, Ldzayer) tellad seg 300 iseggasen, maci d tahrest, maca d tamdint n tefriqt taṛumit yesɛan timanit seg azal n snat timiḍa (200 isegwasen), tettekka ɣer temnaṭ n Numidia. Tamdint n Tagast tezga-d ɣef 90 agimkat seg illel d 600 isarakaten n ajagal.
+
+Baba-s n Augustin, Amaziɣ aṛumi, d amdan aṛumi amgetyakuc umi qqaren Patrisius, ur yeɣri ara, tameṭṭut-is Monik d Tamaziɣt tamasiḥit, terra argaz-is daɣen d amasiḥi di tagara n tudert ines, yerna tezga tettnaḍaḥ iwakken Augustin ad yuɣal d amasiḥi.
+
+Augustin yesɛa sin watmaten, weltma-s d gma-s umi qqaren Navigius, tutlayt nsen tayemmatt d talatinit, ɣas akken Augustin isbuduy iman-is am akken d amaru aqaeṭaji. maca ur neẓri yara ma yella kra yemmeslay tutlayin nniḍen n tefriqt ugafa, idels ines d alatini, yella d anelmad izewren s waṭas, maca yewɛer daɣen yerna i ksen teneɣrit, ittagwad tafgert d umennuɣ n yiselmaden.
+
+Taɣara s wayes ad yali taserkemt d tin n tazrawt, baba-s ismun tadrimt iwakken ad ɣṛen warraw-is, Augustin ad yeffeɣ d abugaṭu, yeɣṛa di tazwara di Madaure (assagi M'dawruc, ldzayer) aked iselmaden amgetakucen, ɣuṛ-s 15 iseggasen mi bdant tezrawtin ɣef tkatut, etc
+ayen fayeg i d-yewwet deg adlis ines Timelkitin:"(Confessions)".
+
+Baba-s ixuṣ tadrimt, Augustin yuɣal-d s axxam ar twacult-is, ɣur-s 16 iseggasen. Di tallit-nni yeddukel akked yiwet n tarbaɛt ur imaɛnen ara, ayen i t-yeǧǧan ad yaker tifiras yiwen yiḍ, yuker maci acku yella deg assar neɣ yelluẓ, maca s tadfi kan iwakken ad igned.
+"« Arbor erat pirus in vicinia nostrae vineae pomis onusta nec forma nec sapore illecebrosis. Ad hanc excutiendam atque asportandam nequissimi adulescentuli perreximus nocte intempesta, quousque ludum de pestilentiae more in areis produxeramus, et abstulimus inde onera ingentia non ad nostras epulas, sed vel proicienda porcis, etiamsi aliquid inde comedimus, dum tamen fieret a nobis quod eo liberet, quo non liceret. »"
+
+"« Dans le voisinage de nos vignes était un poirier chargé de fruits qui n’avaient aucun attrait de saveur ou de beauté. Nous allâmes, une troupe de jeunes vauriens, secouer et dépouiller cet arbre, vers le milieu de la nuit, ayant prolongé nos jeux jusqu’à cette heure, selon notre détestable habitude, et nous en rapportâmes de grandes charges, non pour en faire régal, si toutefois nous y goûtâmes, mais ne fût-ce que pour les jeter aux pourceaux : simple plaisir de faire ce qui était défendu. »"
+
+« Deg asijey n waḍil "tẓurin" tebḥirt-nneɣ, yella yiwen waddag n tfiras yeččuṛen d igumma ur yelhin ara, nṛuḥ, tarbaɛt n yilmeẓiyen ur yeswin tigert, nezwi-t-id, di tlemmast n yiḍ, neɛwez alammi d lawan-a, akken nuɣ yir tannumi, newwi sekra din maci iwakken ad t-nečč, ɣas akken naɛreḍ iten-t, maca iwakken at-ten ḍeggeṛ s yilfawen: i tadfi kan i nexdem ayen n dir »
+
+Augustin yella ttikli ad iṣṣaweḍ 17 isegwasen, m-is yessegfer baba-s ayen s wacu ad yeɣlel tizrawtin ines di temdint n Qarṭaj, yeḥka-d dakken anezwu n temdint agi n tefriqt ugafa d-aḥmayan s tidefyin n tayri d umezgun.
+
+"« Veni Carthaginem, et circumstrepebat me undique sartago flagitiosorum amorum »"
+
+"« Traduction : Je vins à Carthage où j'entendais crépiter autour de moi la friture des amours infâmes. »"
+
+« Tasuqilt : usiɣ-d ɣer Qarṭaj anida sellaɣ teskarwic zdati tujjut n tiyra yessekruruten. »
+
+Ad nar tamawt kan, ɣef awalen icebḥen i yesseqdac Augustin deg uɣanib ḥemlen iṛumyen n tefriqt ugafa, yesseqdac-iten akken iwata, yerna yetturar yissen, amakken nezmer ad nwali deg tefyirt agi : "« Nondum amabam sed amare amabam et secretiore indigentia oderam me minus indigentem. »"
+
+« Tasuqilt: urɛad ḥemmleɣ, maca ttiḥmilaɣ ad ḥemlaɣ yerna s yiwen wassar yeffren, ɣuccaɣ iman-iw imi ur sɛiɣ ara azal n wassar ilaqen. »
+
+Timezri agi ɣef tmeddurt-is, tskanayed yiwen uzaraf aluɣan sɣur amdan amengaḍ ɣef tiklisent tanubit n wayeḍ.
+
+Yessen di temẓ-is tameṭṭut ukud yidir 14 isegwasen, yesɛa yid-s aqcic (Adéodat 'Adiyudat'), ur neẓri acemma fell-as, ula d ismis, ahat tella tamasiḥit ma nwala isem n mmit-sen
+
+Adéodat 'Adiyudat' yesɛan anamek n Ayakuc.
+
+Di Ṛṛum, Augustin yesɣeṛ inelmaden Tasnukyest (La rhétorique).
+aseggas n 384, iṛuḥ ɣer Milan, iceyyɛ-at Quintus Aurelius Symmaque i yellan yesseḥbibir fellas.
+
+Di Milan imirenni, llan ttḥuffun ɣef uselmad n tesnukyest, Symmaque yessen azal n Augustin, icegɛat. Dinna, Augustin ixuleḍ aṭas imedyazen, imesnagayen (wid izraren sɣur Platon). yemmas tḍedrit-id att idir yides. 
+Yemmugred Saint Amboise n Milan uɣur yelmed aṭas, izrar fellas ayen-din, acu it yeǧǧan ad yeǧǧ tamananit u ad yeḍfer Tamasiḥit akken iwata, dɣa yebɣa ad yezweǧ (tahel) d yiwet tqcict tamaṛkantit, maca ilaq-as ad yarǧu sin isegwasen acku mazal-itt mecṭuḥet, yeǧǧa tameṭṭut nni ukud yella yettidir azal n 15 isegwasen, m-ad netta skud urɛad yezwiǧ yebwid tayeḍ.
+
+Siserun/Cicéron ;
+Adlis n tmasiḥit "Bible", tasuqilt sɣur saint Cyprien n Carthage aked saint Ambroise n Milan ;
+Tamennanit/Manichéisme ;
+Platon sɣur Siserun/Cicéron ;
+Néoplatonisme n Plotin akked Porphyre.
+
+Tasnegzimt n ugurrum Augustin tbed ɣef tmeḍranin timedran id iteddun:
+
+Taflest, liman.
+Tayri, an ẓer d akken Augustin yebḍa ger tayri n timmad-it d win n akuc.
+Anefray illeli.
+Taɣszint
+Timektit
+Masin U Harun Masin U Harun
+
+Masin u Harun, isem-is unṣib Mohamed Harun, yella d yiwen n imeɣnasen imezwura ɣef tamentilt n Imaziɣen deg Lezzayer. Ilul-d ass 13 yebrir 1949 deg Tifrit, Aqbu (Bgayet). Yemmut ass 22 mayyu 1996.
+
+Ilul-d ass 13 n yebrir di Tifrit, taɣiwant n Aqbu di agezdu n Bgayet. Baba-s, taselfest-is : Sergent Tahar, i llan d afesyan n Taslullit Taγelnawt (ALN) yemmut di amennuɣ deg 1958. Yemma-s tella d tasakrart asmi tella ṭrad n lezzayer, ttawi učči i iserdasen. Temmut di tamedrit n webrid asmi tṛuh ad tẓeṛ mmi-s (Masin) di lḥebs aseggas n 1976.
+
+Yebdu amennuɣ-is (tazwara d amennuɣ n tamagit) am ccix n aɣerbaz di tasenawit n Tadelles (Dellys). Dinna,yeɛreḍ ad immeslay inelmaden ɣef tamentilt n Imaziɣen. Imadhalen (iselmaden iberraniyen) imaṣriyen nnejmaɛen iwakken ad creḍen tasuffeɣit-is seg tasenawit.
+
+Sakin, s Smaɛil Meǧeber akked imeɣnasen nniḍen, ittekki i tuffɣa n tisɣuntin "Iṭij" d "Taftilt" s tutlayt tamaziɣt. Imeɣnasen i tweṭṭefen s tisɣuntin agi, Agezdu n Umel d Taɣlist (DRS) atni ccegaɛ ar lḥebs. Lameɛna ur ṭṭinezen ara iɣilen axatar, ciṭ ussan i iɛeddan, sekkeren-d Tuddsa n Tizmerin Timaziɣin (OFB) d tasɣunt "Atmaten" ig qqenen s tuddsa nni. Segmi, Masin U Harun d-imdukkal-is sɣeren amennuɣ nsen.
+
+Ass 3 n yennayer 1976, tafezwayt ṭṭeṛḍeqed g-uxxam n-uɣmis El Moudjahid tayeḍ deg axxam uṣaḍuf n userdas di Cirta. Ḥusin Cradi d Masin U Harun i sersen tifezwaytin nni. Tafezwayt nniḍen telaq at ṭṭeṛḍeqed deg axxam uṣaḍuf n userdas di Wahran, lamaɛna Agezdu n Umel d Taɣlist yeṭṭef Smaɛil Meǧeber uqvel ad yexdem tiluf-as.
+Awwur Awwur
+
+Awwur d tawwurt n uzɣir.
+1949 1949
+
+Asebter agi, yella i asseggas 1949 n Tafada tagriguriant.
+
+Aṣqif n Ṭmana Aṣqif n Ṭmana
+
+Aṣqif n Ṭmana neɣ Ɛin lḥemmam (isem-is aqbur "Michelet") d tamdint n twilayt n Tizi Wezzu di Tmurt n Leqbayel, tella ar 45 km deg unẓul agmuḍ n Tizi Wezzu d 95 km ar ugafa agmuḍ n Tubiret.
+
+Taɣiwant n Aṣqif n Ṭmana tella deg anẓul-agmuḍ n twilayat n tizi wezzu. Tebɛuẓẓel ɣef akal aqdim n lɛeṛc n At Mengellat.
+
+Tamdint tella ɣef udem ugafa n Ǧerǧer, ar 1080 lmitra n awrir. Tudrin n taɣiwant n Aṣqif n Ṭmana vnan ɣef abeṛdi n udrar, alamma 1800 lmitra n awrir.
+
+Di tagazma tadeblant n 1984, taɣiwant n Aṣqif n Ṭmana tesɛa tudrin agi :
+
+Tamdint tamecṭuḥt tamsedrart, i vnan Iṛumiyen deg 1881, semman-as Michelet d tajmilt af amazray aṛumi Jules Michelet. 
+
+Asmi d-yussa azarug n tmurt n lezzayer, semman-as Ain El Hammam iwakken ad kemmelen asenfaṛ n tasɛurrebt n isemawen n imḍiqen. Imil, imdanen t-kemmelen as semman i tamdint agi Michelet neɣ Michli neɣ Michyi. 
+
+Zikenni Michelet yella d amḍiq-aɣella n tɣiwant n Ǧerǧer i tevna tadbelt tamehrsant iwakken at sefrek tilufa tidbeltin d tiserdasin n tamnaṭ. Asqif n-Ṭmana d-isem aqdim n takcemt tagafat n tamdint (Taxlijt taqdimt n At sidi Sɛid d timeqbeṛt anda yemḍel amedyaz aqvayli Si Muḥ U Mḥend.
+
+Di zik, tamdint agi tela d-amḍiq anda yella agduz n At Mengellat yal ddurt, semman-as zik "Ttlata At Mengellat" (Aram n At Menguellat). Kra d issegwasen sakin, tamdint t rmes agduz n At Yeḥya ig llan, zikenni, yal asiḍyas ar 3 km seg dinna, ar tama n At Hicem, ar amḍiq i yella tura amḍiq-aɣella n taɣiwant n At Yeḥya.
+
+Taɣiwant n Aṣqif n Ṭmana tesɛa sviṭaṛ, akumisaria, tamsetla, snat tisenawitin, lbuṣṭa, leḥkma d 14 iɣerbazen.
+
+Taɣiwant tesɛa tisellit i aẓeṭṭa n tiṛakniwin..
+
+
+Taɣiwant n Micyi teffkad daɣen yiwen wergaz mucaɛen aṭṭas aṭṭas deg tzuri : Dda Qasi Abudrar. D adebal ameqqran, yeskren aḥdum n tmeɣriwin deg segwassen n 70-80.
+Tagemmunt Ɛezzuz Tagemmunt Ɛezzuz
+
+Tagemmunt Ɛezzuz, d taddart i d-yuzgan di tmurt n leqbayel tamdint n Tizi Wezzu, d nettat i d adeg-aɣella n tɣiwant n At Maḥmud.
+
+Tezga-d Tgemmunt Ɛezzuz deg tiɣilt yesɛan kṛaḍ idisan, anda taqacuct tella af 805 m.
+
+Taddart agi d yiwet ger tuddar timeqqṛanin i d-yuzgan deg iɣallen ger izuɣaṛ n Tizi Wezzu d wid Iwaḍiyen. Di taggara n timiḍi tis 19, llan azal n 1300 imdanen di Tagemmunt Ɛezzuz akken i d-yenna mass Henri Genevois deg udlis is "Un village kabyle Taguemount Azouz ..." kter n wayen yellan di temdint n Tizi wezzu di lawan-nni. Aseggas n 1967 llan kan azal n 1650 yemdanen. 
+
+Abrid seg anda ad tkecmeḍ ɣer Tgemmunt Ɛezzuz d win i d-ibdan seg Akal Aberkan di Larebɛa n At Dwala, RN 30/Avrid Aɣelnaw wis 30, d win yettawin daɣen ar Tizi Hibel d Tawrirt Musa Waɛmar.
+
+Tezziyazd i Tgemmunt Ɛezzuz seg ugafa, Tawrirt Musa Waɛmar, seg unẓul-agmuḍ, Agni Ɛrus d Tizi Hibel, seg unẓul, Iwaḍiyen, seg Umalu, taddart Icardiwen, seg ugafa-umalu, taɣiwant n At Dwala, taddart n At Bu Yeḥya d Timegnunin.
+
+
+M'akken teɣli Tmurt n leqbayel zdat udabu afṛansi (1857 - 1871), taneggarut agi, tesnulfa-d ayen umi neqqaṛ di lawan nni "Les bureaux Arabes". wigi iwakken ad beddlen yark ismawen n twaculin iqbayliyen dɣa ad naf tiwaculin n tagemmunt ɛezzuz am tidak n tuddar nniḍen bḍan-t yark d ticriḥin:
+
+Tajmayt n At Cemlul, zik-nni tella d tabburt n taddart, deg-s imɣaren sɛeddayen tigdi n ukud-nsen tqeṣṣiren gar-asen, daɣen ḍemnen taɣlist n taddart, deg unẓul n tejmayt n At Cemlul tella tin umi neqqar tajmayt n wadda.
+
+Deg iseggasen 70', aman d trisiti kecmen-d taddart, Tagemmunt tebda tettimɣur, ixxamen n zik, ǧǧan amḍiq i lebni amaynut, imdanen ssaramen tudert tatrart, tikariyas, ikamyunen d ixxamen ɣef leryuf iberdan ttwakfḍen, annecta d-ayen iǧǧan ad yeḍru usefli axatar di tudert n yemdanen, di tudert n zik-nni s umaẓlay di tudert n tilawin Tgemmunt Ɛezzuz.
+
+Tizi Asker neɣ Tizi n laṣkar, d amekkan yettwasnen aṭas di taddart acku dinna i tt-nejmaɛen irgazen taddart yal ass, ma nuɣal-d ɣer y isem Tizi Asker, yella-d si zman n Fṛansa, aladɣa di lawan-nni mi tella Fṛansa deg akal n tumrt n leqbayel, ssuffuɣen-d lɣaci ɣer Tizi, iwakken at ...
+At Yeḥya At Yeḥya
+
+At Yeḥya d taɣiwant di Tmurt n Leqbayel, deg ugezdu n Tizi-Uzzu. Tella ar 47 km deg unẓul-agmuḍ n Tizi-Uzzu, ar 33 km deg unẓul n Iɛeẓẓugen dɣa ar 4 km deg ugafa-agmuḍ n Aṣqif n Ṭmana. Amḍiq-aɣella n taɣiwant agi, d taddart n At Hicem. 
+
+At Yeḥya tuɣal deg useggas n 1984 ɣer da d yiwet n tɣiwant ger 67 n tɣiwnin i tesɛa Tizi-Uzzu.
+
+Taɣiwant n At Yeḥya tettwazger s ubrid aɣelnaw AA 71, i teddeden Iɛeẓẓugen d Aṣqif n Ṭmana dɣa s ubrid agezdan CW 150, i teddeden abrid aɣelnaw AA 12 d ubrid aɣelnaw AA 71 seg Caɛyeb ar At Hicem.
+
+
+1 fuṛaṛ 1 fuṛaṛ
+
+Ass n 1 fuṛaṛ d ass wis 32 n useggas. Llan 333 wussan deffir-s ar taggara n useggas, wis 334 deg iseggasen "bisekstil".
+31 yennayer - "1 fuṛaṛ" - 2 fuṛaṛ
+25 yunyu 25 yunyu
+
+= Wid immuten =
+Saint-Petersburg Saint-Petersburg
+
+Saint-Petersburg d tamdint deg wenẓul n Rrus.
+Tanfalit (tafyirt) Tanfalit (tafyirt)
+
+Tanaflit d yiwet n tefyirt tawezlant i d-yessevganen ayen ssaramen, neɣ ittmennin yemdanen merra neɣ wegraw ametti s-umata neɣ tudsa d tasudut iwakken ad awḍen ɣer s-iswi nsen, neɣ ad mmektin amezruy-nsen ameqṛan.
+
+S araldik, tanfalit t skened daxel imrigen izamalen (armoiries), umata ɣef tasfift nnig aber, wannag tiɣra n lgirra ssersent ddaw is.
+
+Kra n tinfalyin :
+Timdinin n Lalman Timdinin n Lalman
+
+Umuɣ, s amizwer agemmayan, n 2077 timdinin n Lalman, ar 12 mayyu 2007.
+
+Abeṭṭu s Land :
+I umuɣ s amizwer n amḍan n imezdaɣen af timdinin timeqqṛanin n Lalman, ẓeṛ umuɣ n timdinin timeqqṛanin n Lalman.
+
+ * Statistisches Bundesamt Deutschland mit amtlichen Ortsnamen und Daten (Stand: 31. Dezember 2005) für alle 12.302 selbstständigen Kommunen Deutschlands.
+Awanak asedduklan Awanak asedduklan
+
+Awanak asedduklan (, tamsisit), d Awanek (s unnim) aɣella, i suddesen s aṭas iqerra imaniyin s unabaḍ i yal aqerru. Aẓayer n iqerra agi i segger s umata s Tamenḍawt, dɣa ur yezmir ara ad yili iseɣrebbet s taɣtest iman-is n unabaḍ asedduklan alemmas..
+Meɣres Meɣres
+
+Meɣres d ayyur wis 3 n useggas.
+
+
+Photoshop Photoshop
+
+Photoshop d aseɣẓan n ubeddel d useqdec n tugniwin, d wunuɣ yullen s uselkim (DAO) i d-yeẓreg Adobe. Yettwaseqdac s waṭas i usker n tfarut tumḍint, maca daɣen i usuffaɣ n tugniwin timaynutin.
+
+Photoshop d aseɣẓan i yesseqdacen tugniwin tusriwin (Bitmap) acku tugniwin-agi gant am iẓiki n irden iwumi neqqar Pixel: aferdis n tugna.
+
+Photoshop yuɣal yesɛa azal ameqqṛan ger isenselkimen acku yesɛa aṭas n testayin tinezmarin, ifecka udlifen lɛali, tura iɣerbazen yesselmaden aseqdec n useɣẓan n photoshop ufrarend s waṭas, gar-asen iɣerbazen imeqqṛanen, asuday n "Les Beaux Arts" d tifurra n merru.
+
+Adobe tesnefli aseɣẓan photoshop i Microsoft Windows d Mac OS kan, maca lqem CS4 yezmer ad yettuselkem di Linux s Wine.
+
+Aseggas n 1987, Thomas Knoll aselmad di tseddawit n Micigan yebda yettaru yiwen wahil iwakken ad ibeqqeḍ tugniwin s yiswiren n tkaẓaṭ ɣef ugdil ammaɣay. Isemma-yas "Display", ahil-agi d win i d-ijebden tawnafit n gmas John Knoll, yellan d axeddam di "Industrial Light & Magic". Yenna-yas John ad yexdem amaẓrag n tugniwin ummid. T.Knoll yewwi-d dɣa sed wayyuren si lxedma iwakken netta d gmas ad qedcen ɣef wahil agi, i wumi i isemma "imagepro", di taggara n useggas-nni T.Knoll ibeddel-as isem i wahil ɣer Photoshop. Sinna kin yemlal akked umɣaraf n "scanners Barneyscan" iwakken ad isedger ineɣlan. 200 ineɣlan ttwasdegren akked "scanners Barneyscan" di tazwara.
+
+Di twala agi, John Knoll iṛuḥ ar Silicon Valley iwakken ad isnat ahil-ines i Apple akked Russell Brown: anemhal n Adobe, i sin yid-sen iɛeǧb-asen wahil agi s waṭas, dɣa di Cutember 1988 Adobe teɣtes ad taɣ turagt iwakken ad tsegder ahil agi, J.Knoll yerna yeqdec ɣef wayen umi neqqaṛ "plug-in" ma d T.Knoll yeqqim di "Ann Arbor" yettṛaǧu targalt taɣbalut. Akka di 1990 Photoshop 1.0" yeffeɣ-d i tikkelt tamezwarut.
+
+Photoshop yesɛa amasal n ufaylu n yiman-is (Asiɣzef: psd) ayen i ɣ-yettaǧǧan ad neḥrez ticriḥin n usenfar i d-iselɣen tugna iwakken ad twasqedcent subrez. Ahil yettaǧǧa daɣan aseqdac ad ikter u ad isifeḍ ifuyla tugniwin deg imusal yettwasnen s waṭas am (Asiɣzef : gif, jpg, tif, png, etc.).
+Ctember Ctember
+
+Ctember d ayyur wis 9 n useggas. Deg-s 30 wussan.
+Dujember Dujember
+
+Dujember d ayyur wis 12 n useggas.
+Tasnisnit Tamatut n Ugaraw Tasnisnit Tamatut n Ugaraw
+
+Tasnisnit Tamatut n Ugaraw (English : "general circulation of the ocean", neɣ, "Thermohaline circulation") d tasnisnit n waman n ugaraw n uamaḍal. Tikli agi n waman, tagel ɣer (depend) taẓɣelt yuk d tisent (salinity) n waman, d ayen umi neqqar taneẓẓi n waman (density). Di tasmuḍi n ugafa (north) d wanẓul (south) n umaḍal, aman ttismiḍen, ttubbun ar lqaɛ n ugaraw. Aman agi leḥḥun si ddaw n ugaraw n ufella. Aman agi s immal leḥḥun, s imal trennu teẓɣelt nsen. Dɣa ttalind ar tajumma (surface) n ugaraw, akken ad zzin tikelt nniden ar ugafa d unẓul n umaḍal. Tiqit n waman t-tezzid ar s amḍiq ines amenzu, ilas-as tamudi 2 000 iseggwasen.
+
+Snat n tɣawsiwin id imasayen af tikli yagi n waman : Taẓɣelt, yuk d Tisent. Acku taneẓẓi tagel ɣer-sent. Ma ternu tazɣelt neɣ tisent (am deg gafa yuk d unẓul n umaḍal), trennu taneẓẓi. Ay agi, yeẓẓaẓay aman. Ɣef ayen-nni, iɣellin waman ar lqaɛ n ugaraw. Ma at ader tazɣelt yuk d tisent, tettader taneẓẓi, dɣa ttifsusen waman, ttalin-d ar tajumma n ugaraw.
+Tikli yagi n waman nefɛent tagnawt, acku tettawi lḥamu seg tiɣwezza i yeḥman (tropic) ar ṭṭeṛf n umaḍal (poles). Yuk tettawi tasmuḍi si ṭṭeṛf n umaḍal ar tiɣwezza i yeḥman.
+Adobe After Effects Adobe After Effects
+
+After Effects d aseɣẓan n usudes i d-yeẓreg Adobe. Yettaǧǧa aseqdac ad ismentel (créer) isemda imeẓliyen d imrayen udlifen i yal tannalt seg yal tawsit taɣbalut. Tẓa ileqman i d-yeffɣen seg-s ar assa, taneggarut seg-sent d Adobe After Effects CS5.5 v11.5.
+
+After Effects d aseɣẓan n usudes d isemda uwali i yellan d amenzu seg imrayen udlifen deg uselkim n wemdan. Amecwaṛ yebda deg yiwet n tmetti tamecṭuḥt iwumi qqaṛen CoSA (The Company of Science and Art) id yuzgan di Providence addad n Rhode Island. seg asmi id sneflin aseɣẓan PACo (PICS Animation Compiler) Dave Herbstman, Dave Simmons d Dan Wilk bdan di tneflit n Egg i d-yefkan di taggara After Effects yennayer useggas 1993 i smahin di MacWorld (Boston).
+
+iswi n useɣẓan agi d asmentel n imrayen i "tiliẓṛi" (tilivizyu) d "ssinima" deg uselkim n wemdan. Di tawala (lawan) nni tifrat n usekker umḍin n tugna deg umḍiq imusnawen, sseqdacen arrumen yettwaxedmen iwayagi kan, yarna d-wid ɣlayen s waṭas d wid yesɛan ferru usviḍ. COSA tebwid tifrat: aseɣẓan agetferru n usekker uvidyu, ileḥḥu ɣef Windows d Mac.
+
+Tuggdiwin deg uswir n imusal twakecma d twafɣa llant ttwajemqent ala si tnezmart tmacint d tmeska n : "RAM (Random Access Memory)". Aseɣẓan agi uɣent wa deffir wa "Aldus Corporation", sinna "Adobe Systems Inc". Tura After effects ittesdiwin yark aked wahilen n tseddart Adobe Creative Suite.
+
+
+After Effects yesseqdac asegraw n usemnenni n iswiren iwakken ad yessuffeɣ asudes amray si tugniwin timeẓliyin. Ad naf ayagi daɣen deg aṭas iseɣẓan yecban After Effects, amakken yella di Photoshop maca After Effects yefka i useqdac tazemert ad ibeddel iswiren deg akud, yerna s weskar ur nessengar. Neqqaṛ-as ur nessengar acku afaylu n usenfaṛ di After Effects yesɛa ala tilɣa n usekker aɣbalu. Iwakken ad isiḍen amray ttagara, ilaq ad nesɛu si tama asenfaṛ n After Effects, si tama nniḍen tiɣbula tizedganin (tugniwin tusbiḍin, avidyu). Nezmer daɣen ad nexdem imrayen srid si After Effects mebla tiɣbula di tazwara. Ayakken yebɣu yella, m'ad tseqdaceḍ aseɣẓan n After Effects iwakken ad txedmeḍ amray ilaq ad tɛeddiḍ seg umecwaṛ n usiḍen yesɛan tazdagt tamattayt ittdukulen aked uxnaz n usenfaṛ.
+
+Ifecka igejdayen i d-isummer After Effects d:
+
+
+Tamurt n Iqbayliyen Tameqqṛant Tamurt n Iqbayliyen Tameqqṛant
+
+Tamurt n Iqbayliyen Tameqqṛant d akal i wumi qqaren iqbayliyen iqburen Tamawya taqbaylit ("neɣ Tamawya"). Awrir-is i d timeẓlit si Tamurt n Iqbayliyen Tamectuḥt, ar unẓul-agmuḍ, dɣa si Tamurt n Iqbayliyen Takewssart, ar umalu, dɣa tebuẓẓel, seg ugafa ar unẓul, seg taftist n ugrakal armi d tiqacuctin n Ǧerǧer. Kraḍ igrawen n idurar tčuren iẓir is :
+
+Akal n Tmurt n Iqbayliyen Tameqqṛant i ɣum ass-agi tanebdaḍt n Tizi Uzzu d uzgen n tin n Tubiret, t-ernad ilmmasen n Lexḍareyya, Qadireyya, Tubiret, Ḥizar, Beclul d Imceddalen dɣa, et tesebded s Aɣbalu d Ccerfa af tama n tanebdaḍt n Bgayet. Tinfalyin « Tamurt n Iqbayliyen Taɛlayant » neɣ « Tamurt n Iqbayliyen n Ǧerǧer » llant seqdacent aṭas am umegdu n « Tamurt n Iqbayliyen Tameqqṛant », tikwal daɣen i tama i llan deg unẓul n Sebau.
+Tizi n At Ɛica Tizi n At Ɛica
+
+Tizi n At Ɛica d taddart d yuzgan di tama n umalu n Tmurt n Leqvayel,
+Seg Usamer, Tḥud-itt-id Ssi Mesṭafa,
+Seg Umalu, Tḥud-itt-id Tijelabin,
+Seg Unẓul, Tḥud-itt-id At Ɛemran
+
+Anẓul n yeɣzer : 
+Agafa n yeɣzer : 
+
+Anavaḍ aqvayli uɛḍil Anavaḍ aqvayli uɛḍil
+
+TANAḌT N° GZM/2010/02/ASAN/05
+Aselway n Unabaḍ aqbayli uɛḍil
+
+d yiḍrisen-is imenzayen yellan d Asenfar n Timanit n Tmurt n Yeqbayliyen (PAK) d Urkawal n Yizerfan n Wegdud Aqbayli d Tmurt n Yeqbayliyen (CDK);
+
+s uẓarisem-is Ferḥat At Sɛid, d aselway n Unabaḍ Aqbayli;
+
+
+IGZEM ITT
+
+Amagrad I : Yettwasbedd-ed Unabaḍ Aqbayli Uɛḍil deg yinig, di Lpari.
+
+Amagrad II : Win i t-yessulin d Aselway n Unabaḍ.
+
+Amagrad III : Iswi-s d aslali n teɣsar tunṣibin n Tmurt n Yeqbayliyen d ugenses-nnsent ɣer udem n tejmaɛt tagraɣlant.
+
+Amagrad IV : Ad idum alamma yeḍṛa-d usteɛṛef unṣib yiss d usteɛṛef s Tmurt n Yiqbayliyen d agdud yakk d aɣlan sɣur n Uwanak azzayri.
+
+Amagrad V : Amḍan n yiɛeggalen-is ur yerkid ara. Taluft-a terza tamuɣli n uselway-is ara yeṭṭfen ṛṛay s uciweṛ n tseqquma tinselkamin n Umussu n Tmanit n Tmurt n Yeqbayliyen (MAK).
+Amagrad VI : Ɣef leḥsab n wakken yella umagrad V n tanaḍt-agi ya, yezmer uselway a d-yesseḍṛu ijeddilen iɣelfanen acemma icaweṛ tiseqquma tinselkamin n MAK.
+
+Amagrad VII : Seg wass-a d tsawent, tanaḍt-a tegga leɛnaya.
+
+Amagrad VIII : Tanaḍt-a a d-teffeɣ deg Weɣmis Unṣib n Unabaḍ.
+
+Imugg ass n 31 Mayu 2010
+
+Aselway n Unabaḍ, Ferḥat At Sɛid
+
+Iswi n weɣmis unṣib n Unabaḍ Aqbayli Uɛḍil d asufeɣ s webrid n tira n tgezmin tunṣibin yettaṭṭaf Unabaḍ.
+Tigezmin-a rzant : 
+
+
+Aɣmis unṣib n Unabaḍ iteffeɣ-d s tutlayt taqbaylit d tutlayt tafṛansist.
+
+Seld timlilit n Wegraw Amatu umussu n timanit di Fransa n wass 18/01/09, i deg d-yella umeslay ɣef wesnulfu n TKARḌA N TNEKKIT TAQBAYLIT. 
+
+Seld asqerdec i d-iḍefren asarg n Mass Ferḥat At Sɛid, Aqerru umussu, ass n 12/09/2009 di Tmeɣra n Talsa di Lpari ɣef yismawen n Yeqbayliyen di tmurt-nsen.
+
+Imi nefren a nerr tajmilt i yimezwura nneɣ u a nefk azal i yesmawen i deg ṭṭfen d igiman n iseggasen s yiwen uzamul yecvan takarda n tnekkit.
+Masinisa Germaḥ Masinisa Germaḥ
+
+Masinisa Germaḥ d yiwen umeɣras n tefsut taberkant yettwanɣan ddaw iɣallen iǧadarmiyen izzayriyen ass n 18 yebrir 2001.
+
+Ass n 22 yebrir 2001, yella-d yiwen n uberreḥ sɣur iǧadarmiyen n At Dwala d akken Masinisa Germaḥ yettwaṭef ɣef tukerḍa deg iberdan n At Dwala.
+Yazid Zerhuni yenna-yas : d « yiwen umesaḍɛi n 26 iseggasen».
+
+Aǧadarmi i t-yenɣan isem-is Mestari Merabet ar ass-a mazal ur ḥkimen fell-as kra.
+At Dwala At Dwala
+
+Tamurt n Ibaskiyen Tamurt n Ibaskiyen
+
+Tamurt Ibaskiyen tuzga-d ger snat n tmura: Fransa akk d Spenyul (Spanya)
+
+Imezdaɣ-is isem-nnsen Ibaskiyen. Tamaneɣt-is Bilbao
+
+Amezruy n tmurt n Ibaskiyen yella-d di tlisa n snat n temnaḍin :
+
+Anadi di tserkam n tmetti n leqrun wis 16, wis 17 d wis 18 yesskanay-d d akken tiserkam iḥekmen Tamurt n Yibaskiyen di tallit-nni llant tekksent-d rrbeḥ-nsent seg yiqeddicen ay llant xeddment i lmend n Ugellid n Fransa akk d Navarre n Wadda, dɣa ɣef wanect-a, kra n Yibirjwaziyen ibaskiyen llan ttṣaḥen-asen-d yimukan ɛlayen di leḥkem, yettxelliṣ-iten ugellid, seɛɛun tifesniwin deg yigen yernu tekksen-asen i wiyaḍ ixfawen-nsen ihaggaren (noblesse) akk d yimukan-nsen n leḥkem. Sponde, Bela, Belsance, Gramont, Etchauz akk d Meharin llan seg wid yeṭṭfen leḥkem u tuli yis-sen ddunit imi ay sennden ɣer tgeldit tafrensist akk d yimasiwen ay iqerben s agellid. Wwḍen alammi ay ten-tecrek nnesba yid-sen yernu sduklen ssɛaya-nsen akk d tin n wigi. D acu kan, anect-agi diɣ yessaweḍ-iten ad ssersen imal n Tmurt n Yibaskiyen ger n yifassen n Fransa, ur reglen- as abrid i uzureg (indépendance) n tmurt-nsen. Tawaddfa-yagi yessbanay-aɣ-tt-id mliḥ umezruy di tallit n Wemgaru n Tesreḍt [asmi ay nnuɣen Yikaṭuliyen d Yeprrutistanen di Fransa si 1562 ɣer 1598]. Imir-n, aṭas n yimasiwen ibaskiyen (am Luxe, Espelette, Garou, Etchauz akk d Domezain) ay d-ibedden i lmend n Ugellid n Fransa, akken ad t-ḥudden, dɣa rran timura-nsen s ddaw n leḥkem n tgeldit, ladɣa di tallit n Charles IX. Yernu nnernan wassaɣen n lemɛawna ugar di tallit n Henri IV (Henri III n Navarre), ay d-yeskecmen aṭas n yimasiwen Ibaskiyen ɣer leqṣer-ines u gar-asen nezmer ad d-nader Armendaritz, Laxague akk d Haramboure.
+Tawaddfa-yagi n Tmurt n Yibaskiyen ɣer Fransa yesseɛjel-itt-id rrbeḥ n tgeldit mgal n Usemmeskel [abeddel n tesreḍt takaṭulit] akk d wesbeddi n tsertit n usselmes tafrensist.
+
+« "I tɣimit n tlella, n yesladen akk d yeglamen" » d awal ay llan ttɛawaden-t-id si Palais alamma d Ustaritz, Yibaskiyen inesbuɣar (imerkantiyen) yeṭṭfen leḥkem di leqrun wis 17 d wis 18. Kra n yenmezrayen walan anect-a d asuter n Yibaskiyen akken ad awin tilelli u ad ḥekmen i yiman-nsen tisuda tibaskiyin, d acu kan, anect-a ur iṣehḥa ara imi d wid-n akken ay yellan qqaren-d awal-agi ay yellan tekksen-d lfayda meqqren si tedbelt (administration) n Tgeldit tafrensist. Ihi, "tilelli" ay llan ssuturen-tt-id wigi yezmer kan ahat ad ilin qeṣden-d yis-s lebɣi-nsen akken ad ten-id-tuɣal tlelli-nni n zik ay d asen-tespuḥ tsertit n usselmes n Fransa, am wakken ara yili usuter-agi-nsen yesskanay-d diɣ tugdi-nsen akken ad asen-truḥ tlelli d leḥkem sya ar sdat imi di tallit-nni tella a d-tettenka r tserkemt tamaynut n yemzenza d yimawlan n wakal akk d yimesbankiyen ilibirraliyen, ay yellan ttuɣalen d inesbuɣar (imerkantiyen) s lɛejlan yernu zgan-d mgal n uqader n yisuḍaf, akken ma llan. Nezmer dɣa ad d-nefk sin n yimedyaten i deg ara d-nesban aya :
+Di 1784, ssutren yimawlan n wakal inesbuɣar n Navarre seg unemzaɣ n Béarnais, Polverel, ad as-yaru asektay i Ugellid n Fransa i deg ara d as-yessefhem ayɣer ay ilaq ad qqiment "tlella d yesladen" n tgeldit n Navarre, dɣa asmi yexdem aya, fkan-as yimawlan n wakal Ibaskiyen amkan gar-asen, yuɣal ula d netta yesɛa akal u yerbeḥ-d ixef n tihhugra. D acu kan, lemmer ad nwali mliḥ s agbur n wayen d-issumer, ad nẓer d akken Polverel yessider-d takti n ussuter n tfulmant (autonomie) di lweqt i deg wiyaḍ akk ttun-tt [u a ttxemmimen amek ara kemmlen ad ttidiren deg yeglamen s ddaw n leɛnaya n Fransa], yernu yewwet-d Polverel deg usektay-is mgal n "unedbal n wakalen" ay yellan yekkat mgal n twaculin tinesbuɣar timaynutin n yemzenza akk d yimesbankiyen. Yuɣ lḥal, Polverel iger-d tivri, xas maci s ledjherr, akken ad asen-d-uɣalen i Yibaskiyen yizerfan-nsen ay sen-yefka umezruy, ad asen-d-tuval tmurt n lejdud-nsen i deg ttalasen, yernu ayen ara d-yesbegnen aya netta d akken Polverel yuv abrid-is i yiman-is asmi ay d-tekker Tegrawla tafrensist.
+
+Atmaten n twacult n Garat n Ustaritz, ay ttwalin yenmazrayen seg wid yellan ttḥuddun "tisuda tibaskiyin", leɛben ddurr d ameqqran di lebni n Tegrawla tafrensist akk d wesbeddi n unagraw azerfan (système juridique) d tedbelt tamaynut n Fransa. D acu kan, asmi ay ttwakksen akk yeglamen imsugal deg yiḍ n 4 Ɣect 1789, ttwakksent ula d tisuda tibaskiyin, xas akken ifuk lḥif ɣef wegdud abaski, ay yeddren acḥal d leqrun s ddaw n lbaṭel n yimasiwen, ma d atmaten n twacult n Garat, rewlen s tuffra si tmurt.
+Tagrawla tafrensist tefka azal, di tgara, i tutlayt tafrensist ay yuɣalen d tutlayt tawḥidt i yes tteddu tegduda, i yes ttdeddu tedbelt akk d yiɣerbazen.
+Ibaskiyen n Ugafa (n Fransa) ay d-yuran ɣef tnettit tabaskit seg yimir-n d asawen, am Antoine d'Abbadie di "Eskualtzaleen Biltzara", ur d asen-iban ara webrid ara aɣen, wanag llan ttmalen tikwal ɣer tesnakta takarlit (carlisme), tikwal ɣer tesnakta tafrensist yerran tutlayin timedrusa n Fransa d aḥric kan seg ufulklurr n tmiwa n tmurt. D acu kan, llan-d kra n yemyura ay nezmer ad d-nini d akken d tisuraf (exceptions), am Chaho akk d Broussain.
+
+Di lqern wis 18, talibirralit taspenyulit tella d nettat ay d tasnakta ay ḍefrent s umata tserkam ɛlayen n Yibaskiyen n Spenyul, wid yellan sɛan aṭas n wakal, akk d yiburjwaziyen n temdinin yebdan seɛɛun akal neɣ llan bɣan ad t-sɛun. Taɣdart (élite) n Yibaskiyen akk d tin n Yikatalanen llant d tirebbaɛ yesɛan aswir adelsan (niveau culturel) ɛlayen akk di tmetti taspenyulit, yernu llan dima d nitni ay d imezwura di tmurt ay d-ilemmden ayen d-yettnulfun d amaynut di tussna di tmura nniêen n Turruft . Aṭas deg-sen ay yellan ttaznen arraw-nsen akken ad ɣren di tesdawiyin n Fransa d Legliz neɣ di tesdawit n Bergara. D tarbaɛt-agi diɣ ay d-yesbedden Takebbanit n Caracas, d takebbanit n tnezzawtmeqqren ay ṭṭfen Yibaskiyen yernu tettekka mliḥ di tenneflit n Venezuela.
+
+Tura-d tmesnalest (anthropulug) Marianne Heiberg :
+«"Deg wayen yerzan tinettit, at tegrawt-agi llan ttwalin iman-nsen d akken ulac wi yellan d "Ispenyuliyen" ugar-nsen di Spenyul. Llan ḥesben iman-nsen ṣubben-d seg wid-n akken umi ur xliḍen ara yidammen akk d Yimurriyen neɣ Uwdayen, wid-n akken yessuffɣen ikefrriyen* yernu rran-d taɣerma akk d Tamasiḥit ɣer tmurt. Xas ulamma aṭas deg-sen llan ttmeslayen tabaskit, d taspenyulit ay llan smenyafayen ad tt-sqedcen ama deg wexxam neɣ di berra"» 
+U terna-d :
+«Dɣa amkan ay d as-fkan wigi i tbaskit d win kan n tutlayt n yimeksawen, d tutlayt n yimezdaɣen n tmurt ur d-neswi si tala n ṭṭbeɛ akk d tɣerma, di lweqt i deg taspenyulit tella d tutlayt n ṭṭbeɛ, n yedles, n leqraya akk d rrbeḥ n temdinin, yernu simmal yella yettali ccan n temdinin, simmal tella tettuɣal tbaskit di rrif, tettzad fell-as tḥeqranit».
+[*yuɣ lḥal, Ispenyuliyen yennuɣen mgal n Yinselmen di Spenyul, llan ttwalin Inselmen d Wuwdayen d ikefrriyen.]
+Si 1876 d asawen, beddlen wid yellan di tserkam yeṭṭfen leḥkem : anekcum n tmurt n Yibaskiyen s ulzuz (ssuq) akk d usaḍuf (lqanun) aspenyuli yewwi-d yid-s yiwet n tegrawt (tarbaɛt) tamaynut n yinesbuɣar iqeddcen di temguri (industrie) akk d tbankiwin (banques), yernu wigi wwḍen alammi ay ṭṭfen imukan ɛlayen deg udabu aspenyuli. Iburjwaziyen-agi yennerna leḥkem d timmerkantit-nsen asmi ay d-sbedden anagraw n "Conciertos Economicos" (Iburaz Udmisen), d ayen ay ten-yeddjan ad rren tiseqquma n temnaḍin ddaw n leḥkem-nsen u ad sneqsen tiwsi ɣef wayen llan xeddmen-t-id u znuzuyen-t, dɣa anect-a yegla-d s uxeṣṣar ameqqran ɣef tserkemt n yiqeddacen akk d wegdud s umata. Tamsedrast-agi tabaskit tuɣal d aḥric si tburjwazit taɣelnawt taspenyulit yernu aɣerya ad teqdec i lmend n lebni n tmurt timsihrit tatrart di Tmurt n Yibaskiyen, nettat teqdec i lebni n tmurt n Spenyul.
+
+Tesdawit n Bergara Tesdawit n Bergara
+
+Tasudut Tageldant tabaskit n Yimeddukal n Tmurt (Real Sociedad Basconcada de los Amigos del Pais), ay d-tesbedd trisṭuqraṭit n Azkoitia, tella d tagrawt tameqqrant akk ay yesselḥan tikta n "Teftilin" di Tmurt n Yibaskiyen. D tasudut-agi ay s-d-yefkan amedya i ugellid asemmeskal Carlos III akken ad d-yesbedd tisuda am nettat di tmiwa merra n Spenyul. Taburjwazit turruffit tamaynut tella tettnadi ad d-tesbedd yiwet n tesnakta "tanelsawt" d tamaynut i ɣef ara tebnu assaɣen-is akk d tḥerrsin , dɣa seg yimir-n ay yuɣal usseḥrres yettwaxdam s yisem n "ussiweḍ n tɣerma" s igduden ur tt-nessin ara.
+
+Amagrad amezwaru n uẓayer n tsudut-agi yeqqar-d : «"Iswi n tsudut-agi netta d asnerni n usselmed akk d ussebɣes n Yibaskiyen akken ad lemmden tussna, tiẓuryin akk d tẓuryin icebḥen, d tukksa n wayen n d iri akk d usselhu n wansayen-nsen, d tukksa n lqella n ccɣel d lqella n tmusni akk d unaḍeḥ mgal n yixeṣṣaren i yes d-igellu wanect-agi, akk d ussedjhed n tdukli ger n tlata n temnaḍin n Yibaskiyen [tispenyuliyin] n Alava, Vizcaya akk d Guipozcoa"». Leqdic ifazen akk ay xedmen yirisṭuqraṭiyen n Azkoitia di lqern wis 18 netta d asbeddi n Tesdawit n Bergara di 1767, akk d unagmay-nni-yines ussnan ay imechurren. Tasdawit n Bergara tuɣal d tasdawit talaykit tamezwarut akk di Spenyul, d acu kan, xas akken tettekka deg wesnerni n tussna akk d yedles, maca tarisṭuqraṭit tabaskit ur teddji ara tutlayt tabaskit ad tuɣal d nettat ay d tutlayt n usselmed akk d unadi di tesdawit.
+
+Tangiwin ay llan sselmaden-tent di tesdawit n Bergara d tigi : tasengama tarmawit , takrura , tasnekfilt ,[[ tussniwin talsiyin, [[tusnakt]], [[tasnagayt]], [[tasniklit]] (ethique), [[llsisan n tesreḍt]](n ddin), [[tamedyazt]], [[tamesɣanibt]], [[tasnadent]] , [[amezruy aɣelnaw]] akk d id "[[fueros]]" (isuḍaf neɣ leqwanin n Tmurt n Yibaskiyen), [[tutlayt tabaskit]], [[talatinit]], [[taspenyulit]], [[tafrensist]], taneglizit, taṭalyanit, [[aẓawan]] akk d [[ccna]], [[aharag]] (gymnastic), [[imenɣi s tkuba]] (asekkim) akk d [[tedrest]]([[ccḍeḥ]]).
+
+Tasdawit-a tga-d inermisen akk d wammasen n unadi imeqqranen akk n Turruft. Atmaten Elhuyar, ay d-ilulen di Tmurt n Yibaskiyen n Ugafa (di Fransa) yernu mechurrit deg wennar n unadi, kecmen-d ɣer tesdawit-a di [[1778]], u di [[1783]] ssawḍen ad d-ɛezlen aferdis n "[[wolfram]]", win umi neqqar ass-a [[tungsten]], seg [[umaɣus]] (acide) n Wolfram, yernu lexbar n tegrut-nsen tessuffeɣ-it-id Tsudut Tageldant Tabaskit di tesɣunt-is umi qqaren "Extractos".
+
+Tasdawit n Bergara tettekka maci d kra deg wesnerni n yedles akk d [[tussna]], maca terra tutlayt tabaskit di rrif deg wayen yerzan asseqdec-yines deg unadi akk d usselmed. 
+
+Daxel n tesdawit, tabaskit tella tesɛa kan amkan n tutlayt n unagmay neɣ tecba taɣawsa ay yettrusun deg [[usalay]] , yernu axeṣṣar n wanect-a mazal nettidir-it ar ass-a, imi mazal akka ay twalin yiburjwaziyen ibaskiyen tutlayt-nsen.
+
+Sdat n tḥeqranit n tburjwazit, ala kan d ansayen n wegdud ay yeddjan tutlayt d yedles ibaskiyen ad idiren u ad menɛen si nnger akk d tutut.
+
+Tafrensist Tafrensist
+
+Tafrensist neɣ Tarumit d tutlayt talatinit seg twacult n tutlayin n oïl, tewwi-d aẓar-is seg Talatint taqdimt. 
+Tedrest Tedrest
+
+Tadrest neɣ ayen imu qaren medden ccḍeḥ, d taẓuri n umbiwel n tfekka. 
+
+Argaz neɣ tameṭṭut, ad ihuz awk tafekka-s i wakken ad yeḍfer anya n uẓawan
+
+
+Aqerru Aqerru
+
+Aqerru tezmer ad yili d:
+
+ - Winnat ina d aqerruNavarra Navarra
+
+Navarra d yiwet si tamnaḍin n tmurt n Spanya.
+Taɛrabt tadzayrit Taɛrabt tadzayrit
+
+D tameslayt ttutlayen imezdaɣ iɛarbawalen n tmurt n Dzayer qqarn-as Ddarǧa, tameslayt agi tesɛa aṭas n wawalen i d-yekkan si tmaziɣt am awal "yemma". 
+
+Taɛrabt n Ldzayer tamaneɣt akk d taɛrabt taɣerfant (populaire) s umata sɛant kra n wawalen ay d-yekkan si tmaziɣt, xas ur ṭṭuqqten ara :
+
+Taɛrabt - Taqbaylit 
+
+cṭeḥ = cḍeḥ (awal-a yekka-d si tmaziɣt)
+ciṭuḥa = tiḥiṭect (hoquet)
+
+Ǧrana (grenouille) = yezmer ad yili yekka-d si "Agru" (imqerqer ɣer Yitergiyen, Ajru deg tantalawiyin tijnatin) 
+
+Gendura = Taqendurt 
+Lgergis = Agergis (carrelage)
+
+Maẓuẓ (el-) = Amaẓuẓ (aqcic amecṭuḥ akk deg wexxam)
+Mgergra = Imqerqer 
+
+Rgigi = Rgigi (qqaren-t-id ula di taɛrabt, mi ara tettergigiḍ si tugdi)
+
+Taḥraymit = Taḥraymit, Tiḥerci
+Tamara = Lḥif, Lmeḥna
+Tata = Tata (cameleon)
+Tawsa = Tawsa (idrimen-nni ay ttaken medden i teslit, di tmeghra)
+Tihudit = Tuwdayt (meḥsub taḥraymit, tiḥerci)
+Ass n Tlelli Ass n Tlelli
+
+Ass n Tlelli d imseɣret aɣelnaw n Tamurt n Leqbayel i d-yufraren aseggas n 2010 i d-iqublen 2960 deg tafada amaziɣ.
+
+Ass n Tlelli
+
+D ass-a i d ass n tlelli
+
+D ass i deg aɣlan aqbayli
+
+Yufrar-d ger tmura
+Yal yiwen ad d-yettwali
+
+Taseddaṛt ɣef i nuli
+
+Nnig-s ur d-yekki kra
+Xas ma tikwal nɣelli
+
+Werǧin i neḥbis tikli
+
+Nessawaḍ di tagara
+Iṭij seg i d-neflali
+
+Ass-a azekka ad nili
+
+Mi nezga nbedd i tnekra
+Nekni d aɣref n tlelli
+
+Nekni d tafat i tmuɣli
+
+Nekni d times d wuzzal
+Nekni d tamurt d igenni
+
+Nekni d agur d tziri
+
+Nekni d iseɣ d wazal
+Nekni d tiẓeṭ d tayri
+
+D talemmast akked yiri
+
+Nekni d illel d wakal
+Nezmer i tniri d teẓgi
+
+Afus ur yettergigi
+
+Ɣef talwit nezmer i ccwal
+Nekni d azref d isekkim
+
+Ger imeqranen ad neqqim
+
+Nekkni d tifrat d umtawi
+Nekni d afḍis d ugelzim
+
+Yeddan d tussna d ubelkim
+
+Fell-aɣ teḥṛes neɣ d llwi
+Isem-nneɣ d Aqbayli d afzim
+
+Ɣef unyir d Amaziɣ d urqim
+
+Fell-as lḥif ad d-t-nezwi
+Kkert ak° ad ɣ-id-twalim
+
+D nnuba-nneɣ ad ɣ-d-tezzim
+
+Ass-agi ad tt-id-nawi.Nuja n Tteryel Nuja n Tteryel
+
+"Tamacahut n Nuja, llan wid ay as-isawalen " Lunǧa ", tettwassen deg Tmazɣa akk. Maca deg yal tamnaḍt amek ay tt-id-ssawalen. Ta d tamacahut n Nuja n Tteryel ay yura Hamid Oubagha, deg wedlis " Tacemlit ".
+
+... dɣa tuɣal-d Nuja am wakken tella : am wayyur n yigenni ! Yella deg wawal : Nuja u Tteryel. Azekka-nni, at wexxam, ay iwalan, wehmen. Ma d medden, ur tt-nwala ara, ugin ad amnen : nnan-as kan d taklit kan i yuɣ. Uɣalen kkren-d watmaten-is, s tismin, mkul wa anta ay yebɣa ad tt-yaɣ. Yiwen yenna-as i baba-s : « Ula d nekk ad aɣeɣ taklit ». Wis sin : « ihi nekk, a baba, ad aɣeɣ taqjunt ! ». Wayeḍ yini-as : « nekk ad aɣeɣ tamqerqurt »... Yenna-asen baba-tsen : 
+
+-A tarwa xzut cciṭan ! gma-twen d Nuja n Tteryel ay yuɣ macci d taklit. Iɛetteb fell-as, yelḥa deg yidurar ed tẓegwa armi qrib t-tecci Tteryel. 
+Ula ay ken-yawin ! ...
+"Macahu ! Ad telhu ! Ad tt-yeg Ṛebbi amzun d asaru" !
+Yella yiwen sselṭan, sselṭan ala Ṛebbi ! yesɛa sebɛa warraw-is. Yiwen deg-sen isemma-as Yusef. Ihi, ttagaden, seḥbibiren-fella-s. Ttaken-as taḥbult ur nesɛi imassen ed tɛembubt ur nesɛi iɣsan. Armi d ass-n deg wussan n Ṛebbi, qqimen yeɛdawen n baba-s la heddṛen deg tejmaɛt, nnan-as : « flan yesɛa aqcic ifaz, yerna ur d-iteffeɣ ɣer beṛṛa ». 
+
+Tenṭeq ɣer-sen Sstut, tenna-asen : 
+
+-Ma tebɣam, ad awen-t-id ssiseɣ.
+Nnan-as : -iiih ! mer ad aɣ-t-id-tessiseḍ, ad am-nefk tacacit n wedrim. 
+
+Tenna-asen : -ihi yirbeḥ. Tekker tṛuḥ ɣur-s.
+Mi tewweḍ, tenna-as i yemma-s : -A yelli ɛzizi, tesɛiḍ aqcic isem-is Yusef, yella deg wawal, armi d deqqal : Ur t-neẓri ur t-nessin. 
+
+Tinna tettnawal askaf, tessenɛet-as-t anda yella. Tuli sakin Sstut ɣur Yusef, tenna-as :
+
+-Ahbuh a Yusef a mmi ! mer ay k-iḥemmel baba-k, ay k-tḥemmel yemma-k, ur ak-ttafken ara taḥbult ur nesɛi imassen ed tɛembubt ur nesɛi iɣsan : 
+
+ad yeḥzen win ur necci adif n tɛembubin ed teḥbult n weɣrum s yiqecran-is. Yenna-as :
+
+-Ihi amek ? Tenna-as : Ini-as i yemma-k ed baba-k !
+
+Mi tṛuḥ Sstut, yeddem Yusef iṣubb-d ɣer yemma-s, yaf-itt-in la tmessel askaf, ttekkes-d ticuftin. Iḍegger taqeccaḍt n ukebri yesteɛmel d aḥucciw yini-as i yemma-s : « ha-t-an a yemma uḥucciw yeɣli-n ». 
+
+Mi temmeɣ ad t-id-tekkes : yebbeẓ-as afus-is s askaf yerɣan, yarez-as-t deg-in. Nettat tsuɣ, netta yeqqar-as : 
+
+-Ɛahdeɣ Ṛebbi, ma kkseɣ-d afus-im seg-in siwa ma tɛuhdeḍ-iyi ar d iyi-d-tefkem kemm ed baba kra ad awen-iniɣ. Tenna-as :
+
+-Kkes-iyi-n kan seg tmes , ɛahdeɣ-k s Ṛebbi ar kra tebɣiḍ ad ak-t-nexdem nekk ed baba-k . Yenna-as : 
+
+-Ihi ad iyi-tefkem taḥbult s yiqecran-is ad iyi-ternum taɛembubt s yeɣsan-is. Tenna-as : 
+
+-Yirbeḥ. Armi d tameddit, tizi n yimensi, tseras-as-d yemma-s taḥbult s yiqecran-is terna-as taɛembubt s yeɣsan-is. Yecca-tent. Isumm-d adif i yellan deg tɛembubt. Icar sakin iɣes ɣer ṭṭaq, iḥuz jjaj-is, yeddegdeg. Iḍal-d seg ṭṭaq, iwala ddunnit beṛṛa amek i la tzehher teɛmeṛ : wa yettali wa yettṣubbu. Yenṭeq ɣer yemma-s yenna-as :
+
+-Yyah ! ziɣ akk-a ay tella ddunnit ! kenwi tkemnem-iyi deg wexxam ! Yuɣal ɣer baba-s yenna-as : 
+
+-Ad iyi-tefkem tagmert ad ṛuḥeɣ ad ffɣeɣ. Yuɣ-as awal baba-as. Seg wakken yejhed, aɛawdiw ay ɣef yuli ad qesfen yiḍarren-is. Armi d wis sebɛa. Iṛuḥ baba-s s amɣar azemni, yeḥka-as : 
+
+-A baba amɣar, tekcem-d ɣur-i Sstut, tɣerreq-iyi ! Yenna-as wemɣar azemni : 
+
+-amek a mmi ? Yeḥka-as tadyant yeḍran yid-s, yuɣal ay segra-as-d : 
+
+-tura, mmi-a la yeqqar awi-d aɛawdiw, win ay ɣef yuli ad t-yerẓ armi tṛuḥ tekfa tejlibt n yiɛawdiawen-iw. Tura amek ara xedmeɣ yid-s ? Yenna-as wemɣar azemni :
+
+-Ddem-as-d ameḍɛafu-nni akk deg-sen yellan d tizzya-s, efk-as-t d win. Yuɣal-d s axxam yexdem akken, yenna-as i Yusef :
+
+-ṛuḥ a mmi, ha-t-an uɛawdiw ay ak-ilaqen, d tizzya-ik ahat wa ur t-yettaɣ wara. Yuli Yusef aɛawdiw-nni, ad as-tiniḍ msefhamen, akken ay t-yerkeb yenceɛ yes-s, kkan tawwurt. 
+
+Ileḥḥu deg temdint, aɛawdiw yettṛabaɛ, aqcic yezzeɣzeɣ2 : yekker-asen akk i medden s teɣrit : wa yerẓa-t wa yesɛab-it, wa yerẓa-t wa yesɛab-it, wa yerẓa-t wa yesɛab-it… Armi uɣalen nnejmaɛen yelmeẓyen deg tejmaɛt, nnan-as : 
+
+-Win ara d aɣ-yenfun Yusef seg taddart, ad t-neɣnu ma yeɣna-t Ṛebbi. Teflali-d Sstut, tini-asen : 
+
+-D nekk ara t-yenfun ma tefkam-iyi tacacit n wedrim. Nnan-as : 
+
+-ṛuḥ kan ihi, mi t-neẓra yenfa seg taddart, ad am-tt-nefk. Teddem, tgubeṛ-it, tqusem-as ɣer tala mi iṛuḥ ad yessew aɛawdiw-is. Yaf-itt-in tessendi tayeddidt n uɣerda s amizab ad tt-teccaṛ. Yekker izuff-itt-id seg-in i wakken ad isew uɛawdiw-is. Tenṭeq ɣur-s tenna-as : 
+
+-ṛuḥ a nnger-ik, a tuqqad-ik, macci ɣur-i ara d-tḥeṛceḍ, ad tesserwateḍ arrac a aḥeqqar… ma tekkateḍ uzzal dɣa d tidet, aweḍ ɣer Nuja u Teryal, ma ulac seras-iman-ik. Yenna-as : 
+
+-Mel-iyi-tt kan anida tella ! Tenna-as : 
+
+-A mmi ur kucfeɣ ara, ṭṭef iberdan-ik ɣer teẓgi, nadi, nadi, nadi… ad tuɣaleḍ ad tt-tafeḍ. Yessew aɛawdiw-is, yeṭṭef iberdan-is ɣer teẓgi n lewḥuc. Mi ifel i teẓgi, iteddu yesteqsay, armi yufa wid ay as-yemlan abrid : « ha-tt-an deg wemkan n lmuḍeɛ flan ». 
+Ileḥḥu sebɛ yyam u sebɛ llyali. Tamurt i wumi ifel ɣas ta, tamurt i wumi ifel ɣas ta, tamurt i wumi ifel ɣas ta … Armi yewweḍ ɣer Nuja. Twala-t-id tenna-as : 
+
+-A nnger-ik ! a nnger-ik ! yemma d Tteryel ad k-tecc ! Yenna-as : 
+
+-ḍebbeṛ aqerru-im ! nekk usiɣ-d armi d deg-a, ɣef wudem-im i yebɣun yeḍru ! Teddem Nuja terr-it ddaw tesraft. Armi d tameddit, mi d-tekcem Tteryel, tesraḥ, tenna-as : 
+
+-Mmh ! a Nuja yelli ! ifuḥ waḍu awerdali, leɛqel-iw iga abali : anwa ay d-ikecmen ? Terra-as-d Nuja : 
+
+-A yemma d aɛeṭṭar kan ay d-yusan, uɣeɣ fell-as timceḍt. Tenna-as Tteryel : -i teṭṭfeḍ-iyi-t-id ad t-cceɣ ! Tenna-as Nuja : 
+
+-Aha tura, ula d aɛeṭṭar amcum ad am-t-id-ṭṭfeɣ ad tecceḍ ? Nekk ur ẓriɣ ara tebɣiḍ-t. Yuɣal yenṭeq-d uyaziḍ : 
+
+-Ququɛu ! yemma jida tunguft ! ma d Yusef s ddaw teṛbut ! Tenna-as Tteryel : 
+
+-D acu d-yeqqar uyaziḍ-nni ? Terra-as-d Nuja : 
+
+-La am-yeqqar : Nuja ad iyi-tezlu, ma d tinecwatin-iw ed tẓermucin-iw ad tent-tecc Yemma Jida ma d taksumt-iw ad tt-tecc Nuja. Tenna-as Tteryel: 
+
+-Ddem-it-id a Nuja a yelli ! Tekker Nuja tezla ayaziḍ, tefka-as i yemma-s tinecwatin, tiẓermucin ed yidammen-is. Ma d taksumt teffer-itt ar azekka-nni ad tt-id-tesseww i Yusef. Azekka-nni tameddit, daɣen kifkif, akken kan d-tekcem Tteryel, tenṭeq ɣer Nuja tenna-as : 
+
+-Mmh ! ifuḥ waḍu awerdali, leɛqel-iw iga abali, a Nuja yelli ! anwa akka ay d-ikecmen axxam-iw ? ? ? Tenna-as Nuja : 
+
+-D aɛeṭṭar kan ay d-yusan, uɣeɣ fell-as lemri, simi d-d liɣ ad am-t-id-ṭṭfeɣ yerwel-iyi. Tenna-as Tteryel : 
+
+-a Nuja yelli, amek ay am-yennser ? Yuɣal yenṭeq-d yikerri : -Baɛɛɛ ! yemma jida tunguft ! ma d Yusef seddaw teṛbut ! Tenṭeq Tteryel : 
+
+-Nuja ! d acu d-yeqqar yikerri-nni ? Terra-as-d Nuja : -La am-yeqqar, zlu-iyi ! taḥedduft-iw, idammen-iw, iẓerman-iw ed uqerru-iw ad ten-tecc Yemma Jida ma d taksumt-iw ad tt-tecc nanna Nuja. Tenna-as Tteryel : 
+
+-Ddem-it-id ihi, a Nuja a yelli ! Tekker nuja s ikerri, tezla-t, tuza-t. Teddem taḥedduft, s yidammen, iẓerman ed uqerru-nni, tḍegger-as-ten i yemma Jida ad ten-tecc. Ma d taksumt teffer-itt daɣen ar azekka-nni ad tt-yecc Yusef. Armi d wis telteyyam, tekcem-d tameddit Tteryel, tesraḥ daɣen abeṛṛani, tenṭeq ɣer Nuja tenna-as : -Ah ! a Nuja a yelli s acu tɛewwleḍ ad t-txedmeḍ ? Tenna-as Nuja : 
+
+-A yemma, ur ttagad, d rriḥa-nni kan n yiḍelli ! Ur yelli win d-yusan ass-a ! Yenṭeq-d weɣyul, yesreɣruɣ deg udaynin, yeqqar-as : 
+
+-Yemma Jida tunguft ! ma d Yusef s ddaw teṛbut ! Tenna-as Tteryel : 
+
+-D acu d-yeqqar weɣyul-nni ? Terra-as-d Nuja : -La am-yeqqar, ini-as i Yemma Jida ad iyi-tezlu ! ad iyi-tecc ! nekk ɛyiɣ deg ddunnit ! Tenna-as Tteryel : 
+
+-Awi-t-id akka a Nuja yelli ! Tezzuɣer-as-t-id Nuja i Yemma-s, tbezzer-it, tecca-t. Tejja-tt armi tekfa, tekker ad tṛuḥ ad tgen, tini-as : -Ihi a Yemma teṛwiḍ ? Tenna-as Yemma Jida : -Ahbuh ! a Nuja a yelli, macci d ayen tettfukuḍ : nṭel qejjiṛ yali-d qejjiṛ ! nṭel meẓẓuɣ yali-d meẓẓuɣ ! nṭel fettus yali-d fettus ! ur t-fukeɣ ara. Armi d ass wis ṛebɛa, tenna-as Nuja i yemma-s : 
+
+-Nnaɣ a yemma, aqlaɣ nɛac deg teẓgi n lewḥuc, kemm d Tteryel, albaɛḍ ad am-d-iqasem … ur iyi-tenniḍ amek tegganeḍ, ad ɛasseɣ fell-am ! Tenna-as Tteryel : -iiih ! a Nuja a yelli, mel-iyi qbel kemmini, iḍes-im, amek iga ? Tenna-as Nuja : 
+
+-Nekk yeshel, ad am-t-mleɣ : mi d-yemɣi mejjir deg yinyen ɣef yiri n lkanun, nekk imiren ay ṭṭseɣ ! Tekker Tteryel tɛawez, tɛuss Nuja ar teṭṭes : tequreɛ ar d-yemɣi mejjir deg yinyen ɣef yiri n lkanun… tɛuss, tɛuss, tɛuss… armi teɛya, teṭṭes. Tuɣal azekka-nni, tenna-as Nuja : 
+
+-I kemm a yemma, amek ay iga yiḍes-im. Temla-as Tteryel iḍes-is, tenna-as : -Mi tesliḍ i yimeqreqyar la sawalen, i yeɣyal la sreɣruɣen, i tzermemmac la sfiricent deg uɛebbuḍ-iw, imiren ay ṭṭseɣ. Ma ulac mazal ṭṭiseɣ. Teddem Nuja tɛuss armi tesla i yimeqreqyar la sawalen, i yeɣyal la sreɣruɣen, i tzermemmac la sfiricent deg uɛebbuḍ n yemma-as, tefhem teṭṭes. Tekker tsers-d lḥenni, tsawel-asen i yijeqduṛen meṛṛa
+
+Rsem-d a yijeqduṛen d tirni ! ad awen-tewwet Nuja lḥenni ! azekka ad tebdu tikli !
+
+Tsers-d ijeqduṛen d tirni. Ala asduz ed uceqlal ay tettu. Tewwet-asen akk lḥenni. Tuɣal tsers tineqqiḍt n lḥenni ɣef yiri n lkanun, tayeḍ deg tlemmast n tqaɛet, tayeḍ ɣef teɛzalt, tayeḍ ɣef wemnaṛ n tewwurt u taneggarut deg tlemmast n wefrag. Mi tekfa, terfed iman-is ed Yusef, kkan tawwurt : jjan-as-d i Tteryel ala aḍu. Mi d-teɛɛenjaj (1) seg yiḍes deg tlemmast n yiḍ, ad tsawal : 
+
+-Nuja ! … Nuja !… dɣa ad d-yenṭeq yiwen seg yijeqduṛen-nni ad as-d-yerr awal : « anɛam a yemma ! ». Dɣa ad tuɣal s iḍes. Kan akken armi d-rran akk awal yijeqduṛen. Tuɣal teɛɛenjjaj-d Tteryel, tsawel, yerr-as-d awal yiri lkanun : « anɛam a yemma ! ». Tuɣal tsawel, terr-as-d awal tlemmast n tqaɛet s tneqqiḍt n lḥenni. Akken, akken, akken… armi ay as-d-yerra awal wefrag. Armi d asiwel aneggaru, d asduz ed uceqlal ay as-d-yerran awal
+
+" Qerbeb ! qerbeb ! qerbeb ! Yemma Jida tunguft ! Nanna Nuja tejja-kem ! "
+
+Tsawel, tsawel, tsawel… ulac. Tewwet agejdur, tsuɣ : -Ah ! a Nuja a yelli txedɛeḍ-iyi ad kem-yexdeɛ Ṛebbi.
+Tnuda, tnuda, tnuda… : ulac. Tekker tetbeɛ-iten. Yuɣ lḥal, Nuja ed Yusef zeggnen abrid s tikli1. Mi wwḍen ɣer yiwet teẓgi2, afen ulansi ɛeddin. Tenṭeq Nuja ɣer teẓgi, tenna-as :
+
+-A tiẓgi n wudi ed tament, eg-iyi abrid ad ɛeddiɣ ! yemma Jida deffir-i, ma teṭṭef-iyi ad iyi-tneɣ ! Dɣa, tiẓgi, tserreḥ, tuɣal-d d tamazirt. Ɛeddan-d ur ten-yuɣ wara. Uɣalen wwḍen s asif, afen-t-in la yeskefkuf, ur yettunezgar. Tenṭeq Nuja, tenna-as : 
+
+-A asif n wudi ed tament eg-iyi abrid ad ɛeddiɣ ! yemma Jida deffir-i, ma teqḍeɛ-i-d ad iyi-tneɣ ! dɣa asif yuɣal-d d iɣzer, zegren-t-d ur ten-yuɣ wara. Ma d Tteryel, mi d-tewweḍ ɣer teẓgi, taf-itt akken, tenṭeq, ḥaca udmawen-nwen, tenna-as : 
+
+-A tiẓgi n yiẓẓan ed yibeccan eg-iyi abrid ad ɛeddiɣ, Nuja yelli tejja-iyi ! eg-iyi abrid ad ɛeddiɣ ! Tiẓgi, imiren ay temḍulles (2). Meṛṛa txezzeq-itt, terra-tt akk tettiẓrir d idammen. Tuɣal tewweḍ s asif taf-it-in icewwel ur yettunezgar. Ḥaca udmawen-nwen, tenna-as : 
+
+-A asif n yiẓẓan ed yibeccan ! eg-iyi abrid ad ḍeddiɣ ! Asif, imir-n ay la yesṛebṛub, la yeskefkuf, yeggar gemmaḍ-in, gemmaḍ-a ! Teɛreḍ, teɛreḍ, teɛreḍ… ulamek ! macci d ayen ay wumi tezmer ad t-tezger. Tuyes. Tsawel-as i Nuja s lqedd n taɣect-is, tenna-as : 
+
+-A Nuja ! a Nuja ! a Nuja ! ad am-n-jjeɣ leḥṛam d aseṭṭaf deg uqerru-im, ad n-yaf wergaz-im iṣeṭṭalen, ɣur-m anda yettseḍḍil ! ad n-yaf iqebqaben n wureɣ, ɣur-m anda ay ten-yettlusu ! ad n-yaf sin yigudar la ttnaɣen, ɣur-m anda ay ten-iferru !
+Nuja d Yusef slan-as-d . Kemmlen ihi abrid-nsen armi d-mlalen iseḍḍalen, yekker ad iseḍḍel, tenna-as Nuja : 
+
+-Ur tettseḍḍileḍ ara ! i wawal-nni ay d-tenna yemma ? Yuɣal ur iseḍḍel ara. Rnan, ddan armi ufan iqebqaben n wureɣ. Yekker Yusef ad ten-yels, tugi-as Nuja : 
+
+-Ala, ur ten-tettlusuḍ ara, ɛni tettuḍ awal-nni ay d-tenna yemma ?
+
+Yuɣ-as daɣen awal, ur ten-yelsi ara. Rnan lḥan, lḥan, lḥan… armi d-mlalen sin yigudar la ttnaɣen, la ttemxezzaqen, ttiẓriren d idammen. Iga akka, yemmeɣ ad ten-yefru. Tugi Nuja, tenna-as : -Ur ten-tferruḍ ara, i wawal-nni ay d-tenna yemma ? Yenna-as : 
+
+-Anef-aɣ seg wawal ay d-tenna yemma-m, ɛni tuɣal-aɣ d Ṛebbi ! ad ten-fruɣ ammar ad msekfun.
+
+Iṛuḥ ad ten-yefru s uɣanim. Iga akka, iger-it ddaw yifer-is yiwen seg yigudar-nni, yewwi-t. Tenna-as : 
+
+-Nnaɣ a Yusef ! txedɛeḍ-iyi ! Yenna-as : 
+
+-Ṛuḥ, ḍḍef deg tseḍḍa n uɛawdiw tedduḍ yid-s. Axxam ay ɣer yerra d win ay d axxam-nneɣ ! Ad tawḍeḍ ɣer ddaw tala, ad n-tafeḍ lɛinṣer, ad n-tafeḍ tibḥirt, ad n-tafeḍ taklit-nneɣ. Ddem ijekḍan-nni, ɛenni ɣer Ṛebbi, ad tekkes taklit taglimt-is, els-itt kemmini. Ddu ed tqeḍqiɛt s axxam-nneɣ.
+
+Texdem akken ay as-d-yenna. Taklit tekkes taglimt-is, nettat telsa-tt. Tedda-d ed lmal. Tuɣal d nettat ay d taklit. Mi d-yeḥdeṛ ad teqqen lmal, tini-as i lall n wexxam : 
+
+-Sani ara ɛellqeɣ ayeddid a Lalla ? Lall n wexxam, tewhem d acu-t westeqsi am wa, terr-as-d : 
+
+-Ad tecceḍ aqerru-im ed tezmert-im a taklit mm yiselfan ed yiḥelfan, d acu kem-yuɣen akk-a akk ass-a ? Ah ? Ur teẓriḍ ara sani ara terreḍ ayeddid ? Tṛuḥ Nuja yuɣalen d taklit, ɣer lmal ad teqqen, ur as-tessin ara. Wa teqqen-it seg yicekkaben, wa teqqen-it seg uqerru, wa teqqen-it seg wacciwen. Lall n wexxam-nni, teɣli fell-as s isuɣan ed wexmimeṛ : 
+
+-Ah ! a taklit n wass-a ! wekkleɣ-am Ṛebbi.
+
+Tuɣal Nuja, cwiṭ cwiṭ, armi tuɣ tanumi. Mi tekfa ass-is, ad teɛnu tameccuct-is ad tgen. Ma d Yusef, mi d-yeɣli yiḍ, ad t-id-yawi yigider nnig wexxam-nsen. Deg-in ay yettnusu. Dɣa ad yekker ad as-icennu i Nuja :
+
+" D acu ay d usu-im a Nuja ! A Nuja ! D acu ay d taduli-im a Nuja ! A Nuja !
+
+Sakin nettat ad as-d-terr daɣen s ccnawi :
+
+Asummet-inu d iniy ! D iniy ! Taduli-inu d igenni ! D igenni ! A Yusef, txedɛeḍ-iyi !
+
+Kan akken kul ass armi qrib aseggas. Asmi yessaweḍ Ṛebbi lweqt, ass-n, tizi n lefjer, yekker-d Ccix n Ljameɛ ad d-yedden i tẓallit, yesla-asen. Yuɣal iṛuḥ s agellid-nni yenna-as : -A flan, axxam-ik yetteɛmeṛ ! Winna yenna-as : 
+
+-Amek ? Yenna-as Ccix : ay yellan, ay yellan, ay yellan (3) … taklit-nni-inek macci d taklit ! Azekka-nni, yeddem sselṭan iɛawez, dɣa yesla-asen. Sakin yenṭeq ɣer Nuja, yenna-as : -Ṛuḥ ini-as « a aqerru n wemcum ! d acu ara k-id-yessuksen ? » Tenna-as akk-n Nuja. Yuɣal yerra-as-d : 
+
+-Ini-as i baba, ma yebɣa ad iyi-n-yeg iberdan ad iyi-n-yessukes, ad yezlu tafunast-nni tamezgult (4) deg wexxam, yiwen ur tt-iɛerreḍ ɣef lemleḥ, ad gen sebɛa teṛbutin n seksu u ad tent-id-isers da. Ad d-rsen yigudar meṛṛa ad ccen. Ad yecc winna akken ay iyi-d-yewwin alamma yeṛwa, ur yezmir ara ad yelḥu. Mi yekker ad yafeg, ad tewtem kan akk-a s afriawen-is s uɣanim, netta ad yesrifeg, nekk ad n-ɣliɣ s axxam.
+Yeddem ugellid yexdem akkenni. Tedda Nuja, wwin sebɛa teṛbutin n seksu. Rsen-d sakin yigudar meṛṛa ɣer tiɣilt-nni ad ccen. Win yeccan deg-sen, ad yesrifeg ad iṛuḥ… armi d-yeqqim uwessur-nni ay t-yewwin. Yecca armi yeqbeṛ, yeddem la iferres iman-is. Ur yezmir ara ad yekker seg taẓayt. Gan-as kan akk-a s uɣanim sin yiberdan (5), iserreḥ-d i Yusef, yeɣli-d . Rran-t-id s axxam. Kettṛen-as deg lerbaḥ armi yeḥla seg weḍɛaf-nni. Ula anida ad k-gen a lfeṛḥ ! Yeqqim armi d-yuɣal ɣer tezmert-is, yehdeṛ ed Nuja ad tt-yaɣ. Yenna-as sakin i baba-s :
+
+-Ihi, a baba, ad nefk iẓid i tesyar, aql-iyi ad aɣeɣ taklit. Baba-s yesteɛbeṛ imi ay as-d-tettban d taklit, yenna-as : 
+
+-A mmi xzu cciṭan, d acu ara hedṛen medden fell-aɣ, ad as-inin « mmi-is n Sselṭan yuɣ taklit » ? Winna yeḍḍef kan deg wawal-nni, yenna-as : 
+
+-Hdeṛ neɣ qim, nekk d taklit kan ara yaɣeɣ. Mi iwala baba-s iman-is yettwarna, yefka lemqud (6) ad tt-aɣen. Kkren gan tameɣra, yawi-d sakin Yusef taklit d tislit. Armi d-yeɣli yiḍ, iṛuḥ s ijekḍan-nni n tala yawi-ten-id. Yebda la tt-yekkat yes-sen, yeqqar-as :
+
+-Kkes lḥellasa, a weltennas, a taceɛlalt n yemma-s ! kkes lḥellasa, a weltennas, a taceɛlalt n yemma-s ! kkes lḥellasa, a weltennas, a taceɛlalt n yemma-s !
+
+Armi tlata yiberdan. Dɣa tuɣal-d Nuja am wakken tella : am wayyur n yigenni ! Yella deg wawal : Nuja u Tteryel. Azekka-nni, at wexxam, ay iwalan, wehmen. Ma d medden, ur tt-nwala ara, ugin ad amnen : nnan-as kan d taklit kan i yuɣ. Uɣalen kkren-d watmaten-is, s tismin, mkul wa anta ay yebɣa ad tt-yaɣ. Yiwen yenna-as i baba-s : « Ula d nekk ad aɣeɣ taklit ». Wis sin : « ihi nekk, a baba, ad aɣeɣ taqjunt ! ». Wayeḍ yini-as : « nekk ad aɣeɣ tamqerqurt »... Yenna-asen baba-tsen : -A tarwa xzut cciṭan ! gma-twen d Nuja n Tteryel ay yuɣ macci d taklit. Iɛetteb fell-as, yelḥa deg yidurar ed tẓegwa armi qrib t-tecci Tteryel. Ula ay ken-yawin !
+
+Ugin ad aɣen awal i baba-tsen. Yekker umezwaru, yuɣ taklit. Armi d iḍ, yeddem ijekḍan, la tt-yekkat yis-sen, yeqqar-as : « kkes lḥellasa, a weltennas, a taceɛlalt n yemma-s ! ». Taklit meskint tettnezluluf, tettru, teqqar-as : 
+
+-Yeqqur, a sidi, yeqqur am uɛeqqa n zzemmur ! Yekkat-itt armi teqqur am tqejmuṛt, temmut meskint. Yuɣal winna yebɣan ad yaɣ tamqerqurt, iga tameɣra, yawi-tt-id d tislit. Mi d-yeɣli yiḍ, yekkat-itt s yijekḍan, yeqqar-as : 
+
+-Kkes lḥellasa, a weltennas a taceɛlalt n yemma-s. Tamqerqurt meskint tettru, tesmintiw (8), teqqar-as : 
+
+-Yeqqur ! a sidi yeqqur ! am weglim n wemqerqur !
+
+Daɣen ula d winna yekkat-itt armi temmut. Yekker winna yebɣan ad yaɣ taqjunt, iga tameɣra, yawi-tt-id. Yekker ula d netta yekkat-itt s yijekḍan, yeqqar-as daɣen : « kkes lḥellasa a weltennas a taceɛlalt n yemma-s ! ». Taqjunt tamcumt teskeɛwiw, teskeɛwiw, teskeɛwiw… armi d yiwen webrid, yerwi-d ujenniw-is, tedda fell-as, tecca-d affad-is (9). Txezzeq-it, tecca-d seg-s armi tellexlex, sakkin tɛejjeṛ fell-as. Armi yuli wass, tenna-as yemma-s n yesli i taklit : -Ṛuḥ rzu ziɣ ɣef wemcum-nni, tawiḍ-asen leftuṛ.
+
+Tuli taklit. Mazal tekka deg yimi n tewwurt, taf-it-in akk-n, tsuɣ-d seg-in : 
+
+-Aaaa ! Lalla ! Sidi d aɣras... ! Lalla teskendeṛ fell-as !!!
+
+Uɣalen deg yimeṭṭawen, ḥeznen fell-as. Ma d Yusef yejja akk medden hedṛen armi ɛyan… Assen, yenna-as i Nuja : 
+
+-A Nuja, ass-a ad asen-kkseɣ akk asirem deg tejmaɛt. Tenna-as : 
+
+-Amek ? Yenna-as : 
+
+-Nekk ad zwireɣ ɣer tejmaɛt, kemm bru-n i uɛejmi, amzun yerwel, ttebɛeḍ-t-in. Tebra-d Nuja i uɛejmi. Mazal yewwiḍ Yusef ɣer tejmaɛt, telḥeq iɛejmi, terr-it-id s axxam. Tamurt meṛṛa sakkin yeffeɣ-itt leɛqel : anejjaṛ yenjeṛ afus-is ! agezzar yegzer afus !
+aḥeddad yesserɣ afus-is ! Aɛdawen n Yusef caḍen akk seg tismin… Netta ed Nuja yegra-asen-d liser, ddren deg lehna am temẓi am tewser. Ha-tt-an tmacahut n Nuja ed Tteryel.
+
+Tamacahut-iw lwad lwad !
+
+sawleɣ-tt-id i warraw n lejwad !
+
+Uccanen ad ten-yeqdu Ṛebbi !
+
+ma d nekni ad aɣ-yeɛfu Ṛebbi !
+
+ad necc irden n ukufi !
+
+ma d wid n teylewt ur ten-nufi !
+Microsoft Windows Microsoft Windows
+
+Windows (s tseklant "isfuyla" s tutlayt taglizit) d yiwen n unagraw seg yinagrawen n wammud i d-tesuffeɣ Microsoft i yiselkimen imṣudan (PC). Yerna-d deffir MS DOS.
+
+Seg yiseggasen n 1990 "(agim tẓa twines d tzat)", d ttwafɣa n Windows 95, i d-yemmugren rbaḥ ameqqṛan, dɣa imi amaẓrag-ines yestenya amtawa d waṭas n yimesraken n yiselkimen iwakken ad sbeddayen deg yifuras-nsen ala Windows 95 neɣ muyaf-asen gen tafagwit n tedrimt, ayagi yeǧǧat ad yawi amḍiq ameqṛan deg ugduz.
+
+taseddaṛt n Windows deg-s aṭas ifurkawen:
+Di 2001 Windows XP yeffeɣ-d, yuɣal ufurk agi sseqdacent yemdanen merra, ayen yeǧǧan Microdoft ad suffaɣ wa deffir wayeḍ Windows Vista d Windows 7.
+
+Ismawen n tengalin yettwasnen ger wacciwen.
+
+
+Ileqmen imezwura n Windows ttwasekkaren si DOS, sseqdacen anagraw n ifuyla n DOS. Sinna Windows tsekcem-d kra n twura n unagraw n wammud, am umasal n uselkam n yimanis, asefrek n ukala multitaches, asefrek n tkatut tahlist d inuḍafen iw sefrek n ubeqqeḍ, asiggez, anasiw, imesli ... d wiyaḍ. Windows 2.10 i 386 yuǧwed ula d netta seg iketturen n Intel 80386, am usersi n yiɣes s uqqin imesten d uselkem n ahilen DOS di tmacinin tuhlisin s uqqin 8086.
+
+Nezmer daɣen anesseqdac Windows di DOS wiyaḍ mači MS-DOS n Windows, am PC-DOS n IBM neɣ DR-DOS, maca ilaq ad neǧǧ di rrif yark inzan inezriyen i d-ittcegga uselkim deg usbeddi.
+
+si Windows 95, agrudem udlif yuɣal susmenzi d-amadraw n MS-DOS. Dayen id yessekren ugur ger Caldera, ig llan d-amaẓrag n DR-DOS di lawan nni, yettaǧǧan daɣen Windows ad yelḥu, d Windows.
+
+Si Windows XP, nezmer ad nini dakken DOS dayen iruḥ yark seg inagrawen n wammud n Microsoft, maca talalt ines tezmer adili.
+
+Ismawen n tengalin yettwasnen ger wacciwen.
+
+
+A laǧay n yiɣes n NT meẓẓiyen aṭas d ugar n useqdec n wahilen ddaw MS-DOS, Microsoft tẓerged yiwen unagraw n wammud iwakken ad yettwaseqdac sɣuṛ yemdanen maṛṛa, d win id yebwin tiɣerwan yelhan n Windows NT u yeqqim d-amṣadan d-ileqman imenza n Windows d MS-DOS.
+
+Inagrawen Windows 95 d wid it idiḍefṛen d-inemhazen iregnawen 16/32 ibitten n-ileqman Windows 3.0 d 3.1. Ttwasulin yark ɣef yiwet tmudemt inuḍafen: i VxD ten. Di 1995, Windows 95 yebwid aṭas tɣawsuwin timaynutin: tissi n uzeṭṭa id yesukkes si tin n Windows NT, agrudem udlif amaynut. Mači d anagraw n wammud amaynut, maca d tanemhazt n Windows 3.1. ɣuṛ Windows 95 tazmert iwakken ad yelḥu ɣef tiwilawin unekcum n tseddaṛt s wazal n 4 MO n tkatut tuddirt (RAM), lqem OSR2 n Windows 95 yebwid ttawil n tawadma n tezmart n USB d FAT32.
+
+Lqem-agi amezwaru yettwasnen ussan-nni n tneflit-ines s yisem n "Chicago" u yeffeɣ-d s yisem n Windows 95, yemmuger-d tinemhazin timeqqṛanin, gar-asent Windows 98 d Windows Me (Millenium Edition), i yeǧǧan inagrawen n wammud n Microsoft ad ttwasnen xilla. 
+Ileqman agi yark sɛan yiwen wugur ameqqṛan ninfafaden, ayen yeǧǧan Microsoft ad tsuffeɣ afurk n Windows NT 5.1 neɣ win umi neqqaṛ Windows XP iwakken ad tqazem ugur agi.
+
+Ismawen n tengalin yettwasnen ger wacciwen.
+Loreen Loreen
+
+Loreen isem-is unṣib d (Lorine Zineb Nora Talhaoui). Tlul deg 1983. D yiwet n tnaẓurt Tamaziɣt n ccna meqren ig ttidiren di tmurt n Sswid.
+
+Tluled tcennayt Loreen ass n 16 Tuber asegwas 1983 "(Agem, mraw tza d tamet krad)" di temdint n Amur-Akuc (Marrakech) di tmurt n Lmarruk deg yiwet n twacult Tamaziɣt, vava-s d yemmas isin idsen d-imaziɣen icelḥiyen.
+
+
+Sswid Sswid
+
+Tamurt n Sswid, tezga-d g umenzaw n Turuft. Tamanaɣt d Stukulm.
+Rbaṭ Rbaṭ
+
+Rbaṭ d tamaneɣt n tmurt n Merruk, tesɛa deg useggas n 2014 azal n 1,100,000 imezdaɣen.
+
+Imunen (Imweḥden) bnan agerrar (camp) af wakal yettwasnen tura s yisem n Rbaṭ i wakken lan iẓri af uzaɣar n wasif n Buregreg. Sakkin, At Wandlus i yettmeslayen kan s tespanyulit zedmen fell-as, snuflan Tagduda n Buregreg alamma Iseɛdiyen ṭṭfen tamdint.
+
+Tiwaculin tiqburin n Rbaṭ mmeslayen yiwet Dderja yeččuren s wawalen i d-yekkan seg tespenylit. Yerna taɛrabt-nsen ur d tin n tentalawin Tihellaliyin (Hillalien) am tin n Dukkala. 
+Udus aɣelnaw n tiddadantin (Tamurt Lezzayer) Udus aɣelnaw n tiddadantin (Tamurt Lezzayer)
+
+Udus aɣelnaw n tiddadantin (ONS) d Ameẓlu unsib n tiddadantin deg Tamurt Lezzayer, yesmenteled asegwwas n 1964. D aɣsu azayez adeblan.Angal n lbusṭa Angal n lbusṭa
+
+Angal n lbusṭa d agraw awezzlan n izwilen neɣ n isekkilen yella deg tansa n lbusṭa, seqdacent tirmistin n lbusṭa iwakken ad i sishel Amesni n izen.Crailsheim Crailsheim
+
+Crailsheim d tamdint deg wenẓul n Lalman.
+Uddun n imezdaɣ Uddun n imezdaɣ
+
+Uddun n imezdaɣ d tamhelt taddadant n usden n imezdaɣ. Ma uddunen n ugdudarut llan seg Taglest (Ccin, Maṣer, Roma), uɣalen kan d-unsiben seg ussan itraren. Seqdacen aṭas imesɣura, am abeṭṭu n tibezzar, tamusni n umḍan d tibuɣar n imezdaɣ.
+
+Tura, uddunen seqdacen ladɣa deg tallat i tagezzant tademsant. Akin amḍan n imezdaɣen, zemren ad inin amdur nsen, asadur nsen, tafada n tanezduɣt nsen, arigez nsen (axxam-amahil neɣ axxam-aɣervaz), tarrayt n usugun nsen. Dɣa, acu yellan ass-agi d-tamunt maca ur yesɛa ara lfayda deg ussanen iqburen, isem d nnekwa nsen. Tikwal, isefka udmawiyen nniḍen llan ameden, am ddin, tutlayt, neɣ, am deg Tmurt n Marikan, "aẓɣer" (iri).Racid Alic Racid Alic
+
+Racid Alic d amyaru s tutlayt taqbaylit, d netta i yuran ungal amezwaru s teqbaylit iwumi' semma Asfel aseggas n 1981.
+
+Ilul Racid At Musa ass 7 Yebrir 1953 di Tgemmunt Azzuz taɣiwant n At Maḥmud deg At Dwala, Tizi Wezzu. Yemmut ass 18 di Meɣres 2008 di Lezzayer tamanaɣt.
+
+Ilul-d Racid Alic ass n 7 Yebrir 1953 di Tgemmunt Azzuz, isɛedda temẓi ines di taddart is, maca kra isegwasen sinna iruḥ ar lzzayer tamanaɣt akked twacult-is, dinna id yewwi agerdas n l'BAC, yekcem ɣer tseddawit anda yeḍfeṛ tizrawin n Tliktṛunit, yebwid agerdas n DES di tɣarant (DES en physique) si tseddawit n lzzayer tamanaɣt, sinna kin iṛuḥ ɣer tama n Lyun di Fransa, anda id yewwi daɣen DEUG di tisekwla (DEUG en lettres) di tseddawit n Lyun II, dinna yarna yeɣṛa ɣef tesnawalt n tefriqt (linguistique africaine), Tasendugemt (sémiologie), (ethnologie). Arnu ɣef aya yetva timsirin di tutlayt talmanit deg asuday n Goethe di lzzayer tamanaɣt anda i yewwi ssartafika.
+
+15 meɣres 15 meɣres
+
+Ass n 15 meɣres d ass wis 74 n useggas n tafada n grigurian, wis 75 deg aseggas bisekstil. Qqimen 291 ussan uqbel taggara n useggas.
+
+
+
+
+3 yebrir 3 yebrir
+
+Ass n 3 yebrir d ass wis 93 n useggas n tafada n grigurian, wis 94 deg aseggas bisekstil. Qqimen 291 ussan uqbel taggara n useggas.
+
+
+
+Rafael Correa Rafael Correa
+
+Rafael Correa (6 Yebrir 1963 - ) ilul-d deg Guayaquil, d aselway n lekwaṭur (15 yennayer 2007 - ).
+
+Isem-is ameqqran : Rafael Vicente Correa Delgado.
+Arim Arim
+
+Arim (letnayen), s tefransist (lundi), d ass wissin deg yimalas (semana), s deffir-is yettas-d Acer (lḥed), zdat-is yettili waram (ttlata).
+
+Aram Aram
+
+Aram (ttlata), s tefransist mardi, d ass n yimalas i d-yettasen zdat n warim (letnayen), s deffir n wahad (larebɛa). Deg wansay, d ass wis kraḍ (3) n yimalas
+Caracas Caracas
+
+Caracas d tamanaɣt n tmurt n Venezuela.
+Abbaɣ Abbaɣ
+
+Abbaɣ d iɣes n uqerru. Yetteḥraz allaɣ si tiyita.At Raced At Raced
+
+At Raced d taɣiwant n twilayt n Tubiret. Tesɛa 9732 imezdaɣen deg-s.
+
+Antônio Fagundes Antônio Fagundes
+
+Antônio da Silva Fagundes Filho ilul ass n 18 yebrir 1949.
+Avril Lavigne Avril Lavigne
+
+Avril Ramona Lavigne d yiwet n tnaẓuṛt-tacennayt n pop-rock n tmurt n Kanada, tlul-d ass n 27 ctember aseggas 1984 di Belleville, Ontario. Temmuger-d tarennawet deg umenzu n yisegwasen 2000, imi tezzenz ar assa azal n 35 Ifeḍ tkalasin deg umaḍal d 18 Ifeḍ n iḍebsiyen umi neqqaṛ "singles".
+
+Di tadra d taṛumit sɣuṛ baba-s Jean Claude Lavigne (i d-ilulen di Moselle deg Lorraine, tama n ugemmuḍ tmurt n Fransa), d tagyizit-takanadiant sɣur yemmas Judith-Rosanne.
+
+Avril Lavigne tedder di temẓis di Napanee, tamdint tamecṭuḥt di Ontario nettat d gmas ameqqṛan Mathew d weltmas tamecṭuḥt Michelle.
+
+Seg ass mi meẓẓiyet Avril tebɣa ad tuɣal tacennayt, imawlan-is ḍefṛentt, ddan yid-s. ɣur-s 12 isegwasen mi tura isefra-yines imezwura, tḥemmel cna s waṭas. Tetturar s snitra n baba-s di tazwara, alami d ass mi-z duɣ yiwet teḥbibt twacult-is snitra-yines d amezwarut. Telmed iyiman-is ad turar, yarna tefka aṭas n wukud iwayagi. Tella tetturar yiwet n tezlit yal ass "fly away" n Lenny Kravitz. Sinna tebda tettaru tizlatin ines timezwura anda nettaf tazrirt aladɣa n Goo Goo Dolls d Green Day.
+
+Ɣuṛ-s 12 n yisegwasen mi tecna isefra di ligliz n taddart-is d tifeskiwin niḍen i d-iḍeṛṛun di tama-ines, daɣen tecna d yiwen unaẓuṛ ameqqṛan yettwasnen di Kanada ɣef isefra-ines ambigus.
+
+Aseggas n 1998, Avril tewwi yiwet n temzizzelt i tt-yeǧǧan ad tali ɣer usayes d umsemmud-ines, tacennayt takanadiant Shania Twain. Turar s yidisan-is di Ottawa, tecna tizlit "What Made You Say That". Teḍfer abrid-is tcennu deg aṭas n temdinin, ayen i tt-yeǧǧan ad arzu d tanebgit ɣer tkalast "("Quinte Spirit" di 1999)" n ucennay n "folk" Steve Medd, tecna tazlit "Touch the Sky". Tecna daɣen deg tkalast ines "(My Window to You)" n useggas 2000 di tezlatin "Temple of Life" d "Two Rivers".
+
+Yarzad ɣuṛ-s unfaras "Antonio « LA » Reid, de RCA/Arista", i tt-iwalan di yiwet n tfaska, testenya yid-s agatu. Avril Lavigne tella deg useggas-ines wis 16, dinna tḥebsed seg uɣarbaz iwakken adelhu kan d ccna.
+
+Teǧǧa tawacult ines, imeddukal-is d taddart-is iwakken ad tidir di Manhaṭṭan anda ad taru takalast-ines tamenzut. maca, tesɛa kra n wuguren akked ixeddamen-is di lawan-nni, ayen i tt-yeǧǧan ad tinig ɣer "Los Angeles", anda tga tamusni d unfaras "Clif Magness". Aseggas i d-yernan, tessufɣ-d Complicated i d-yeqqimen ar assa d tarennawet-ines tisnat seg i "singles" ines s umata, tḍefṛit-id tkalast-ines tamenzut Let Go deg ayyur n Yunyu 2002 i d-yemmugren tarennawt tameqqṛant, yussa-d d wissin di temzizzelt "Billboard 200" Kṛaḍ wagguren ar zdat. Ma si tama n IFPI, Let Go tusa-d d takalast tis snat i yenzan s waṭas aseggas n 2002 deffir Sleeping with Ghosts n "Placebo".
+
+Di tagara, takalast-agi tenza s wazal n 16 ifeḍ ineɣlan deg umaḍal, yerna yewwi aṭas n warazen. S tkalast-agi, Avril Lavigne tekcem deg umezruy, imi tuɣal d tanaẓurt tis snat di ccna ala yesɛan Kraḍ n tezlatin di Top 40 i iḥerzen amḍiq amezwaru: "Complicated" (8 Imalas), Sk8er Boi (1 Imalas) akked I'm With You (4 Imalas). ala aggay Ace Of Base d tcennayt Lady Gaga i iṣawḍen ɣer waya.
+
+Di mayu 2004, ɣuṛ-s 19 isegwasen, Avril Lavigne tessufɣ-d Takalast tis snat "Under My Skin", i d-yemmugren tarennawet imi aggur kan seg ass mi d-teffeɣ tewwi amḍiq amezwary di "Billboard 200". Avril tura d Chantal Kreviazuk tizlatin n tkalast agi.
+Ǧerǧer Ǧerǧer
+
+Ǧerǧer d azrar amedrar id yezgan deg umalu d tlemmast n tmurt n Yiqbayliyen, Azrar-a d win yeṭṭafaren tazrart n waṭlas anewrir igan d amur agafan n idurar n waṭlas, taqacuct tunnigt deg-s tls (tesɛa) 2308 m, isem-is Yemma Xliǧa yeṭṭafaren tɣiwant n Ṣaḥariǧ deg ugezdu n Tubiret
+
+Idurar n Ǧerǧer d ideg iy semmṭen s waṭas aladɣa deg tegrest anda yekkat wedfel d wegris s tuget, taẓɣelt deg waṭas n wakuden d tin yeṭṭafaren ar -20 C°
+
+Imezdaɣ n idurar n Ǧerǧer yakk d Iqbayliyen, zzint-as waṭas n tuddar 
+
+Roger Federer Roger Federer
+
+Roger Federer d amyurar n waddal n Tennis tmurt Taswist, ilul ass n 8 ɣuct 1981 di temdint n Bâle.
+Yebda yetturar d trebbut (terbaɛt) tameqqṛant aseggas n 1998 , yewwi ideg amenzu n ubellez n ATP azal n 237 imalas yemsedfaren (285 alammi d 6 Yunyu 2010). Ass n 8 Yulyu 2012, yewwi tadwilt n Wimbledon i tikkelt tis sat (7), yeqḍa-d amyurar Pete Sampras deg umḍan n tedwilin n Wimbledon i yewwi akked imalas i yella di tqacucut n ubellez n ATP (Imalas wis 286).
+
+Yewwi ar assa 77 izwilen, gar-asen 23 imeqqṛanen (17 n Grand Chelems d 6 teqbucin n Masters) d 20 n Masters 1000. Yewwi kuẓ (4) n telɣuɣa n Grand Chelem i yellan deg umaḍal, win n Melburn di Ustralya, win n RG di lpari tamurt n Fṛansa, win n Wimbledon di tmurt n Lengliz, win Flushing meadows di Timura Yedduklen n Marikan.
+
+Deg ubellez n "Sports Illustrated" n useggas 2010, Roger Federer yella-d d anadal wis sin yettxelliṣen aṭas n yedrimen deffir Tiger Woods imi yeṣṣaweḍ ar assa azal n 72 Ifeḍ n dullar deg izwilen yark i yurar.
+
+Ilul Roger Federer ass n 8 ɣuct 1981 di temdint n Bâle, yemma-s, Lynete n tefriqt n wenẓul, ma d baba-s d aswisit, Robert. Isin yid-sen xedmen di taɣult n tnesfarit. Roger d weltma-s tameqqṛant Diana idiren di temẓi-nsen di Münchenstein Taswist Talmanit. 
+Tura Roger yettidir di Wollerau, tama n Schwytz, netta d tmeṭṭut-is Mirka d yessi-s takniwin Myla Rose d Charlene Riva. Yesɛa tanaslit Taswisit d tin n tefriqt n Unẓul.
+
+Di temẓis Roger Federer yetturar daɣen ddabax uḍar, yella yezweṛ s waṭas, maca d addal n Tennis i yefren mi yella di Tam (8) iseggasen di lɛemṛis, ɣas akken mazal-it yeṭṭafaṛ ar assa u iḥemmel aṭas tarbaɛt n ddabax uḍar n FC Bâle.
+
+Roger Federer yeḥrez-d ar assa 75 azwilen deg ufrari d 8 (Tam) deg uslig irgazen. Yewwi azwel-ines amenzu aseggas n 2001, di dduṛt n Milan (indoor). Seg imir-nni yewwi 17 n tdurtin n Grand Chelem di 5 (sam) n tesniwin yemgaraden (si Talɣuɣa n Wimbledon 2003 ḥalarmi Talɣuɣa n Wimbledon 2012. Ala netta i iḥerzen azal n 6 sed n teqbucin n "Masters Cup" (2003, 2004, 2006, 2007, 2010 d 2011) d wazal n 20 azwilen n "Masters 1000". Aseggas n 2008 yewwi tazalɣi n uleɣ di talɣuɣa uslig n yargazen deg uraren ulampik n wezɣal 2008 di Pekin, akked umyurar Stanislas Wawrinka, asegwas n 2012 yewwi amḍiq wissin deg uraren ulampic n Londres mi yexṣer di tagara tedwilt aked Andy Murray.
+Martina Hingis Martina Hingis
+
+Maṛtina Hingis d tanaddalt n Tennis Taswisit ilulen ass n 30 Ctamber 1980 di Košice (tamurt n Sluvaki, zikenni čekusluvaki). D nettat i d tanaddalt meẓẓilen i yebḍen ad teḥrez talɣuɣa n Grand Chelem si zman n Lottie Dod aseggas 1887, d nettat daɣen i d tanaddalt tameẓlant i yebḍen ɣer tqacuct n wedras umaḍan deg umezruy n Tennis.
+
+Tettmeslay rebɛa n tutlayin, Tačikit, Talmanit (taswist talmanit), tagyizit d tefṛansist.
+Tella d tamdakult n unaddal n Golf Serǧiu Garsia, sin akkin tessen amyurar n Tennis Radek Stepanek asegwas n 2006. Tezweǧ akked umennay afṛansi Tibault Hutin aseggas n 2010.
+
+Tlul-d s yisem Martina Hingisová di tmurt n Sluvaki zik-nni čekusluvaki, seg mi tmenya isegwasen Maṛtina tettidir di tmurt Taswist acku yemma-s tɛiwed zzwaǧ. Deg useggas n 1999 tuɣ axxam deg temdint n Floride Marikan maca teqqim tettidir di teswist. D yemma-s i s-yefkan isem n Martina, imi tella tḥemmel tanadalt tameqqṛant n Tennis Martina Navratilova, nettat daɣen n tmurt n čekusluvaki. Yemma-s tella tetturar addal n Tennis, dɣa d ayen i tt-yeǧǧan ad tili d tasleɣmayt n Martina deg umecwaṛ ines meṛṛa.
+
+Maṛtina telmed ad turar addal n Tennis si temẓ-is, ɣur-s 5 iseggasen di lɛemr-is mi tebda tetturar di tedwilin, tessaweḍ ad tuɣal d talɣuɣt n umaḍal n tullas aseggas n 1994. aseggas n 1996 turar akked Helena Suková deg uslig n Wimledon, dɣa tuɣal d tanadalt tameẓlant yessawḍen ad teḥrez talɣuɣa agi.
+
+Aseggas n 1997 d win i iwalan urar n maṛtina ad yuɣal qessaḥ nezzah, terbeḥ 37 uraren wa deffir wayeḍ, iz d yewwin 6 telɣuɣa, tewwi Open n lustṛali mgal Mary pierce 6-2 6-2, tewweḍ ɣer tagara n Rolland Garros anda texṣer d Iva Majoli acku tuḍen cwiṭ di tagara, tewwi daɣen Wimbledon mgal Novotna akked US Open d Venus Williams 6-4 6-0; d ayen i tt-yeǧǧan ad tawi Clem amecṭuḥ.
+
+Tewwi kṛad n telɣiwin n Grand Chelem yemgaraden, ala Rolland Garros it xṣen sin iberdan di tagara, aseggas n 1999 anda turar akked tanadalt tameqqṛant Steffi Graf i yellan di tagara n umecwaṛ-ines deg addal n Tennis, teqqim-d deg umezruy, acku Martina tɛac ass-nni yiwen wass ur tezmir ad tettu, tella terbeḥ urar deg weḥric amezwaru, sinna yella-d umgarad garas d unefray, ayen yeǧǧan ula d imfarǧen (imeshanayen) ad ddun d Steffi Graf, di tagara, Maṛtina texṣer talɣuɣa, teffeɣ seg urar s yimeṭṭawen, ayen werǧin n wala deg addal agi.
+
+Seg ass-nni Martina ur tewwi talɣuɣa n Grand chelem, teqqim deg umḍiq amezwaru deg ubellez umaḍal, acku terbeḥ aṭas n telɣuɣa it tturar, maca ur tewwi ara talɣuɣa tameqqṛant.
+
+Aseggas n 2002 texṣer daɣen di tagara n Open n lustṛali mgal Jennifer Kapriati, deg urar daɣen id yeqqimen deg umezruy aladɣa Maṛtina tella teḥrez aḥric amezwaru 6-4, yarna deg wis-sin tella tezwar 4-0, sinna 5-1, ar-mi dezzi fellas Jennifer, tifesniwin di temdint n Melbourne bḍen-t ɣer 50°c, ayen yeǧǧan Maṛtina att xṣer zdat Jennifer.
+Lxṣara y agi d tin yeǧǧan Maṛtina kra wagguren ar zdat ad tḥbes urar n Tennis di Frurar 2003, mbaɛd mi tesɛa kra iɣeblan deg uḍar-is.
+
+Xas akken, Maṛtina teqimed d yiwet seg tnaddalin n Tennis tameqṛant, dɣa imi ur tesɛa y ara lǧahd amakken tella Monika Seles neɣ Serena d Venus Williams, maca tewweḍ ad deg amḍiq-is gar asen-t, u ad tiweḍ ɣer tqacuct n ubellez n Tennis azal n 275 imalas.
+
+asegwas n 1999 d 2000 tellad sɣur "magazine FHM" d yiwet ger 100 tilawin i icebḥen deg umaḍal, ma d aseggas 2005 ineɣmasen imarikaniyen n "Tennis Magazine" rran-tt d tis 22 gar 40 inadalen n Tennis imeqqranen di 40 iseggasen ineggura deffir Roy Emerson zdat Evonne Goolagong
+
+Tella azal n 209 imalas d tamezwarut deg ubellez n WTA n Tennis deg umaḍal, ur turar deg tuber 2002 acku tella tesɛa uguren n ṣeḥḥa deg uḍar-is, asegwas n 2006, Maṛtina tuɣaled s-urar, di yennayer tebda urar di Anvers, tadwilt n "Proximus Diamond Games", aggur sinna texṣer di Open n Ṭayland.
+
+Di Gold Coast, i lemhegga n Open n lustṛali, tin yewwin 5 n Grand Clem tarbaḥ timlilit ines tamezwarut zdat Maria Vento-Kabchi 6-2 6-1, tarna tarbaḥ snat n temlilin igarzen armi tebweḍ zdat n Flavia Pennetta, tanadalt tis 23 deg umaḍal dɣa texṣer timlilit acku tesɛa uguren deg wammas-is.
+
+Ddurt i dyernan texṣer zdat Justine Henin 6-3 6-3.
+
+Di Open n lustṛali 2006, Grand Clem ines amezwaru segm-id uɣal s uran, Martina Hingis tesbegned d akken mazal-itt d tanaddalt tameqqṛant, imi dɣa tessaweḍ armi d dduṛt n wis 1/4 si tagara, uqbel ad texṣer zdat n Kim Clijsters di 3 yeḥricen: 6-3 2-6 6-4, maca Maṛtina Hingis ur duɣal ara seg Melburn ifassen d-imawen, aladɣa tewwi Tabuqalt n uslig (irgazn/tilawin) akked amyuran n tmurt Lhend Mahesh Bhupathi, tabuqalt tis 8 deg Open n lustṛali, 3 (kraḍ) deg Afras, 4 (kuz) deg uslig tilawin, 1 (yiwet) deg uslig irgazen/tilawin.
+
+Di tedwilt n Ṭukyu, Maṛtina tessuffeɣ ta deffir tayeḍ, Naṭali Decy, Maria Kirilenku d Maria Caṛapuva di 1/2 si tagara, tewweḍ ɣer tagara n tedwilt i tikkelt tamenzut segm-id uɣal, maca di tagara texṣer zdat tarusit Elena Dementieva sin yeḥricen s ulac (6-2 6-0). Ayagi yeǧǧa Maṛtina ad ali deg ubellez n WTA seg umḍiq n 117 ɣer wis 48, sin wagguren kan segm-id uɣal s-urar.
+
+Tewweḍ ɣer dduṛt tis 1/4 si tagara di Dubai, anda texṣer timlilit ines zdat Maria Caṛapuva, i d-yerran ttaṛ, ayagi maca yeǧǧa martina ad ali deg ubellez n WTA ɣer s-amḍiq wis 32. Tkemmel deg Indian Wells, anda terna Lindsay Davenport, maca texṣer di 1/2 si tagara zdat Maria Caṛapuva i iḥersen tadwilt agi di tagara, di tagara n tedwlit tuli-d s amḍiq wis 26 deg umaḍan.
+
+Tewḍel ɣer tedwilin n wakal, anda Maṛtina tennad d akken ala Rolland Garros i tt-ixuṣṣen deg tedwilin n Grand Clem, u d yiwet seg tɣawsiwin i tt-yeǧǧab tuɣal-d ɣer wurar, deg Vaṛṣuvi texṣer di dduṛt tis snat zdat Venus Williams s ugemmuḍ: 4-6 7-5 6-4. Di Berlin tebweḍ ɣer 1/4 si tagara anda texṣer zdat Amili Muresmu:4-6 6-4 6-4.
+
+Ass n Acur 21 Mayu 2006 Maṛtina tesbegned d akken tuɣal-d s wazal-is imi terbeḥ tadwilt n Ṛṛum di temlilit n tagara zdat tarusit Dinara Safina s ugemmuḍ 6-2 7-5, tagi d tarennawt ines tamenzut seg 2002, u d tis 41 deg umacwar ines; deg ubellez Maṛtina tulid ɣer s amḍiq wis 14.
+
+Di barra n wannar, Maṛtina tellad d « come-back n useggas » deg Laureus Award n Barcelone, i tuɣalin ines ifazen ɣer wurar.
+Sinna mi terbeḥ tamarikanit Lisa Raymond, tačikit Zuzana Ondrášková, takṛuatit Ivana Lisjak, tizraelit Shahar Peer, texṣer deg 1/4 n Roland Garros zdat tabeligit, tis nat deg umaḍan, Kim Clijsters.
+
+Tuɣal ɣer Wimbledon 5 iseggasen si tikkelt taneggarut, tarbaḥ Olga Savchuk, Tathiana Garbin maca teɣli di ddurt tis kṛaḍ zdat tajapunit Ai Sugiyama.
+
+Di tedwilin n Marikan texṣer deg 1/4 di San Diego zdat daɣen n Kim Clijsters. Tewweḍ ɣer tagara di Montreal, ayen i tt-yeǧǧan ad kcem ɣer 10 timezwura deg ubellez umaḍan.
+
+Deg US Open texṣer di ddurt tisnat zdat tafṛansit Razzano.
+
+Di tedwilin n Asia, tewwi tadwilt n Kalkuta zdat Pučkuva, tṛuḥ ssin ɣer seoul anda texṣer di dduṛt tisnat zdat Sania Mirza.
+
+Martina tessaweḍ ad tekki deg Msters n Madrid, acku tuɣalin ines d tin i igarzen s waṭas, maca tuzgad deg aggay awṛaɣ, anda tella Ameli Muresmo, Nadia Petṛuva d Justine Henin texṣer zdat Henin d Muresmo, maca tarbaḥ Nadia Petṛuva di temlilit tis kṛaḍ.
+
+Ass wis Kuz Yennayer 2008, tettwaḥbes seg urar azal n sin iseggasen sɣur amqun agraɣlan n Tennis, ɣas akken Martina teḥbes urar m'akken kan tesla ɣef wenɣad ines umdig, ITF tekssa-s arazen d tedrimt itebwi seg Wimbledon 2007. M-ad Maṛtina teḥbes urar n Tennis i tikelt taneggarut.
+Yusef Ɛabdi Yusef Ɛabdi
+
+Yusef Ɛabdi d yiwen sen inadallen n tmurt n Usṭralya. 
+
+Ilul deg was n 7 dujamber 1977 deg Iɛeẓẓugen di Tmurt n Leqbayel.
+
+Tamezzugt-is d 3000 lmitrat.
+
+Deg useggas n 2012, ad ittekki deg Uraren ulempiyen di London di tmurt n Legliz. 
+Usṭralya Usṭralya
+
+Ustṛalya neɣ Ostṛalya d yiwet si Tmura n umaḍal. 
+
+Tamanaɣt ines d Canberra. Zeddɣen-tt kra n 22 imelyunen n yimdanen
+Tamanaɣt Tamanaɣt
+
+Tamanaɣt neɣ tamaẓunt d tamdint anda yetteg udabu tadbelt n tmurt.
+
+S tlatinit, tamanaɣt qaren-as "caput", anamek-is: aqerru.Rekku n uɣesmar Rekku n uɣesmar
+
+Rekku n uɣesmar d aṭṭan ig ttaɣen iɣes umi neqqar Aɣesmar si tama n ufella d tin bwadda. Tifidiwin d rekku n yiɣes ttasend seg seqsef (lexṣas) n idammen di tama uɣesmar. Lehlak agi at narnu ɣer tagayt n rekku n yeɣsan id ittasen seg lexṣas idammen. 
+
+Llant aṭas n talɣiwin n rekku n yiɣes uɣesmar ig ttugelmen di 160 isegwasen iɛeddan.
+
+Talɣa yettwasnen si zik, d tin id ismentes ttawil n "phosphore acebḥan", tettwassen ɣur Legyiz s yisem n "Phossy jaw" tettwabgen-ed di timidi tis "XIX" d tazwara n tis "XX" sɣur ixeddamen n zalamiṭ s ufus. Assagi s umennuɣ anmali ad naf d akken aseqdec n "phosphore acebḥan" yettwasenfel (yettwabeddel) s "uzegwaɣ" iwakken ad sseḥbibren ɣef ixeddamen marra.
+
+Ttawil n Radium daɣen yella d sebba n waṭṭan n Rekku uɣesmar yufat-id i tikelt tamezwarut Dr H.S. Martland asegwas 1924 Radium jaw (Aɣusmar n radium), imi tixeddamin n tarmisin yesseqdacen taklut n radium cetkant ɣef uqraḥ n tuɣmas d uɣesmar, ak-d lǧarḥ deg uksum n tuɣmas, kra isegwasen akkin at id eḍfer Tigẓelt ẓẓayen n yiɣes (Ostéosarcome).
+
+Isegwasen agi ineggura, aṭṭan agi yarna ɣur imdanen isseqdacen s waṭas ttawil n "bisphosphonates" iwakken ad dawin aṭṭan n uxenzir.
+
+Imdanen yuḍnen Rekku n uɣesmar zemren ad sɛun rekku deg adif n yeɣsan nsen ig llan ttwaxenqen imi xuṣṣenAzawax Azawax
+
+Azawaɣ neɣ Azawax neɣ Uska d aydi yettidiren di tama n Tefriqt ugafa, yekka-d yisem-is seg wawal amaziɣ "Azewwaɣ" (ayen yennumken: win yettzuxun acku talmest-a n yiṭan d win irán (iḥemmlen) ad isken iman-is). yettidir deg uneẓruf ameqran n tefriqt ugafa, ɣur itargiyen deg tmura n Mali, Nnijer, Burkina fasu yakk d unẓul n Lezzayer
+
+Yella di temnaṭ n Saḥel "anẓul tefriqt ugafa" si zik, iban-d di Tuṛuft deg iseggasen n 1970. Aseggas 1981, amqun agraɣlan n teɣri n iqejjan (FCI) tga azal i y Iri Azawax.
+
+Di tdra, Aqjun-agi yella yettwaxdem i wegmer, arured ines iwulem iw ḍfer n waniren d yefrax. Ccbaḥa ines teǧǧat daɣen ad yili d aywal n tamunt.
+
+Isem "Azawax" yekk-ad seg tmaziɣt "azuwax" yellan di teqbaylit.
+
+Fsus yerna d amegraw, d aywal izemren ad yaɛzel iman-is, abeɛda ɣef ibaṛṛaniyen. ur yettqellib ara ɣef usilef. D addfut yarna d apelfaf, ilaq-as usaɣad aṣebri
+Amafag n Lien Khuong Amafag n Lien Khuong
+
+Tikubaniyin i tsawin-tserran ar unafag n Lien Khuong:
+</div class>
+Titanik Titanik
+
+RMS Tiṭanik d yiwen n lbabuṛ Abriṭani (agyizi)n White Star Line, yebna s tmenna n Joseph Bruce Ismay asegwas 1907 sɣur Thomas Andrews i ixedmen ɣer Harland & Wolff. Lebni n lbabuṛ tebda aseggas 1909 di temdint n Belfast, tekfa aseggas 1912.
+
+D netta i d lbabuṛ ameqqṛan yettwabnan di ddunit merra, yettekka ɣer classe Olympik akked sin seg sister-ships, Olympik d Briṭanik.
+
+Di tufɣa-yines tamezwarut, tiṭanik, yewwet yiwen weẓru n wegris ass n 14 Yebrir 1912 ɣef 23 h 40, yeɣreq azekkayen 15 Yebrir 2 h 20 di Terre-Neuve.Thanh Hoa Thanh Hoa
+
+Thanh Hoa d tamanaɣt n tmurt n Thanh Hoa, Vietnam. Tettwassen s isem n temdint n tafat.
+Polandball Polandball
+
+Polandball anamek: ddabex apuluni, yettwasnen daɣen s yisem n countryball, d agbur i d-yessukkus umseqdac internet meme i d-yekkan seg /int/ board n German imageboard Krautchan.net agraw n tugniwin di tmurt talmanit, taggara n useggas 2009. meme agi yettban-d deg aṭas n taffiwin n isefka. Aɣanib n tesfift tunuɣt yezmer asensemmi Polandball (ɣas akken ulac tapulunit deg unuɣen imrayen)
+
+Polandball yewwi-d aẓar-is di ɣuct 2009 "cyberwar": ṭrad iẓeḍwan ger imseqdacen n internet ipuluniyen d wid umaḍan merra deg asmel drawball.com, asmelweb i yefkan ahlis abeckil yeǧǧan imseqdacen ad unuɣen ayen isen yehwan, tikti tusa-d anda ad sleqdeḍ asenǧaq n tmurt Tapulunit ɣer ddabex, ayen yeǧǧan agimen n yipuluniyen ad arzun ɣer internet iwakken ad ṭfen unuɣ s yini acebḥan, s ufella-s azegwaɣ, yura deg-s POLSKA di tlemmast.
+
+Krautchan.net d "imageboard" tafelwit tugniwin s tmeslayt talmanit anida /INT/ board (tafelwit) rezzun-d ɣur-s wid yettmeslayen s tegyizit. Tazwara n Polandball meme d ayla n Falco, yiwen wegyizi n /INT/, i d-yesnulfan di Ctamber 2009 meme isseqdacen MS Paint s tɣara n tsartit i troll Wojak, yiwen upuluni di tfelwit (board) nni yettekka s yiwet n tegyizit ixewḍen, sin akkin irusiyen sunɣen Polandball s wunuɣen imrayen.
+
+Iswi n Pollandball, d asegnes n tmurt tapulunit d umezruy-ines, assaɣen ines d tmura nniḍen. Meme agi yewwi-d taɣerfant seg-mi id ɣli Ṛṛupyan tmurt tapulunit anda yemmut uselway n tigduda Lech Kaczyński, tamurt tapulunit tettwaru s uzegwaɣ yef ucebḥan, d asenǧaq tmurt s-uzyag, di tagara n unuɣ amray tamurt tettru.
+
+Kra n wunuɣen Polland ball iswi nsen d akken tamurt n arruss tezmer ad tali s igenni ma d Tapulunt ur tezmir ara, yiwen s unuɣen imrayen Pollandball yettwasnen yemmaled d akken amaḍal ad tyewwet yiwen weẓru ameqqṛan. Timura yark izemren iyiman-nsent ad rewlent s igenni ad ttezzin ɣef umaḍal (akal), di tagara n unuɣ amray Tapulunt teqqimed deg akal tettru.
+
+Pollandball yezmer daɣen ad yili n tmura nniḍen umaḍan, ɣas akken isem-nsent yeqqim d Pollandball, neɣ country ball s unamek n ddabex tmura, aṭas n tmura i wum-id snulfan Pollandball nsent Marikan, Serbya,Kaṭlunya,Singapur ... d wiyaḍ, am akken tzemrem ad twalim di tugna yagi, ula d Tamazɣa tesɛa Pollandball ines.
+
+Meryl Streep Meryl Streep
+
+Mary Louise Streep, tlul ass n 22 yunyu 1949 di Summit awanak n New Jesey, d tasnegbart tamarikanit. ɣer waṭas n medden, d Meryl i d tasnebgart tameqqṛant di tallit tafrart, yella-d yisem-is azal n 17 n tikal deg arazen "Oscars" zdat Katharine Hepburn, tebwi araz agi 3 kṛaḍ n tikal, isegwasen n 1980,1983 d 2012.
+
+Deg asarug, deg umezgun d tiliẓri turar aṭas n temliltin, am di "Kramer and Kramer" aseggas n 1979 anda turar d tameṭṭut tamezwarut n Dustin Hoffman, asaru i tt-yeǧǧan ad tawi "Oscar" n temlilt wis sin iten-t yifen. Timliltin ines nniḍen igarzen d tid n Out of Africa, anda tella d tamyarut Karen Blixen ɣer tama n Robert Redford d "Sophie's Choice" (sɣuṛ ungal n William Styron) anda turar tameṭṭut ijaṛben imḍiqen n lmut di ṭṛad n umaḍal tisnat, ayen itt yeǧǧan tikelt-a ad tawi Oscar n tesnegbart usegwas 1983.
+
+Deg usaru "A Cry in the Dark" n Fred Cepisi tewwi araz di cannes/fṛansa asegwas n 1989. Turar d tameṭṭut n wexxam i yeɣlin di tayri ɣef yiwen umseknaw deg usaru "The Bridges of Madison County" ɣer tama n Clint Eastwood aseggas 1995, daɣen deg usaru "The Hours" ɣer tama n Nicole Kidman d Julianne Moore, iseggasen agi ineggura turar deg "The Devil Wears Prada" aked "Mamma Mia" !. Asegwas n 2012 tebwi araz n "Oscar" tesnebgart useggas i tikkelt tis kṛaḍ ɣef usaru "La Dame de fer" anda turar taneɣlaft tamezwarut n Lengliz Margaret Taččer
+Marilyn Monroe Marilyn Monroe
+
+Marilyn Monroe, s yisem-is unṣib Norma Jeane Mortenson neɣ Norma Jeane Baker amaken yella di Nekwa-s, d tasnebgart d tacennayt tamarikanit, ilulen ass n umenzu n yunyu 1926 deg Los Angels awanak n Kalifornia, yemmuten ass n 5 ɣuct aseggas n 1962 di temdint-a.
+
+Tella di tazwara tqeddec am teknart, seg-mi i tt-iwala Howard Hughes is-yefkan tagnitt ad tezmel agatu akked 20th Centrury Fox aseggas 1947. Di tezwara n isegwasen 50 tuɣal d itri n Hollywood/Hulywuud, isura it urar yesɛan tarennawet tameqqṛant d wid n "Gentlemen Prefer Blondes", "The Seven Year Itch" d "Some Like It Hot" i tt-yeǧǧan ad tawi arazn Golden Globe n tesnabgart usegwas n 1960.
+
+Ɣas akken tettwasen nezzah, maca tudert-is tuqel d abrir, ma ad amecwaṛ-ines yeǧǧa-tt yal ass ur tesgiwen. Ar assa amentel n lmut ines mazal fella-s awal: tenɣa iman-is s yisufar neɣ d amenɣi aserti.
+
+Aseggas n 1999 "American Film Institute" rran-tt d tasnebgart tameqqṛant tis setta tamarikanit n yal tallit deg ubellez "AFI's 100 Years ... 100 stars" AFI's 100 isegwasen ... 100 yitran.
+Richard Dean Anderson Richard Dean Anderson
+
+Richard Dean Anderson Ricaṛ Din Anderṣun d asnebgar amarikani, ilul ass n 23 Yennayer aseggas 1950 di Minneapolis, awanak n Minnesota. Yettwassen aladɣa ɣef wurar-ines deg imazraren n tiliẓri MacGyver (1985-1994) d win n Stargate SG-1 (Tabwurt s itran) ger (1997-2007).
+Phan Thiet Phan Thiet
+
+Phan Thiet d tamanaɣt n tmurt n Phan Thiet, Vietnam. Tettwassen s isem n temdint n tafat.
+Buôn Ma Thuột Buôn Ma Thuột
+
+Tamanaɣt n tmurt n Buon Ma Thuot, Vietnam. Tettwassen s yisem n temdint n lqehwa.
+Albert Einstein Albert Einstein
+
+"Albert Einstein" d ussnan asengam amezray yellan di tazwara d almani, sinna mebla tamurt (1896), d aswisit (1901), sinna di tagara yarna-d taɣlent tamarikanit (1940). Ilul ass n 14 Meɣres 1879 di temdint n Ulm, Wutemberg, yemmut ass n 18 Yebrir 1955 di Prinston, New Jersey.
+
+Yessufeɣ-d tiẓrit-is ɣef timasseɣt takreft di 1905 akk tiẓritis af timasseɣt tumat di 1915.
+Hande Yener Hande Yener
+
+Hande Yener isem-is unṣib d Makbule Hande Özyener (tlul ass 12 yennayer 1973 di Istambul) tacennayt n pop.
+Carl Friedrich Gauss Carl Friedrich Gauss
+
+Carl Friedrich Gauss neɣ (Yettwabdar: "Kaɣl Fxedxic Gawss", Imesli: , ilul ass n 30 Yebrir aseggas n 1777 di Brunswick, yemmut ass n 23 di Fuṛaṛ useggas n 1855 di Guttingen. Yella d amusnak ameqqran, d amesnallum u d amussnagamaw. Ila (Yesɛa) tasmedna tameqqrant, yewwi-d tummutin yesɛan azal s waṭas di tusniwin agi i d-nebder (nuder) qqaren-as "Ageldun n tusnakt", D yiwen seg imusnaken imeqqranen n yal akud.
+
+Taɣara n leqdic ines d tin yesɛan azal meqqren ger aziten-ines, seg useggas 1856, agellid n Hanovre yexdem iderimen s tugna n Gauss ɣef udem nsent, yura fellas "Mathematicorum Principi : Ageldun n tusnakt" s tlatinit. Gauss yessufɣed ala ammur amecṭuḥ n leqdic ines, alarmi d aseggas n 1898 nada i yufan yark ayen yura s umata, ayagi yeǧǧa-t ad yernu n wazal-is di tussna.
+
+C. G. Fleckeisen, Helmstadii (Helmstedt), 1799 ; 
+F. Perthes und I. H. Besser, Hamburgi (Hamburg) 1809 ; , p. 1–261.
+tasuqilt. par Edmond Dubois, éd. Arthus Bertrand, 1864 ; reprint, Jacques Gabay, 2008, ; 
+Baruch Spinoza Baruch Spinoza
+
+Baruch Spinoza, yettwassen daɣen s yisem n "Bento de Espinosa" neɣ "Benedictus de Spinoza", ilul ass n 24 Wamber 1632 di Amsterdam, yemmut ass n 21 Fuṛaṛ 1677 di Den Haag. Yella d amesnagay n Tmurt n Wadda uɣur tasnezgimt tesɛa tazrirt s wazal-is ɣef waziten n tillit dgi yedder d waṭas n wid it-id-iḍefṛen.
+Tazalɣi Copley Tazalɣi Copley
+
+Tazalɣi Copley d yiwen waraz deg taɣult n tussna. D tazzlɣi yesɛan azal ameqṛan sɣuṛ Royal Society (Londres), d nettat id taqbuṛt ark, tellas i tikkelt tamenzut aseggas n 1731.
+Tazalɣi-yagi tennulfa-d seg-mi i yefka Mass Godfrey Copley i Royal Society 100 £ aseggas n 1709, Mass Copley d yiwen umaṛkanti yesɛan tamurt di Doncaster deg unẓul n Yorkshire, yuɣal y ufren d amaslad n tmetti-yagi aseggas n 1691.
+
+D yiwet ger mraw n tzalɣiwin it ttak Royal Society, kra yuɣal semmet. Tazalɣi Copley ttaken-tt di tsengama, d Tussna n tudert.Ben Tre Ben Tre
+
+Tamanaɣt n tmurt n Ben Tre, Vietnam. Tettwassen s isem n temdint n tafat.
+Mulay Muḥend (Muḥend n Ɛabdel Krim Lxeṭṭabi) Mulay Muḥend (Muḥend n Ɛabdel Krim Lxeṭṭabi)
+
+Mulay Muḥend d anzbay amaziɣ d amerruki si temnaṭ n Arif. D aselway n tgduda n arif gar useggwas 1921 d 1926. imnaɣ akked Spenyul d Fransa. g-inas assaɣ n izem n Arrif g-int d agledun imjahden yugi ad yili d agellid n arif. Mamek yugi ad yilli d lxalif n inselmen.
+
+Ilul deg tamdint n Ajdir deg useggwas n 1882. Yelmed af ufus n baba-s ikemmel tiɣri-s g uɣerbaz n ṣfarin d craṭin di Fas. Yuɣal-d ɣer Fas d akabar seg baba-s ssulṭan Ɛebdelaḥfiḍ iwsisfiw n umenɣi akked Bu Teɣyult ( bu ḥmara)
+
+Isbedd Mulay Muḥend deg wass n 18 Ctember 1921. Tagduda taɛṣrit s Dustur D lbrlaman. Asmi ggin Imezdaɣ n Arrif tagrawla mgal Spenyul.Tamaneɣt-is Ajdir Tadrimt nns Rifan Tafugla Tanamurt ass n 18 Ctamber . Di tira s Taɛṛabt semman-as « Jumhuria Errifiya », ma Irifiyen ddmen awal nni n Spenyul, rran-t d assaɣ ( isem) Amaziɣ: « Ribublik n Arif ». 
+Ur illa imir nni wawal n « ribublik » di Tmaziɣt Tarifit, awalnni nessen ass-a : tgduda n arif .
+
+Awal-nni s timmad-si ifra tamsalt tameqrant. Ur tella d tagelda i –id-ilulen seg idurar n Arrif. Abrid ibṛez, yenjeṛ yesuffeɣ: tegduda n Arrif i-d-ilulen seg iẓuran n tmurt, si teqbilin akken llant. Adabu i-d ilulen yusa-d si teqbilin n tmurt, seg iɣerman akked tzeɣwa n tmurt n Arrif.
+
+Deg useggwas 1926 ar 1947 yenfa Muḥend Abdelkrim ɣer tegzirt n La Réunion, azal n 9000 km akkin deg ilel n Lhend. 
+Isuter acḥal n tikkal ḥuma. ad yeffeɣ si tmurt-nni.
+
+Yemmut Mulay Muḥend di Taqahirt (Maṣer) deg wass n 6 Yebrir 1963. Yemḍel di temeqrebt n Ccuhada dinna. 
+Genzat Genzat
+
+Genzat tella d yiwet taɣiwant i tezga-d deg ugafa n ugezdu n Sṭif. Imezdaɣ-ines d Iqbayliyen, nemgal tiɣiwanin am Bugɛa, mazal-iten ittmeslayen gar-asen s teqbyalit kan ar ass-ayi. 
+
+Tazazat Tazazat
+
+Tazazat d isem ay ssexdamen i snat n tutlayin yettemcabin mliḥ, ttmeslayen-tent wazal n 3 n yimelyunen n yemdanen di tama-nni n Asya umi qqaren Tturk.
+Hindi Zahṛa Hindi Zahṛa
+
+Hindi Zahṛa d yiwet n tcennayt Tamaziɣt tameqqṛant, tlul aseggas n 1979 di Xuribga Tamurt n Meṛṛuk, tettidir di Fṛansa seg useggas 1993, tcennu s tutlayt Taglizit d Tmaziɣt/Tacelḥit.
+
+Aseggas n 2010 tessufeɣ-d Hindi Zahṛa aḍebsi-yines amenzu "Handmade" i tt-yeǧǧan ad tawi araz Constantin 12 Nunber 2010, .
+Ass n tza di Fuṛaṛ useggas 2011 tewwi ayen umi qqaren "Victoires de la musique" Aḍebsi i d-yufraren di Cna Umaḍal "Handmade".
+
+
+Amawal Amawal
+
+Amawal d adlis anida llan awalen n tutlayt neɣ taɣult n urmud, awalen ttmizwaren-d akken i-d-mmizwaren isekkilen ugemmay, yal yiwen yid-s tabadut, asegzi d unamek ines.
+
+llan aṭas imawalen di yal amḍiq n tussna, dɣa ad naf ula s teqbaylit neɣ s tmaziɣt s-umata, aṭas n imawalen i-d-yufraren, gar-asen:
+
+"AMAWAL" sɣuṛ "Mulud Mɛemmri" 
+"AMAWAL N TSENSELKIMT" (Tafṛansist - Taglizit - Tamaziɣt) sɣuṛ "Samiya Sɛad-Buzefran" 
+"ISSIN", AMAWAL n teqbaylit s teqbaylit sɣur "Kamal Buɛemara" 
+"Iɣsan s teqbaylit" sɣur "Mohamed Zakaria BENRAMDANE"
+"Amawal Lexique Des Sciences de La Terre" sɣur "Yidir ḤMED ZAYED"
+Tinariwen Tinariwen
+
+Tinariwen (s ttergit neɣ tmaceq : « ⵜⵏⵔⵓⵏ » d asget n: Tenere) d yiwet n tarbaɛt icennayen i d-yusan seg tmurt n Tessalit di Azawad deg Adrar n Ifuɣas .
+
+Ccna nsen, "assuf", tewwi-d cbaha ɣer blues, d rock d ccna itargiyen tamensayt. D tin i wumi neqqaṛ tura "blues tuareg", axaṭar am "blues" ccna yagi yekka-d seg "assuf" d aṭṭan yuɣen imaziɣen n kel tamaceq deg akal nsen.
+
+Llan sin iqaṛṛay deg tarbaɛt agi, yiwen Ibrahim ag Alhabib « Abraybone » wayeḍ d Alhousseini ag Abdoulahi « Abdallah », maca ilaq an wali tinariwen am akken d tawacult tameqṛant, d tiddukla tadelsant.
+Llan daɣen aṭas inaẓuren id yettasen ɣer tarbaɛt n tinariwen, am Mohamed ag Itlal i wumi qqaren «Ajapuni».
+
+Tlul-d tarbaɛt agi aseggas n 1982, deg yiwet n tfaska i d-yellan di temdint n lezzayer, sɣur Ibrahim ag Alhabib, Alhassan ag Touhami d-Intayaden, "Taɣreft Tinariwen", wigi llan d icennayen, maca daɣen d igrawliyen yennuɣen ɣef uzref n wegdud atergi amaziɣnsen iseggasen nni 1990, s ccna-nsen, arran-d asirem i watmaten nsen kel tamaceq.
+
+Di tezwara, kṛad agi n yemdukal llan tturaren s snitra tasfeldant, sinna mmugren-d inaẓuren n "voix du Hoggar" is yefkan i Ibrahim snitra y ines elektrik tamezwarut. Di temdint n Tamenṛaset, gan kra tfaskiwin yidsen Kṛad n tilawin, sinna di tmurt n Libya mmugren-d Mohamed ag Itlal, «Ajapuni» di lawan nni id bda tagrawla nni isegwasen n 1990.
+
+
+
+
+Tamikrest Tamikrest
+
+Tamikrest (s ttergit, s teqbaylit: "tikarrist", s tfṛansist: "noeud, coalition") d yiwet n tarbaɛt n Ccna tafriqt, pop d rock utrim, cennun s tutlayt Tamacaqt. Win yettarun tizlitin n tarbaɛt d Usman Ag Musa (aqarru n tarbaɛt)
+
+Ccna n tarbaɛt yesseqdac aṭas n snitrat d wallalen nniḍen.
+
+Imasladen n tarbaɛt Tamikrest sɛan 20 isegwasen ass m-id tennulfa tarbaɛt asegwas n 2006, kren-d di tama n Kidal Aẓawad, akken id kren deg uɣarbaz n "Les enfants de l´Adra" mi llan d-igardan. Aɣarbaz id sizref tdukliwin turufin di Tinẓawaṭin (tamdint tamecṭuḥt deg Tenere) anida lemden aẓawan. Di temẓi nsen, ddren tallit nni n tegrawla itargiyen isegwasen n 1990, aṭas ig uɣalen d-igujilen acku ssutren timanit n weɣref atargi
+
+Mi llan d-imeẓyanen, tturaren tizlatin Kel Tamaceq s-umata, neɣ tidak n tarbaɛt Tinariwen yessexlaḍen seg-imiren Ccna amensay d win utrim (abeṛṛani).
+Assa, nezmer ad naf di Cna n Tamikrest ugar n tezrirt s-ɣuṛ icennayen imeqṛanen am: Jimi Hendrix, Bob Marley, Pink Floyd et Mark Knopfler; ayen i-ten yeǧǧan ad maggren tarbaɛt Usṭralu-tamarikanit Dirtmusic di tfaska n Ccna atargi di tenere asegwas n 2008, di tɣiwant n Essakan, azal n 70 Agimkat seg Ṭumbuktu, ayagi yark yeǧǧa Tamikrest ad uraren deg takalast t-isnat n Dirtmusic asegwas n 2010 id skelsen di Bamako, ussan ni id teffaɣ takalast n-sen "Adaɣ" id yefres Kris Ekman.
+
+Lla Lgida Tamuqrant Lla Lgida Tamuqrant
+
+Lla Lǧida Tamuqrant (isem-is aḥeqqani : Hini Merbouha), d yiwet n tcennayt tamuqrant n Teqbaylit, seg tmezwura yerẓan asalu ar ccna ar tama n Lla Yamina, Lla Wenissa, Lla Zina Tawertilanit. 
+
+Tlul deg temnaṭ n udrar n Gergur, deg Sṭif deg 1912. Isem ines n tidett d Merbuḥa Ḥini. Tedder aṭas n lweqt deg Lezzayer Tamanaɣt.
+
+Ger tuɣac-ines yettwassnen aṭas, daɣen yettwaskelsen deg Umaṭṭaf n teqabylit (radio Berthozène, ELAK). 
+
+Teccna tikelt ak tamezwarut deg umezruy n ccna n leqbayel ak d wergaz. Tɣenna akw d Ccix Nuṛdin tizlitt mucaɛen umi qqaren : Serḥɣa-s i bu laɛyun.
+
+Tella seg tullawin temenza yeccnan deg rradyu aladɣa deg nnuba n lxalat ar tama n Cabḥa, Lla Yamina, Lla Zina, Crifa, Ǧamila, Wrida, 
+
+
+
+
+
+
+
+
+
+
+
+
+Iwaccu id cceyɛed ɣuri, a ṛbaɛ ajdid axuxi,
+
+Asgi sliɣ ad assed, aqli theyiɣ lhenni,
+
+Amek ara jjaɣ tarumit, s zzin-is tseḥriyi,
+Iwaccu id cceyɛad ɣuri, a ṛbaɛ ajdid ayawa, 
+
+Asgi sliɣ ad assed, aqli theyiɣ lfeṭṭa, 
+
+Amek ara jjaɣ tarumit, agwad rebbi, 
+
+Yarna tewwi-yi lhawa, 
+Iwaccu id cceyɛed ɣuri a ṛbaɛ ajdid aɛbbas, 
+
+Asgi sliɣ ad assed, aqli theyiɣ ameqyas, 
+
+Ulamek jjaɣ tarumit, tsehriyi d ṣṣifa-s, 
+
+Seḥriyi s drafas, 
+Iwaccu id cceyɛed ɣuri a ṛbaɛ ajdid lemdaḥbi, 
+
+Asgi sliɣ ad assed, aqli theyiɣ abidi, 
+
+Amek ara jjaɣ tarumit, tenak ur yettaja waḥdi, 
+
+Ay agetum n remman, 
+
+N remman,
+
+Ṛuḥ a lwali di laman, 
+
+Di laman,
+
+Uffiɣ snat n teqcicit, 
+
+Grent iɣallen i deffa, 
+
+Deg ssifa am tin am tin,
+
+Mxallafent deg lebsa, 
+
+Ay agetum n rreman,
+
+Ṛṛuḥ a lwali di laman,
+Uffiɣ snat n teqcicin, 
+
+Grent iɣallen i tebburt, 
+
+G ssifa am tin am tin, 
+
+Mxallafent deg qendurt, 
+
+Lɛeslama-k a xxuya, 
+
+A lbaz id rebba tsekkurt, 
+Novak Đoković Novak Đoković
+
+Novak Đoković d amyurar n waddal n Tennis tmurt Serbi, ilul ass n 22 mayyu 1987 di temdint n Belgrad.
+Yebda yetturar d terbaɛt tameqqṛant aseggas n 2003, yeḥrez amḍiq amenzu n ubellez n ATP azal n 90 imalas yemseḍfaren. 
+
+Yeḥrez ar assa 45 izwilen, gar-asen 10 imeqqṛanen (7 n Grand Chelems d 3 teqbuct n Masters) d 19 n Masters 1000. Đoković yeḥrez azwel n Melbourne di Ustralya iseggasen (2008, 2011, 2012, 2013), win n Wimbledon di tmurt n Lengliz (2011, 2014), win n Flushing Meadows di Timura Yedduklen n Marikan (2011).
+
+Ilul Novak Đoković ass n 22 mayyu 1987 di temdint n Belgrad, yemma-s, Dijana , ma d baba-s, Srdjan. 
+Tura Novak yettidir di Monte Carlo, tama n Monaco, netta d tmeṭṭut-is Jelena.
+
+Di temẓi-s Novak Đoković yella yetturar daɣen ddabax uḍar, yella yeẓweṛ s waṭas, maca d addal n Tennis i yeffren mi yella di Tam (8) iseggasen di lɛemṛ-is, ɣas akken mazal-it yeṭṭafaṛ ar assa u yḥemmel aṭas tarbaɛt n ddabax uḍar n FK Crvena Zvezda.
+
+Novak Đoković yeḥrez ar assa 45 azwilen deg ufrari d yiwen kan deg uslig irgazen. Yewwi azwel-ines amenzu aseggas n 2006, di dduṛt n Amersfort (indoor). Seg imir-nni yewwi 7 n t dduṛtin n Grand Slam. Yerna taqbuct n "Masters Cup" (2008, 2012, 2013) d wazal n 19 azwilen n "Masters 1000".
+
+Facebook Facebook
+
+Facebook d yiwen uzeṭṭa n tmetti deg internet yettaǧǧan yal amdan yesɛan amiḍan ad yesnulfu amaɣnu n useqdac, deg-s ad iceggeɛ tilɣa izemren ad walin w'i d-is-yehwan, akken yextaṛ. yezmer ad iceggeɛ tilɣa ama d: (tugniwin, iḍrisen, imarrazen, atg.) ad yesnulfu isebtaren, igrawen iwakken ad yeǧǧ wiyaḍ ad issinen tisuddutin, tiṛmisin, d wayen yark fayeg yettnaḍaḥ. Deg isebtaren, d igrawen ayen yark i yebḍa umseqdac ad twalin imseqdacen wiyaḍ maci am ma yili s umaɣnu-yines.Tagduda n Arrif Tagduda n Arrif
+
+Awal iffeɣ akkin i tlisa n Arif, akkin i Taferka, yuɣa timura n Uôupa akked wagmuv ineslem. Tanekra nni n war isem, di kra waguren tbeddel udem. Deg Ajdir, di tazwara n Fuṛaṛ 1923 , tuɣal d « Re publica del Rif » 129 , Tagduda n Arif. Di tira s teɛrabt semman-as « Jumhuria Errifiya », ma d Irifiyen ddmen awal nni n Sbanya, rran-t d isem Amaziɣ : « Ri bublik n Arif ». Ur illa imir nni wawal n « ribublik » di Tmaziɣ t Tarifit, awal nni nessen ass-a : Tagduda n Arif . Awal nni s timmad-si ifra tamsalt tameqrant. Ur tella d tagelda i – id-ilulen seg idurar n Arif. Abrid ibôez, yenjeô yesuffeɣ : tagduda n Arif i-d-ilulen seg iéuran n tmurt, si teqbilin akken llant. Adabu i-dilulen
+
+yusa-d si teqbilin n tmurt, seg i$erman akked tzeɣwa n tmurt Tarifit. Iéuran-is n tmurt, ixfawen-is n tmurt. Tajmaât n tnekra tga tigejda i yuɣ en aéaô. Aqerru-s d Muêend Abdelkrim, ur illa d agellid, ur illa d Mulay i d-yusan si Mekka, ur illa d nbi i diffɣ en seg icuqar n wedrar n Arif. Muêend Abdelkrim n AT Xeîîab,
+
+n
+
+At Yusef U Aâli, d yiwen seg watmaten nsen. Tigejda n Ri publik nni fkant-d udem n webrid uɣ en Irifiyen . Tajmaât nTimeẓra n wemyag Timeẓra n wemyag
+
+Amyag [1] deg tmaziɣt ifetti kan i lmend n wudmawen [2] d tmeẓra [3]. Nezmer ad nefren snat n tmeẓra tigejdanin : yiwet d tummidt, temmal tigawt ifuken, yemmden. Tayeḍ, d timeẓra ur tummidt i yemmalen tigawt urɛad ifuken, a-tt-an ala tḍerru, maca mazal ur temmid ara.
+
+Tigawt-a tezmer ad teḍru deg yizri, imir-a neɣ deg yimal. S wawalen imerna n wakud i nezmer ad nẓer melmi i teḍra neɣ ara teḍru tigawt.
+Tamawalt
+
+[1] Verbe
+
+[2] Personne
+
+[3] Mode, AspectMsila Msila
+
+Msila neɣ Tamsilt s teqabylit tamzikt, d tamdint id yezgan di tlemmast n Dzayer. Ɣer-s ugar n 156 647 imezdaɣen di 2008.
+Tipaza Tipaza
+
+Tipaza neɣ Bazar s Hcenwit, tella d tamdint di tmurt n Dzayer, tamudi 50 km ar utaram n Dzayer tamaneɣt. Tela (Tesɛa) ugar n 25.000 imezdaɣen deg useggas n 2008. Tamnaṭ-ines d tawalmaziɣt maca imezdaɣen n temdint bedden ttmeslayen s tmazɣit acku n iberraniyen i yellan di temdint, usan-d si temnaḍin tiɛarbin s wawal.
+Montreal Montreal
+
+Montreal (isem unṣib s tefrensist Montréal, s Teglizt Montreal) d tamdint tameqqrant ugar n timdinin tiyaḍ n temnaṭ n Kebek (Kanada), tamdint tis snat n umaḍal afrensisawal, d tamdint tis snat deg imezdaɣ d texxutert n tmurt n Kanada deffir Toronto. Taɣzut aɣreman n Montreal tela (tesɛa) ass-a ugarn 3,6 imelyan n imezdaɣ. Tezga-d deg tegizrt n Montreal ar ugersif n wasif n Saint-Laurent d wasif n Wuṭṭawen (Rivière des Outaouais), di 246 km ar unẓul-ugmuḍ si temdint n Kebek, tamaneɣt n temnaṭ n Kebek, ar 202 km seg Uṭṭawa, tamaneɣt n tmurt n Kanada.
+Nnil Nnil
+
+Asif n Nnil d asif i ɣezzifen akk di Tafriqt. Tuɣzi-s d ugar n 6,500 km. Aɣbalu-nes yezga-d seg ugelmin n Victoria di tmurt n Uganda. Ideggeṛ iman-is di Maṣer deg yilel Agrakal. 
+At Yeɛla At Yeɛla
+
+At Yeɛla d yiwet taqbilt taqbaylit, tezga-d ar unẓul-ugmuḍ di tmurt n leqbayel deg tillas n yigezda n Bgayet, Sṭif d Burǧ Bu Ɛririǧ. 
+Kenya Kenya
+
+Kenya ( /ˈkɛnjə/ or /ˈkiːnjə/), isem unṣib d Tagduda n Kenya, d yiwen n tmurt di tefriqt tanegmuḍt. Akwd agaraw Ahendi di wenẓul-ugmuḍ, ɣur-es tilas d Tenzanya di wenẓul, Uganda deg utaram, Sudan n Wenẓul ugafa-utaram-nes, d Itiyyopia deg ugafa d Ṣumal g ugafa-ugmuḍ. Kenya ɣur-s tasna n 580,000 km2, ugar n 43 imelyan imzdaɣ.Semmen tamurt-a f Udrar n Kenya. Tamaneɣt-is d tamdint n Nairobi.
+Yesɛed Ṛebṛab Yesɛed Ṛebṛab
+
+Yesɛed Ṛebṛab s tṛumit Issad Rebrab, d aṛmas aqbayli, d anemhal PDG n ugraw amguran Cevital; yiwet si termisin timeqṛanin di tefriqt isseqdacen azal n 12 000 imdanen (ixeddamen).
+
+Ilul Yesɛed Ṛebṛab ass n 8 mayyu 1944 di tgemmunt azzuz , At Dwala deg tmurt n leqbayel.
+Faḍma At Menṣur Faḍma At Menṣur
+
+Faḍma At Menṣur neɣ Faḍma At Menṣur Ɛemruc, Faḍma At Menṣur Ɛemṛuc yal tamnaḍt taqbaylit akken id tessenṭaq d tameṭṭut taqbaylit tamenzut i yuran adlis s tfṛansist iwumi tsemma tamacahutt n tudert-iw "Histoire de ma vie" deg useggas 1946 di Ṛades i d-yeffɣen deg useggas 1968, aseggas mbeɛd tamettant-is. 
+
+Tazwert n udlis-agi yura-tt Vincent Monteil akked Kateb Yasin.
+
+D adlis ideg d-teḥka tudert-is, tin n yemma-s d tin n warraw-is, tudert-is seg wasmi tella di Tizi Hibel armi d asmi tedda d tislit ɣer Yiɣil Ɛli d yinig-is ɣer Rades di Tunes d yinig-is wis sin ɣer Bretagne (Breṭany]] di tmurt n Fṛansa. Faḍma d tayemmat n sin n yemyura, inaẓuren imeqqranen i d-yeğğan isem-nsen deg tsekla tafransist d yedles amaziɣ, Jean Lmuhub Ɛemṛuc d Marie Louiz Ṭawes Ɛemṛuc.
+
+Faḍma At Mensur tlul deg useggas 1883 di Tizi Hibel, d taɣtest n wagul tga yemma-s mi qqaren Ɛayni acku tesɛa-tt-id mbaɛd mi teğğel s wacḥal yiseggasen mebla nnaɛ n zzwağ. Di taddart-is, tenḥaf aṭas, timetti n yimiren ur tt-tqal ara sawalen-as taqcict n lɛaṛ, ɣef waya wwint-tt temrabḍin Iṛumyen yellan xedment di sbiṭar n Micli sekrent-tt-id, seɣrent-tt, dɣa mi temmed, tewweḍ 16 yiseggasen, fkant-as amḍiq gar-asent, txeddem dinna ula d nettat di sbiṭar, di lawan-nni dɣa i tt-yessen Belqasem At Ɛemruc i d wi tezweğ deg useggas 1899.
+
+Mbeɛd zzwağ-is, Faḍma tban-as-d tudert-nniḍen, tufa win i d wi tecrek lferḥ-is d lqerḥ-is. Belqasem yella-yas d ayen akk tt-ixuṣṣen di tudert-is, yefka-yas tayri, leḥnana, tagmat, yerra-yas-d taflest d laman deg yiman-is. Tedder kra yiseggasen gar yiɛeggalen n twacult n urgaz-is syen unagen ɣer Tunes. Dinna, dɣa i tesɛedda tugget n yiseggasen n tudert-is, tessekcem arraw-is ɣer uɣerbaz, tefka-yasen ayen akk ilaqen akken ad ilin gar wid ifazen, ufraren-d s tegzi-nsen, s tmusni-nsen kesben, ḥellan-d imeḍqan ɛlayen.
+
+Faḍma d Belqasem, d ddin amasiḥi i ḍefren. Ɣef waya ad naf yal yiwen deg tarwa-nsen fkan-as sin n yismawen, yiwen d isem amasiḥi, wayeḍ d isem amaziɣ acku Faḍma ɣas tebɛed ɣef wakal n lejdud-is maca teṭṭef deg yiẓuran-is, s wakka arraw-is ẓṛan ansi d-frurin. Dinna di Tunes, tezga tettcewwiq izlan n teqbaylit, tettawi-d timucuha n tgemmi n lejdud-is i dderya-s, tessaweḍ tefka-yasen idles-is, idles tuwret ula d nettat ɣef yemma-s. Faḍma iḥuza-tt aṭas yinig, ɣef waya tenna : "zgiɣ sarameɣ, yiwen n wass ad iliɣ di tmurt-iw, di tlemmast n taddart-iw, gar lejdud-iw, d wid d wi ttmeslayeɣ s yiwet n tutlayt, wid d wi zdiɣ yiwet n tmuɣli, yiwen n yiman neɣ rruḥ n tlelli, n tdukli d tmunent, d rruḥ n Yugurten". Deg wakken tfud, neɣ tḥemmel taqbaylit-is, tessaweḍ armi tettali ɣer sufella n tɣurfett akken ad tessemḥas i yemsebriden yettɛeddayen zdat uxxam-is i d-yezgan deg ubrid ameqqran imi ara ttmeslayen s tcelḥit imi d tantala n tutlayt tmaziɣt yettcabin aṭas ɣer tantala taqbaylit.
+Faḍma d adrar n ssber acku zyada ɣef lḥif i tt-iḥuzan di temẓi-is, rnu lɣerba i tt-yesbeɛden ɣef wakal-is, terna-d tmettant yettawin arraw-is yiwen yiwen, d urgaz-is Belqasem, tewwet ssiɛqa di tudert-is imi tezwer akk tawacult-is, d ussan irẓaganen i tessegra ala Ṭawes i s-d-yegran, tin i d wi tezdi lqerḥ-is.
+Faḍma ur tunif ara i yir tudert tesɛedda d wussan i tedder di tmurt n Leqbayel ad ten-tɣum tatut. Ayen i d-teğğa d agerruj, ɣur-s aẓar n tmedyazt d tẓuri. Ass-a, teqqim-d d azamul n tmeṭṭut taqbaylit timinigt s tesreṭ tamasiḥit yefkan i warra-is ttrebga izaden, i ten-id-yessufɣen d aggagen n yal ukud di yal amkan.
+Temmut Faḍma di Sbiṭar n la Bretagne di tmurt n Fransa deg useggas 1967.
+
+Strassburg Strassburg
+
+Strasbourg (susru ), ' (susru ) s Talsassit akked ' s talmanit, d tamdint tezga-d deg ugmuḍ n Franṣa af iri azelmaḍ n wasif n Rhein. D tamaneɣt n temnaḍt Elsass d département n Bas-Rhin. Strassburg d asutel n Aseqqamu n Turuft seg 1949, du Amni Urufi si 1992 d Tasenbert Turufit n Izerfan n Wemdan di Leqṣer n Inzerfan n Wemdan si 1998, semmen-as tamaneɣt turufit. 
+
+S imezdaɣ-ines, Strassburg d tamdint tamezwarut n Franṣa Tanegmuḍt d tis sat s ugdud-ines. .
+Sus Sus
+
+Tasga n Sus tella yiwet gar timndaḍin n tamurt n Umṛṛuk, tella af utaram. D yiwet lli aṭas ittuyssan s tmallayt d tasbbabt d tayerza. Iɣerman-ines imeqqranen llan Agadir, Tarudant, Warzazat, Tiznit, Tazaggurt, Ifni, Tinɣir. 
+Lɛamalat-ines Agadir Id-Aw-Tanan, Inezggan-Ayt Mellul,Actuken, Ayt Baha, tili tsggayad f 70,880 km². Yili ugar n 3,113,653 n imezdaɣ.
+
+D-tamnaṭ anda qwan aṭṭas aṭṭas Yimaziɣen, tuggar timnaḍin nniḍen n Tefriqt Ugafa. Imezdaɣ-is ttemslayen "Tacelḥit". 
+
+Tamnaṭ aggi tettwasen daɣen s inazuren-is, s yiwen n ssenf n ccna d ccdaḥ umi qqaren Aḥwac. Aḥwac aggi, d ccdaḥ, d ccna, n Yimaziɣen n Sus, anda ccenun, cceṭḥen s tarbaɛt. Yella Uḥwac anda argaz d-tmeṭṭut ttekin deg-s. Llant tuddar anda yella Uḥac n yergazen d uḥwac n tefraxin (tullawin). 
+
+Tamnaṭ aggi tettwassen daɣen s yiwet n teǧra umi sawalen " Argan". S wargan skarayen "zzit", skarayen deqs n tɣawsiwin nniḍen i weccbub, i weglim, i lmakla, i sseḥa.
+At Yeznasen At Yeznasen
+
+At Iznassen llan yiwen n teqbilin i yellan deg tama tanegmuḍant n Merruk tama n tilas n Dzayer di tama n Wejda. Xas At Iznassen laṣel-nsen d Amaziɣ, tigti deg-sen ur ittmeslayen ara tamaziɣt ass-a acuk mazal (ursul) llan imdanen i yimelsayen-itt mliḥ imir-a. 
+
+=Usunen (lɛerc)=
+
+At Xaled di tama n Weḥfir ar Fezwan. Di tmurt n At Xaled, At Mrin bnan leqṣer d ameẓyan, bnan yiwet (tict) "teqṣebt" ɣef ayed ad nezmer ad neẓra igulaz-is acku medden nfan-itt am yella akka. 
+
+Iderman
+
+Iderman
+
+
+
+
+Iderman 
+
+Imeɣrawen Imeɣrawen
+
+Imeɣrawen d Imaziɣen i yekkan-d seg temwaya n Iznaten (Zénètes s tefransist). 
+
+Imeɣrawen kkan-d si wefrak n Medɣas/Madɣis (Imedɣasen), d atmaten n At Yefren d Irnayen acku ɣef wayen U Xeldun, Imeɣrawen d Ifren d Irnayen d atmaten n Meɣra (Ameɣra/Ameɣraw).
+
+Zemmuri Zemmuri
+
+Zemmuri neɣ Azemmur, d tamdint tamecṭuḥt di tewilayt n Bumerdas di tmurt n Dzayer af iri n Yillel Agrakal.
+Taza (Merruk) Taza (Merruk)
+
+Taza d yiwet n temdint tamerrukant. Tezga-d deg wanẓul n temnaṭ n Arif.
+Amsterdam Amsterdam
+
+Amsterdam d iɣrem (tamdint) tameqqrant, d tamaneɣt n Timura n Wadda. Iɣrem i zedɣen deg-s ugar n 850.000 n imezdaɣ.
+Ḥusni Mubarak Ḥusni Mubarak
+
+MahmoudMohamed abu issa محمود محمدابودعيسى) yella d aselway n Maṣer si 14 ktuber 1982 ar 11 furar 2011.Tijellabin Tijellabin
+
+Tijelabin d tamdint n Dzayer i yezgan-d ar tama utaram n [Tmurt n Leqbayel] di ugezdu n Bumerdas gar Tizi n At Ɛica d Budwaw ar 45 km n Dzayer tamaneɣt d 55km si Tizi Wezzu ar ugmuḍ. Tezga-d ar 4km n temdint n Bumerdas. 
+
+Ass-a, tigti n At Tijelabin ttmeslayen s teɛrabt gar-asen, kra n tuddar tineṣliyin kan i yettmeslayen s teqbaylit deg tɣiwant-nni. 
+
+Lla Yamina Lla Yamina
+
+Lla Yamina d tacennayt ger tmezwura n teqbaylit. Isem-is n tidett s teqbaylit At Waɛrab Farruǧa, tulled deg temnaṭ n Yiɣil Aɛli di tama n wadda n tmurt Leqbayel (Basse Kabylie) deg usegwas 1905, temmut deg Yennayer 2008. 
+
+Lla Yamina tekccem ar ccna asmi id wwed ar Lezzayer deg usegwas n 1924. Imiren di laɛmar-is urɛad ɛcrin. 
+
+Anekccum-is a Radyu n teqbaylit yellad s lemɛawna n snat tullawin. Yiwet deg sent qqaren-as Lla Tassaɛdit ( nettat d-tarumit, isem-is aḥeqani d Madame Lafages). Tissnat d Lla Wenissa, umi qqaren Qdim Ḥlima n tmurt n Umalu (Akruma n wassa). 
+
+Ccna n Lla Wenissa d Lla Yamina akk Lla Zina, yezzi kkan s icewwiqen. Ulac allalen imiren, ala tuɣac-nsent. Uyrna radyu n teqbaylit n yimiren ur tesawad-ara ar tmurt n leqbayel hacca ar tmurt n lɣurba kkan ig iteffaɣ ṣṣut-nsent.
+
+Lla Yamina nettat tigjdit n ccna n teqbaylit, ger dit yerzan asalu ar ccna n tulawin di lweqt-nni anda ccna yella amzun d lɛar. 
+
+Lla Yamina, Lla Wenissa akd Lla Zina, skerented tarbaɛt umi qqaren " Tarbaɛt n Lla Wenissa" deg segwasen nni n 30. 
+
+Sakkin arnanted ɣursent Lla Cṛifa, Lla Lǧida Tamuqrant, Cabḥa, Jamila, sekrented nnuba umi qqaren " Urar Lxalat" yuɣlen d "Nnuba Lxalat".
+
+Lla Yamina tedda di ccna alami d asmi Imdebren n Radyu (Amaṭṭaf wis ssin) bgsend ad sngren urar n lxalat f lemwaǧi n radyu. Dɣa Lla Yamina teffaɣ si radyu deg segwasen n tesɛin. 
+
+1) 
+Amer llan igad yeccfan, 
+
+D lfaḥmin yeɣran, 
+
+Nettḥibi lward nettezut, 
+
+Nneqbed tiregwa waman, 
+
+Ar leǧnan iyi rran(t), 
+
+Yefraḥ wergaz d-tameṭṭut, 
+
+Mid negra deg laxxar n zman, 
+
+Neḥdar mi-tt kksan, 
+
+Ɛudna-s bab-is yemmut, 
+
+Ma nruḥ nugad, 
+
+Ma neqqim rebbi akka ig rad.
+
+2)
+
+Ccaḥ ccaḥ a ṛṛay-iw
+
+D kecc ig bɣan,
+
+Mi teddid d win ik yehwan, 
+
+Teǧǧid imawlan
+Lla Zina Lla Zina
+
+Lla Zina d tacennayt taqbaylit, iẓuran-is n At Wartilan. 
+
+Tussad ar rradyu s ufus (lemɛawna ) n Lla Yamina akw d Lla Wenissa. 
+
+Lla Zina, nettat n At Wartilan. Teccna deqs n lweqt deg Urar Lxalat, Nnuba n Lxalat. Tecna daɣen kra n tezlatin yettwaskelsen deg ḍebsiyen amzun : Aḥlilu, yella rebbi ad-as neḥku, Tislit tuggmed si tala.
+
+Ǧamila Ǧamila
+
+Ǧamila, tacennayt taqbaylit, ger yiwet irreṣṣan lsas i ccna unti n teqbaylit. 
+
+Isem-is n tidett d Ǧuḥar Baccen, tlulled deg ussan imenza n tefsut n usegwas n 1930 (2 maggu 1930), deg temnaṭ n At Buhini ( tama n Iɛẓẓugen). Tawaccult-is d yiwet n twaccult muccaɛen, yellan si zik di Lzzayer tamanaɣt. 
+
+Ǧamila tezweǧ ɣur-es 12 n isegwasen kkan ar mmis n mmis n Ureski Lbaccir, argaz yenuɣen, yemmuten f tilelli. Ddren akken yiwen lweqt di Buzriɛa di Lzzayer, unagen sakkin kra n lweqt ar Fransa. Cwit kkan, Lla Ǧamila tuɣaled ar tmurt, tfureq nettat d urgaz-is. 
+
+Lla Ǧamila tewwded ar radyu asmi tella deg tama n Berthozène (La Grande poste d'Alger). D yiwet n tmettut umi qqaren Lla Cabḥa, yellan tettmediḥ imiren, i-tt-id yewwin ad twali amek ccenunt imiren. 
+
+Liqal, Lla Ǧamila, tugguma ad-tekcem ar Radyu, si lxuf b awal n medden d laḥya n yimiren.
+
+Tettɛawaded belli assen amezwaru igi id wwet ar Radyu, tuffa dinna: Lla Yamina tettawwid yiwen ucewwiq anda s teqqar: "Ay ul-iw nhed nhed, newwed ar tebburt nbed, ma d yemma aɛzizen ulaḥed, mad tagmatt llaḥ lḥed) , Lla Zina, Lla Lǧida Tamuqrant, Meǧdul Aḥmed, Qurici Zeṛṛuq, Sidaḥ, Ḥaǧ Racid. 
+
+Yella daɣen Ccix Nurdin, is yennan i Lla Ǧamila: "A taqcict, awi-yaɣed icewwiq". Dɣa tewwid winna " A dicini, tewwid-iyid arriyi". 
+
+Texdem dva nnuba n ccna akw d Ccix Nurdin, d netta ig yellan d bab n uzawan ( chef d'orchestre) imiren. 
+Teccna daɣen deg Nnuba Lxalat i-teṭṭef Lla Tassaɛdit, ar tama n Lla Yamina, Lla Zina, Lla Cṛifa, Mimi Nabti, Tawes Nabti, Nwarra Nabti, Ǧamila Ḥassan (Massa Bugarmuḥ), Xedduǧ, Wṛida. 
+
+Lla Ǧamila tekki deg waṭṭas n tedwilin, gar-asent "Les femmes au foyer", ar tama n Lla Tassaɛdit ( Madame Laffage). Tettekki daɣen deg yiwwet n tedwilt "Enfatine" ar tama n Ɛebdelmaǧid Benasar. 
+
+Tetteki daɣen deg sura s taɛrabt taɣerfant (Le Colonel Si Belaid, Rameaux de Feu, Les Hors la loi, Leila, le Vent des Aurès), d-taqbaylit (Tawrirt Yettwattun).
+
+
+
+
+
+
+Ɛli Ceɛbani Ɛli Ceɛbani
+
+Ɛli Ceɛbani, s tefṛansist Ali Chabani ; d yiwen ucennay n tmurt n Leqbayel, tamaṭ n Mɛatqa, Taɣiwant n Suq Letnin, id yezga azal n 20 ikilumitṛen ɣaf Tizi Wezzu, ilul ass n 2 yunyu 1977.
+
+=Isefra n tezlatin n Aɛli Caɛbani=
+ A nadam Arzu-d ɣuri
+
+
+ Ay ul-iw, ay ul-iw,
+
+
+ Ma muqleɣ s ayen iɛeddan
+
+
+=Tamselyut=
+
+Tawerga Tawerga
+
+Tawerga d yiwet n tiɣiwanin n Tamurt Leqbayel, tezga-d ar ugmuḍ uggug n ugezdu n Bumerdas.
+
+Tawerga tella gar uzaɣar n Sabaw d yidurar. 
+
+Llant kra n tuddar deg tɣiwant : Bni Ɛeṭṭar, Lǧemɛa, Bouhbachou, Budciha, Tingrin, Lkudiyya, Mazzer, Leɣdayer, Wad Hlal. Imezdaɣ ttmeslayen aṭas s teɛrabt gar-asen (d zdi muḥ).
+
+Deg uyyur n yennayer 1985, Tawerga tuɣal taɣiwant. Tella zik d taddart kan di tɣiwant n Leɛzib N Ccix (umi qqaren Baɣliya ass-a) deg utaram.
+
+At Tawerga ggan aṭas n tekessawt di tɣiwant, zzit uzemmur dinna tela (tesɛa) aṭas n wazal, tella tafellaḥt deg idurar. 
+Taɣzut Taɣzut
+
+Taɣzut d taddart id yezgan di tɣiwant n At Yellilten. 
+
+Taddart aggi tezgad ddaw taddart n Tfilkut. Ifaqi-tt wassif nettat d At Yettura ( Buɛidel), akw d Ilulyen Umalu ( Agussim). 
+
+Di taddart-aggi llant aṭṭas n twacculin gar asent llant : At Aɛmar, At Ali U Musa, At Taḥar, At Ben Ɛisa, At Salaḥ, At Uqasi, Icaɛllalen, At Buɛezza, At Ali. 
+
+Taddart anda tettili timecret, anda yettili usensi n Sidi Ḥend Uɛbedellah, anda tettili temerɣa anda ccenun inazuren imeqqranen n Teqbaylit am Zedek Mulud, Ali Ferḥati, Ali Mezyan
+
+1) 
+
+Tasekkurt id yeccrurden deg udrar truḥ, 
+
+Tebɛan-tt-id isegaden, id yeglan s lfuṛuḥ, 
+
+Taggi ad-tt arnuɣ i yesyi, ay izem amectuḥ, 
+
+Tasekkurt id yeccrurden deg udrar tulwa (?), 
+
+Tebɛan-tt-id isegaden, id yeglan s leḥnna, 
+
+Taggi ad-tt arnuɣ i yesyi, a mmis n Tsedda, 
+
+Tasekkurt id yeccurden deg udrar tculla, 
+
+Tebɛan-tt-id iseggaden, id yglan s lḥarma, 
+
+Taggi ad-tt arnuɣ i yesyi, ay izem lḥara,
+
+Msemellaḥ ad nebdu ccekran, iɣuraf n ttmar, 
+
+D-acu id imenna wuy-iw d rebbi ad yeḥdar, 
+
+Taggi as-tarnuɣ i yesyi (flan nnaɣ flan), a lbaz acmamar, 
+
+Msemellaḥ ad nedbu ccekran, iɣuraf n lǧǧuz, 
+
+D-acu id imenna wuy-iw d rebbi amaɛzuz, 
+
+Taggi as-tarnuɣ i yesyi, a lbaz amekyus,
+2) 
+Acḥal ayyagi deg Malu Idurar, 
+
+Ihelel waggur, tiziri tezwar, 
+
+A win umi ferḥaɣ yassed ɣar wurar, 
+Acḥal ayagi deg Malu Leswar, 
+
+Ihellel waggur, tiziri d lefnar, 
+
+A win mu ferḥaɣ yassed s amedhar, 
+
+Acḥal ayagi deg Malu Tili,
+
+Ihelel waggur, tiziri tuli, 
+
+A win mu ferḥaɣ yassed yarriyid, 
+Acḥal ayagi, deg Malu Iɣezzer, 
+
+Ihelel waggur, tiziri tɛeǧǧar,
+
+A win mi ferḥaɣ, yassed ad yeḥdar,
+
+3) 
+Tasusmi ay At wurar ma yekkat wegris, 
+
+Uyama yekkat wugris, tikyi nnaɣ s yeqis, 
+
+Fellawen ig ccbaḥ wurar ay At Ttaryis, 
+
+Keccini ay Isli, a mmis p-g-b Ukyis, 
+Tasusmi ay At Wurar ma yekkat wedfey, 
+
+Uyama yekkat wudfey, tikyi nnaɣ s yaɛqey, 
+
+Fellawen ig yeccbaḥ wurar, ay At Yemkaḥey, 
+
+Keccini ay isli (...?)
+Tasusmi ay At Wurar ma tekkat yeḥwa, 
+
+Uyama tekkat yeḥwa, tikli nnaɣ s lyanna
+
+Fellawen ig ccbaḥ wurar ay At Lhaṛa, 
+
+Keccini ay isli a mmis n tsedda,Lla Ḥnifa Lla Ḥnifa
+
+Lla Ḥnifa, isem-ines unṣib d Iɣil Larbɛa Zubida. Semman-as ar Ḥnifa, weltma-s n Lla Lǧida Tamuqrant, iy ccnan cwiṭ deg iseggassen n 40.
+
+Tluled deg tama n Yiɣil Mhenni ( Aẓeffun) deg usegwas n 1924. Tawacult-is truḥ ar Lzzayer am waṭṭas n twacculin tiqbayliyen n yimiren iwakken ad affen aɣrum d uxedim.
+
+Asmi yebda traḍ urumi d uliman (2WW), tawaccult Iɣil Larbɛa tuɣaled ar Tmurt n Leqbayel.
+
+Deg usegwas n 1957, lla Ḥnifa tunag ar Fransa am waṭṭas n Inaẓuren di lawan nni. Mid tewwed ar Paris, tebda tamɛccit waɛen macci drus, tamɛccit n waccu id yefka wass yeccat yid. 
+
+Deg usegwas n 1957, lla Ḥnifa temllal d Kamal Ḥemadi, yettnadin ɣaf ṣṣut n tmeṭṭut ara yeccnun yides taɣect "Yidem yidem". Dɣa yuffa Ḥnifa. 
+
+Asmi yekfa traḍ n timunent, tuɣaled Lla Ḥnifa ar wakal n tmurt. Teccna cwit di Lezzayer, tetteki deg tmeɣriwin, teccna di "Nnuba Lxalat". 
+
+Deg usegwas n 1973, lla Ḥnifa tuɣal tuɣalin taneggarut ar Fransa, anda temmut deg usegwas n 81. 
+
+Abrid-is di ccna yebda deg temzi-s asmi tella di taddart. Ulac tameɣra anda ur tettɣni ara, anda ur teɛmir-ara urar. 
+
+Asmi id uɣal ar Lzzayer deg usegwas n 1951, temllal ak d Lla Yamina, d nettat i-tt yewwin alami d radyu, anda tetteki di tedwilt " Urar lxalat" ar tama n Lla Zina, Lla Cṛifa, Lla Yamina, Lla Lǧida Tamuqrant. 
+
+Imiren daɣen i tebda ccna akw d l'orchestre n Ccix Nurdin, ukud teccna kra n tezlatin am tinna " Lḥeǧla Ilili". 
+
+- A gma texdaɛdiyi
+
+- Siwla-s i Wrida
+
+- A zhar-iw anda tenzid
+
+- A rebbi farreǧ
+
+- Ayen ɛcra snin
+
+- Ay aqcic sers tabalizt
+
+- Ay amitru
+
+- d ṛṛay-iw
+
+- A sidi Aberḥeman
+
+- Aytma lfiraq yuɛar
+
+- Lukkan macci d keccini
+
+- Aḥya Mali
+
+- Debber tura
+
+- Iffuk Laman
+
+- Tawerdett
+
+- Ccaḥ deg ṛṛay-iw amccum
+
+- Yestma
+
+- Ay Afrux
+
+- A yelli a yelli
+
+- A Talimantt
+
+- Wuffan zḥar-is d saɛa
+
+- A zhar-iw a bu tsuqas
+
+- Aḥku-yid
+
+- Agma aḥmam
+
+- Ay Adrar
+
+- A tibratin
+
+- Akka macci akka
+
+Alala, alala, 
+
+Tura d nnuba n lxalat, 
+
+Alala, alala, 
+
+Tura d urar n lxalat, 
+Ay abrid n Sidi Ɛic, 
+
+Yelha i rrekba ukamyun, 
+
+A taqareɛtt n ṛṛiḥa, 
+
+Id yeddan daxel n uqelmum, 
+
+Saḥit a bab n tmeɣra, 
+
+Iweqmen urar i wedrum, 
+Ay abrid n Sidi Ɛic, 
+
+Yelha i rrekba u taxi, 
+
+A taqereɛtt n ṛṛiḥa, 
+
+Id yeddan daxel Ibidi, 
+
+Saḥit a bab n tmeɣra, 
+
+Iweqmen urar i lɣacci, 
+Ay abrid iɛzzugen, 
+
+Yelha i rrekba iɛudiwen, 
+
+Ay abrid iɛzzugen, 
+
+Yelha i rrekba iɛudiwen, 
+
+Ssahit a bab n tmeɣra, 
+
+Tameɣra s ideballen,Lǧida Tamecṭuḥt Lǧida Tamecṭuḥt
+
+Lǧida Tamecṭuḥt, isem-is aḥeqanni d Lǧida Aɛrab. Tlul deg usegwas n 1948.
+Nettat d yelli-s n gma-s n Lla Yamina, tacennayt tameqrant n teqbaylit. 
+
+Tacennayt taqbaylit. Tebda ccna deg useggas n 52 deg tedwilt n warrac umi qqaren "l'émission Enfantine", d lla Taseɛdit (madame Lafarge) i yellan ɣef uqerru n tedwilt-agi deg umeṭṭaf aqbayli.
+
+- A taxatemt
+- Walaɣ tassekurt ( tecna-tt ula d nettat)
+- A wi ufan ṛṛay n ṛṛay-is
+- Mi muqleɣ
+- Tiqcicin n Leqbayel
+Urar Lxalat Urar Lxalat
+
+Urar lxalat, daggi ad nebder snat n lemɛani. 
+
+D ccna id-ttawint tulawin, tullas, lxalat deg tmeɣriwin, deg sensiyen, di mlal mara yilli lfarḥ deg uxxam, nnaɣ deg twacculin. 
+
+Zik d myla taddart, mara yilli lfarḥ, tullawin ad duklen s amakan iwulmen am wenar, afrag, anda ara sekrent urar.
+
+Tin yesnen ad tewwed abendayer, ad tedem abendayer, tullas nniḍen ad ccenunt, ad selwliwent. 
+
+- Mreḥba s imawlan-iw, assa yaɛmar wexxam-iw ( tizlitt i teccna Nwaṛṛa)
+
+- A lxur yewwan, fkiyi-d aman ad swaɣ, am taɛyun ssuy-i-d ttnudumaɣ, 
+
+- Wallaɣ tasekkurt sufella n tzemmurt, argaz-is iṛṛuh ibedel tamurt
+
+- Yuklal udar-im ad yeqqen axelxal, yerna f zzin-im a lward amellal
+
+- Laɛyun tiberkanin
+
+- Assa d lfarḥ-iw
+
+- D nnuba-k fraḥ (ifer ibawen, yeggman d asawen, xeluntt ɛcra yeḥya-tt-id yiwen, d nnuba-k fraḥ)
+
+- Tameɣra g izem aɣiles, yulli wass (Tizlitt n Kassia)
+
+- Tezga ṣṣifam gar wallen-iw, d lbaḥr n leḥub-im ɣarqaɣ (Tizlitt n Taleb Rabaḥ)
+
+- Awi-yid amendil-iw, ad ruḥaɣ ar laḥlil-iw, ur ttagwad ard uɣalaɣ, serḥiyi ad ruḥaɣ (Drifa)
+
+- A lwaldin aneft-iyi (Ait Menguellet)
+
+- Eṭṭes eṭṭes mazal lḥal (Ait Menguellet)
+
+- Keccini ṛṛuḥ (Ait Menguellet)
+
+- Snat n tullas (Ait Menguellet)
+
+- Ccdeḥ-im ig yexfifen, ɣiwel, ɣiwel, saɛa ard uɣaled seg At Yiraten
+
+- Aḥ yeǧǧa yemma-s, yettu i tɛetteb fella-s (Akli Yahyaten)
+
+- Temɣrat yewwded lfarḥ-im, xas kkes anezgum tura, neǧmaɛend warraw-im atnan wwdend am yiran (Farid Ferragui)
+
+Tadwilt yebdan deg rradyu n teqbaylit deg segwasen imenza f tlallit n rradyu. 
+
+Udem n tedwilt aggi am wurar n taddart, ad nejmaɛnt lxalat, ad awwint abendayer, ccenccina, tikwal tettili derbuqa, ad bdun ccna. 
+
+Tadwilt aggi tebda seg mi teldi rradyu, tettwaḥbes deg usegwas n 90 asmi id yussa yiwen umdebar ikerḥen taqbaylit. Asmi tella tadwilt aggi, tacennayt id yenulfan, ilzem-as ad ɛiddi di tedwilt aggi, anda imsefliden takkend ṛṛay-nsen, anda daɣen ḥefdenṭ ccna, icewwiqen, aẓawan. 
+
+Am Nwaṛṛa, am Ǧamila, am Cṛifa, llant ɣaf uqarruy n tedwilt aggi id yettɛadin di radyu tis snat, kull as ddurt. 
+
+Gar lxalat i ccnan deg urar n lxalat: 
+
+- Wṛida
+
+- Lla Lǧida Tamuqrant
+
+- Lla Ḥnifa 
+
+- Lla Cṛifa
+
+- Lla Yamina
+
+- Lla Zina
+
+- Lla Cabḥa
+
+- Rabiɛa
+
+- Lla Ɛica
+
+- Lla Wardya
+
+- Nwaṛṛa
+
+- Lila
+
+- Dalila
+
+- Saliḥa Mezager
+
+- Anisa Mezager
+At Aɛmar At Aɛmar
+
+At Aɛmar d isem n twaccult, yellan deg deqs n tuddar deg tmurt Leqbayel ( ama tamurt b adda, ama tamurt n ufella).Yasin Amaɛuc Yasin Amaɛuc
+
+Yasin Amaɛuc d amarir aqbayli n ddabex. Illul deg wass n 26 yunyu 1979 di Amizur (Bgayet). Yurar tura am umenṭag i weklub n USO Amizur, am uṭṭun 11 (mraw-d-yiwen). Iket 171 cm deg lqedd d 67 kg deg teẓeyt.
+
+Acewwiq Acewwiq
+
+Acewwiq, d yiwen n ssenf n uẓawan n Yeqbayliyen. 
+
+Acewwiq yezmar ad yili s taɣect n umḍan, neɣ s tjewwaqt.Faḍma Zuhra Faḍma Zuhra
+
+Faḍma Zuhra d tacennayt tabqyalit, i ilullen deg Lebyar (Lezzayer) deg useggas n 1906. Temmut asmi tewwed 94 iseggasen di leɛmer-is.
+
+Tedder cwiṭ n lweqt deg yinig di Franca nettat d wergaz-is. Dɣa, deg yinig i tebda ccna deg leqhawi n Yeqbayliyen di Lpari. 
+
+Deg yinig temlal daɣen d yinaẓuren iqbayliyen am Bahya Faraḥ, Dda Sliman Ɛazem, Ccix Aɛrab Buyzgaren. 
+Ger tezlatin teccna Faṭma Zuhra, llant : 
+
+
+Teccnan nettat akked Sliman Ɛazem tizlitt-nni umi yeqqar "Nek akked kem, kem akked nek". Nezmar daɣen ad as-nsell deg tezlit-nni n Ccix Aɛrab Buyzgaren umi yeqqar "Anfas, anfas". 
+
+Asmi i d-tuɣal Faṭma Zuhra ar tmurt n Lezzayer, tettiki deqs n lweqt deg "Nnuba n lxalat" n rradyu tis snat, anda teccnu akked Lla Cṛifa, tiyyad daɣen. Tkemmel deg nnuba n lxalat, alami d asemi i tekfa tedwilt-agi.
+Lla Cabḥa Lla Cabḥa
+
+Lla Cabḥa, d yiwet n tcennayin tiqbayliyen ger timenza id yussan ar rradyu s teqbaylit, uqbel ad tili radyu tis snat. D nettat id yewwin Lla Ǧamila alami d radyu. 
+
+Lla Cabḥa tella tcennu deg radyu ELAK, d radyu Berthozène. 
+
+Yiwet seg tezaltin ines, teqqar-as : "Ay ucbiḥ useḍsu".
+Wṛida Wṛida
+
+Tacennayt taqbaylit, yebdan deg segwasen n 50. 
+
+Wṛida, d yelli-s n Lla Yamina. Isem-is n tidett Wṛida Ixerfelliwen (Xerfellah s taɛrabt). 
+
+Wṛifa teccna deqs n tezlatin, yettwasenen aṭṭas aṭṭas, umi ɛawden waṭṭas n inaẓuren n tura. 
+
+Taɣect-ines telha nezah nezah, dɣa asmi teḥbes ccna, yeɣlid leḥzen af ccna n teqbaylit. Da Crif Xeddam yezga yettemeslayed ɣaf ssut n Wṛida. 
+
+- Recdaɣak a ṭṭir
+
+- Ay aɛziz ṛiḥ di laman (akw d Farid Aɛli)
+
+- Lwali
+
+- Aɣrib ur nesɛi Lwali
+
+- A ṭṭir amelɣan
+
+- Lward yeffsan
+
+- Ay aɛziz teǧǧit-iyi (akw d Awezzelag)
+
+- Leḥna
+
+- Wallaɣ tasekkurt
+
+- Wuffan ṛṛay n ṛṛay-ik (Deux versions différentes) 
+
+- Sin Isefsafen
+
+- Ay ul iǧerḥen
+
+- Ala ssbar d ulaqrar
+
+- Ad hubben laryaḥ
+
+- Ketbaɣ tabratt s ukaryun
+
+- Ṭṭir amelḥan
+
+- Lbabur
+
+- Rruplan yuffeg iɛella
+
+- Aɣrib am assa ad yass
+
+- Ɣenni Ɣenni
+
+- Tamusni
+
+- Iǧaḥ dayen
+
+- Sbaḥ zik i tafrara
+
+- Barka Barka ( akw d Muḥemed Ḥilmi)
+
+- Ad-t muled (akw d Muḥemed Ḥilmi)
+
+- Kkiɣ
+Teccna ukud waṭṭas inaẓuren iqbayliyen, gar-asen : Muḥemed Ḥilmi, Ahsen Mezani, Farid Aɛli.
+Ɛemmal Ɛemmal
+
+Ɛemmal d tɣiwant n ugezdu n Bumerdas, ar 50 km n Tizi Wezzu d Ledzayer (tamaneɣt) d Tubiret deg utaram n Tmurt n Leqbayel. D taɣiwant i yexdimen aṭas tafellaḥt. 
+
+Imezdaɣ-ines d leqbayel n tidet, tɣiwant d tagellilt s aṭas acku adabu n Ledzayer ur yebɣa ara taneflit n temnaṭ-agi. Ulac tiɣbula i wakken tettkker ar ufella tadamsa ḥaca tafellaḥt. 
+
+Deg useggas n 2008 Ammal ɣur-s tamudi n 8 505 imezdaɣ. 
+
+Kra n tudrin n tɣiwant taqbaylit n Ammal. 
+At Ɛemran At Ɛemran
+
+At Ɛemran d taɣiwant n Ledzayer deg twilayt n Bumerdas (seg useggas n 1985) di Tmurt N Leqbayel. Ar 1975 tezga-d deg ugezdu n Tizi Wezzu armi Bumedyen yerra-tt deg ugezdu n Tubiret, di lweqt n Cadli Benjdid tuɣal-d deg ugezdu n Bumerdas, tasertit ay d sseba. 
+
+At Ɛemran zgan-d ar 60 km si Tizi Wezzu, Tubiret d temdint n Ledzayer. Imzedaɣ n tɣiwant akk deg-sen i yettmeslayen Taqbaylit slid Idebbaɣen. 
+
+Ɛellawa Zeṛṛuqi Ɛellawa Zeṛṛuqi
+
+Ɛellawa Zeṛṛuqi (ilul-d deg 5 yulyu 1915- yemmut deg 17 wamber 1968) d acennay aqbayli mechuren n timiḍi wis 20.
+
+ilul-d deg 5 Yulylu 1915 (05 Juillet 1915) di taddart Ukerma id izgan di tɣiwant umalu laɛrec n at ɛidel, baba-s Sɣir zeṛṛuqi id yussan si taddart Izeṛṛuqen (Leflay) di laɛrec n At Weɣlis, ar taddart ukerma akken ad iccix fella-sen, yemma-s ɛezzug weṛdiya (yelli-s n Ukerma).
+
+Zik imawlan tgamin ad gren arraw-nsen ar iɣerbazen ifransisen qqaren makken tɛawalen ad sefḍen isem azzayri akk d ineslem.
+
+Baba-s n ɛellawa ur ixulef ara f wiyaḍ, netta daɣen yugi ad igger mmi-s ar dinna, i-gger-it ar timɛemert umalu (zzaweya n aḥmed u yaḥya umalu) akken ad ilmed leqran akk d tutlayt taɛrabt. 
+
+Cwiṭ kan akka yemut bab-s yegra-d Ɛellawa d agujil netta akk d gma-s Malek d yemma-s ig refden asawad, t-rebba- d arraw-is di lḥif d lmaḥna,
+Ɛellawa yewweḍ tura 15 n yiseggasen di lɛemer is netta lxedma n tfelaḥt ur s tehwi ara, it ḥibi cnna, akk d tgitart is dayma deg uḍan unebdu itruḥu ar yiwen n weẓru di ṭerf n taddart akken ad icnnu akk ad ikes f ul is netta d yimdukal-is [azru a d win i-seman azru n lejnun id yezgan gar taddart Ukerma akk d taddart n Tizi Weqdem (Amalu)]
+
+Sina iruḥ ar tamdint n Weqbu,sin akkin ar Bgayet akken ad inadi aɣrum-is, dina ig xdem d aḥefaf g yiwet n tezniqt iqqaren "Azniq Faṭima" dina daɣen ig sɛa ccix Sadeq Abǧawi lqahwa, Ɛellawa illa ma ad it ḥefif i yemdanen ad icennu, asmi is -d -sla sadeq abeǧawi iɛejb as sut is ḥlawen ihi ifka -y-as afud igerzen akken ad ikcem ar ubrid a n cnna. 
+Seg imi ɛellawa icennu di tmeɣriwen di bgayet, g ǧiǧel, deg uqbu icnna ulla deg Umalu (di tameɣra n wemdakil-is)
+
+Cwiṭ kan iɣli-d llaẓ f tmurt, lqaɛa ur d tak ara, lxedma ulac, medden akk luẓen, gma-s n ɛellawa t-nfat fransa ar kayan, netta ilaq ad yawi aɣrum i yemma-s, ihi iruḥ netta akk d wemdakul-is ar Fransa anida ig xdem di lmina g Marseille, lxemda n lmina teɛteb t-semsax Ɛellwa innumen it beday ar iman-is yarna ur innumen ara leɛab amuqran, ur yewwi ara iwanect-a dina ig ǧǧa lxedma nni iruḥ ar Paris, ixdem dinna d aḥefaf, neɣ di leqhawi. Sina iruḥ ar Lyon anda ig xdem barman, dina issen yiwet n trumit it iɛawnen aṭas.
+
+Deg useggas n 1951 Ɛellawa yuɣal-d ar tmurt akken ad ixṭeb yelli-s xali-s newara illan tecbaḥ teɣra yarna d yelli-s umerkanti, acu kan baba-s n taḥbibt-is yugit acku netta d acennay cnna di lweq nni d lɛib amuqran, yarna Ɛellawa iznez akk taferka is-d iǧǧa baba-s, ihi ar at twacult is ur isɛi ara ṛṛay.
+Ɛellawa ur iqdiɛ ara layas yuɣal ixeteb -d newara acḥal d abrid, akken baba-s n tina yeguma ad iḥnin fella-s iruḥ ar lqayed ben ɛli crif, icetka y-as dina id iceyeɛ ar bab as n Newwara inna-yas as tefkeḍ yelli-k mulac ak nfuɣ ar kayan. Ɛellawa yuɣ Newwara, cwiṭ kan sɛan-d mitsen amezwaru 
+sina akkin iwwi tawacult is ar Fransa, dina itwala Newwara tarumit-nni, ur t-qbil ara s liḥala-nni ur s yehwi ara at freq argaz is akk d tayeḍ, tuɣal-d ar tmurt tegguma at uɣal ar Fransa, Ɛellawa yuɣal ar Fransa akk d mmi-s, ma d Newwara -sɛa-d yelli-s di tmurt argaz-is ur ihdir ara 
+newara truḥ ar trad n lezdayer temmut d tameɣrast. 
+
+Ɛellawa netta daɣen it ikki di trad dina di Fransa, iznez akk ayen yesɛa akken aten imud i yemjuhad.
+Deg 17 wember 1968(17 novembre 1968) yemmut yemṭel di tmeqbert n Thiais di Fransa.
+
+Ɣas akken ɛellawa illa iḥemmel cnna, yerna icennu di tmeɣriwin akk d leqhawi maca ur -d yessufeɣ ara aḍebṣ ines amezwaru armi d 1948 dina id icenna snat n tezlatin yiwet s teqbaylit "telifon ṣoni ṣoni" anida id yeḥka taḥkayt is wezilin akk di lxedma n lmina, ti snat s taɛrabt "laḥbab lyum" 
+sina issufeɣ d acḥal tasfift
+icnna deg seggas n 1964 di television maca ulac later is ass-a 
+
+-tizlatin is akk d netta i-ten --id ittarun d netta diɣ isen-t id ixedmen aẓawan nsent
+
+-di tizlatin is iḥeku-d ayen akk isɛeda di tudert-is, tigujelt-is, lɣerba s, tayri-s, lfiraq akk d tmeṭṭut-is, tamurt is, ...
+-di tuder is akk icnna alla yiwen n duo netta akk d bahiya faraḥ di tizlit yugi ad yuɣal 
+-ixdem aṭas akk d ɛemrawi missum 
+-imlal acḥal d acennay d t-cennayin: Akli Yeḥyaten, Kamal Ḥamadi, kedouǧa...
+Ddabex uḍar Ddabex uḍar
+
+Ddabex uḍar neɣ Football (futbol), Soccer di Marikan ugafa d yiwen waddal tturaren-t snat trebbuɛa n 11 imyuraren deg annar. Iswi n yal tarbaɛt, d asekcem n ddabex imdewweṛ ɣer ucebbak n temḥaddit nniḍen kter is u mebla aseqdec n ifassen.
+
+Yettwasengel sɣur legliz (igliziyen) di tagara n timiḍi tis XIX. Aseggas n 1904, ddabex uḍar yuɣal yesɛa "Amqun agraɣlan" FIFA, asegwas n 2006, llan azal n 264 imelyunen n yemyurar n ddabex uḍar deg umḍal, yerna yella d addal amezwaru deg aṭas n tmura. Di kra imenẓawen am tafriqt, turuft d tamrikt unẓul ddabex uḍar iɣmer addalen nniḍen acku urar-is d ushil, ur yesseqdac ara aṭas n ttawilat.
+
+Llan-t snat n tewsatin n tirmitin di tfada: tidak n iswuten d tidak n trebbuɛa tiɣelnawin. Taqbuct n ddunit d tirmit tagraɣlant yesɛan azal ameqṛan nezzah. Tettilid yal 4 isegwasen seg 1930.
+
+Uraren n ddabex s uḍar llant si zman aqbur (Taglest). D uraren kan illan maci d addal. Igrigiyen llan snen aṭas n wuraren n ddabex uḍar: "aporrhaxis d phéninde" di "Athènes" d "épiscyre" di "Sparte". Ɣer Iṛumyen daɣen kifkif, llan tturaren "pila paganica, pila trigonalis, follis d harpastum". Icinwaten daɣen tturaren ṣṣenf n ddabex uḍar i wumi qqaren "Kuju". Iḍrisen icinwaten imezwura iḥekkun ɣef urar agi llan-d di timiḍi tis kraḍ uqbel sidna Ɛisa. Di tagara n timiḍi tis XV, Kalčiu Florentin yellad di Ṭelyan, d netta 
+Izlan Izlan
+
+Izli ( izlan ma llan aṭas), d yiwent n ṣṣenf deg tzuri taqbaylit ( tamaziɣt s umata). 
+
+Awal agi ssexdament i ccnawi id ttawwint tulawin deg tmeɣriwin ilmend n lḥenni. 
+
+Deg kra n tamawin n Tmurt n Leqbayel, izlan sawalen-asen Asbuɣar, Tibuɣarin.
+
+Ad selliɣ f nnbi, 
+Yissek ay nbedu,
+
+Accṛif Muḥemmed, 
+Yeɣran lḥemdu, 
+
+Ayyagi d lfarḥ, 
+S rebbi ad as-neccfu,
+
+Ad selliɣ f nnbi, 
+Netta ig zdin lsas, 
+
+Sidna Muḥammed, 
+Iccbeḥen lahdur fella-s, 
+
+Kemmlaɣ deg lfarḥ, 
+Ay Agellid Aɛsas,
+Arriɣed tiregwa, la siridaɣ lḥara, 
+
+Ad kksaɣ laḥzen, yellan deg wacḥal ayya, 
+
+Taǧmilt i rebbi, taǧnant tegred tara, 
+Arriɣed tiregwa, la siridaɣ iseqfan, 
+
+Ad ksaɣ leḥzen, yellan deg wacḥal n zzman, 
+
+Taǧmit i rebbi, leǧnan yewwted s iẓuran,
+Arriyed tiregwa, la siridaɣ imnaren,
+
+Ad ksaɣ laḥzen, yellan deg yexxamen, 
+
+Taǧmilt i rebbi, leǧnan yegred ixfawen, 
+Arriɣed tiregwa, la siriday ixxamen,
+
+Ad ksaɣ leḥzen, yellan deg ulawen, 
+
+Taǧmilt i rebbi, taǧnant tegred afriwen
+
+Izlan n Tfilkut (At Yellilten)
+
+Wi llan lḥara yaggi, 
+
+Yessan s lebyad, 
+
+I-tt-id ikcmen d irgazen, 
+
+Ay At ṣṣebaḍ, 
+
+Keccini a bab n tmeɣra, 
+
+A lbaz acmamar, 
+
+Wi llan lḥara yaggi, 
+
+Yessan s uɛequc, 
+
+I-tt izdɣen d ilmezyen, 
+
+Ay At Ukartuc, 
+
+Keccini a bab n tmeɣra, 
+
+Tissas n Aɛmiruc, 
+Wi llan lḥara yaggi, 
+
+Seqfen s lqarmud, 
+
+Nnan-i n bab n tmeɣra, 
+
+D ttefaḥ amgud, 
+
+Taqbaylit tezwar-asen, 
+
+Tezwar i leǧdud,
+
+Izlan n Mniɛ (At Yettura) sɣur Nna Ṭawes Idinaren
+Tasusmi, 
+
+Tasusmi ay at wurar,
+
+Ma yekkat wegris,
+
+Uyama yekkat wegris, 
+
+Tikyi-nnaɣ s yqis, 
+
+Fellawen ig yeccbah wurar, 
+
+Ay At Ttaryis,
+
+Tasusmi, 
+
+Tasusmi ay At Wurar, 
+
+Ma tekkat yehwa, 
+
+Uyama tekkat yehwa, 
+
+Tikyi-nnaɣ s lyanna, 
+
+Fellawen ig yecbaḥ wurar, 
+
+Ay At yḥara, 
+
+Tasusmi, 
+
+Tasusmi ay At Wurar,
+
+Ma yekkat wedfey,
+
+Uyama yekkat wedfey, 
+
+Tikyi-nnaɣ s yeɛqey, 
+
+Fallawen ig yeccbaḥ wurar, 
+
+Ay At Yemkaḥey,
+
+Sbaḥlxir a tislit, ay udem n rrbaḥ, 
+
+Ḥekkun ɣef wergaz tuɣed, 
+
+Amzun d lemsbaḥ, 
+
+Lexbar ad yawwed yemma-m, 
+
+Ad teɛyu tferaḥ, 
+Sbaḥlxir a tislit, aqadum n lehu, 
+
+Ḥekkun ɣef wergaz tuɣed, 
+
+Amzun d asaru, 
+
+Lexbar ad yawwed yemma-m, 
+
+Ad teɛyu zzehu.
+
+Lehna yiswen, 
+
+A lechur id illulen, 
+
+Bab n tmeɣra, 
+
+Ay azrar ɣef yefzimen, 
+
+Waggi d urar, 
+
+S lehna n taddart-nwen, 
+
+Lehna yiswen, 
+
+A lechur wid n tefsut, 
+
+Ǧuǧgen lenwar, 
+
+Leǧnan icbḥen tamurt, 
+
+Aqliyi usiɣed (ad) ak ferḥaɣ, 
+
+Ay afaruǧ n tsekkurt, 
+
+Lehna yiswen, 
+
+A lechur deg ccetwa, 
+
+Zewǧen lenwar, 
+
+(D) Leǧnan icbḥen lḥara, 
+
+Aqliyi ussiɣed (ad) ak ferḥaɣ, 
+
+Ay afaruǧ n Tnina, 
+
+Nek mi ttɣeniɣ, 
+
+Siɣertemted ar lkanun,
+
+Axxam yeccur, 
+
+D imcebḥen ak d At laɛyun, 
+
+Aqliyin ussiɣed (ad) ak ferḥaɣ, 
+
+A win si yezha wedrum, 
+
+Nek mi ttɣeniɣ, 
+
+Yeseɣret weǧgu alemmas, 
+
+Axxam yeccur, 
+
+D imcebḥen ak d ibrenyas, 
+
+Aqli ussiɣed (ad) ak ferḥaɣ, 
+
+A win si tezha yemma-s, 
+
+Arriɣed isafen
+
+Ur siridaɣ ixxamen, 
+Ad ksaɣ leḥzan, 
+
+I wul-iw bezaf yuḍen,
+Taǧmilt a rebbi,
+
+Leǧnan grand afriwen,
+Arriɣed isafen,
+
+Ur siridaɣ lḥara, 
+Ad ksaɣ laḥzan,
+
+I wul-iw bezaf aya,
+Taǧmilt a rebbi,
+
+Leǧnan yegrad tara
+
+A tazanet yerructan,
+Ar yiri n wassif,
+
+Yerra-s bab-is tisulla,
+
+Telluga s lexrif, 
+
+Ad ccekraɣ Sidi ...
+
+A lwiz n ttsarid, 
+A tazanet yerructan, 
+
+Ar yiri n yeɣzar,
+
+Yerra-s bab-is tisulla, 
+
+Telluga s ttmar, 
+
+Ad ccekraɣ sidi...
+
+A lmesk w lɛmbar, 
+A tazanet yerructan, 
+
+Ar yiri b umdun, 
+
+Yerra-s bab-is tisulla, 
+
+Telluga s lqlum, 
+
+Keccini a Sidi..
+
+A lwiz uqelmun, 
+A tazanet yerructan, 
+
+Ar yiri n tala, 
+
+Yerra-s bab-is tisulla, 
+
+Telluga s tara, 
+
+Ad ccekraɣ Sidi ... , 
+
+Ay izem lḥara, 
+A tazanet yerructan, 
+
+Ar yiri ugelmim,
+
+Yerra-s bab-is tisulla, 
+
+Telluga s wedmim, 
+
+Ad ccekraɣ Sidi, 
+
+Ay izem ay umɛin..
+
+Wexreḍ da a yat Wurar,
+
+Nussad ad nezḥu,
+
+Ussan-d Yemnayen n Ḥemza,
+
+Yenumen lhu,
+
+Aqlaɣ newwid zariɛa,
+
+Rebbi ad yeselhu, 
+Wexreḍ da a yat Wurar, 
+
+Nussa-d ad nɣenni,
+
+Ussan-d Yemnayen n Ḥemza,
+
+Yenumen acali, 
+
+Aqlaɣ newwid zariɛa, 
+
+Rebbi ad yesemɣi,
+Wexreḍ da a yat Wurar
+
+Nussa-d ad necdeḥ,
+
+Ussan-d Yemnayen n Ḥemza,
+
+Yenumen ameṛṛeḥ, 
+
+Aqlaɣ newwid zariɛa, 
+
+Rebbi ad yeserbaḥ, 
+Wexreḍ da a yat Wurar, 
+
+Nussa-d ad ncewwaq, 
+
+Ussan-d Yemnayen n Ḥemza,
+
+Iteddun d lbraq, 
+
+Aqlaɣ newwi-d zariɛa,
+
+I lbaz aṛemmaq, 
+Wexreḍ da a yat Wurar, 
+
+Nussa-d ad nfreḥ, 
+
+Ussan-d Yemnayen n Ḥemza, 
+
+Yenumen ameddaḥ, 
+
+Aqlaɣ newwi-d zariɛa, 
+
+I lqed n rwayaḥ, 
+Wexreḍ da ay at Wurar, 
+
+Nussa-d ad necnu, 
+
+Ussan-d Yemnayen n Ḥemza, 
+
+Yenumen anebdu, 
+
+Aqlaɣ newwi-d zariɛa, 
+
+I mmis ufalku, 
+
+Ḥeǧbaɣed yḥenni, cced-is warɛad yeffsi, 
+
+Zziɣed i lhara, Gi yella sbaɛa uremyi, 
+
+Keccini ay isli, tisas n yizem aweḥci, 
+Ḥeǧbayed lḥenni, qbey ad bezgen waman, 
+
+Zziɣed i yhara, gi yella sbɛa yḥemam, 
+
+Keccini ay isyi, tisas n yizem amezyan, 
+Ad selliɣ f nnbi, ad yers lḥenni, 
+
+Bwint ymuyuk, di tmura yhenni, 
+
+Ad yeqqen yesyi, ay izem aweḥci, 
+Ad selliɣ f nnbi, ad yers ymetred, 
+
+Bwint ymuyuk deg wanda yebɛed, 
+
+Ad yeqqen weqcic ay azrar n dheb, 
+Keccini a baba-s, d-tiɣmart ɣef i-d yarna lsas, 
+
+Ay itri imcaɛcaɛ, id yullin taggara n wass, 
+
+Adrum igi tellid, ur yettgwad lweswas,
+Keccini a baba-s ay aɣanim uẓetta, 
+
+Ay aǧgu n dheb, yegren iǧga lfeṭṭa, 
+
+Adrum gi tellid, ur yettgawad mi(k) yesɛa, 
+Awi-d afus-ik, awi-d aḍad ayeffus, 
+
+Brud i tqendurt, timgerrezt ar aggus, 
+
+keccini ay isyi, tisas n yizem amekyus, 
+Awi-d afus-ik, awid aḍad aziymad, 
+
+Brud i tqendurt, timgerzet n lekmam, 
+
+Keccini ay isli, tisas n yizem amezyan
+
+Ad ccekraɣ, 
+
+Tiduyan, 
+
+Tilmeẓyin, Timeqranin, 
+
+Arniɣed i teslit, m laɛyun tiberkanin, 
+
+Arniɣed i yemma-s taderɛett seddaw uɣanim, 
+
+Arniɣed i baba-s fella-s iteddu wedrim,
+
+Ay aɛsas n lḥara, 
+
+Nekcem-i-id s nnya, 
+
+Ndelb-ik, nedleb rebbi, 
+
+Muda-s arrac d-tayuga
+Ay isli-nneɣ, ay ameɛdur, 
+
+Ak neqqen lḥenni uqendur, 
+
+Ay isli-nneɣ, ay amekyus, 
+
+Ak neqqen lhenni iw yeffus, 
+A tayugga tacerqit, 
+
+Ikerzen ddaw timezrit, 
+
+Tefka-d ssba almi tmal, 
+
+lḥeb yuggar tizitt
+
+A tizizwit, 
+
+Iyyad nek yidem ad meṛṛeḥ, 
+
+Ad nekkes lenwaṛ, 
+
+Ujeǧǧig mara ad yeftaḥ, 
+
+Ay ameẓẓyan, 
+
+Kecc d lmesk nek d rwayeḥ, 
+A tizizwit, 
+
+Iyyad nek yidem ad nccali, 
+
+Ad nekkes lenwaṛ, 
+
+Ujeǧǧig mara ad yeɣli, 
+
+Ay ameẓẓyan, 
+
+Kecc d lmesk nek d lǧawi, 
+A tizizwit, 
+
+Iyyad nek yidem ad nḥewwes, 
+
+Ad nekkes lenwaṛ, 
+
+Ujeǧǧig mara ad yenkes, 
+
+Ay ameẓẓyan, 
+
+Kecc d lefnaṛ n Tunes
+
+Ad nselli f nnbi, 
+
+Fella-s i nebdu, 
+Ad nebdu ccekran, 
+
+Ad nccekar kra dda, 
+Ad ncekar At wexxam, 
+
+Ad nernu At berra, 
+Ay At Iderma, 
+
+Buddaɣ-wen lehnna,
+Assa d asaɛdi, 
+
+Cekrent yemrabḍen, 
+Awi-d aɣerbal,
+
+I seksu n yirden, 
+A bab n tamɣera, 
+
+Ay izem ireɛden, 
+Ttfaɣ lmesbaḥ, 
+
+S uyuffus ayeffus, 
+Zziɣed i lḥara, 
+
+Ǧuǧgen leɣrus, 
+A bab n tmeɣra, 
+
+A lbaz amekyus,
+A lal n tmeɣra, 
+
+A teǧra n lyasmin, 
+A teǧra n lim,
+
+Yenqec ugarzim, 
+Teswid mitayen, 
+
+Lgelba d adrim, 
+Win ik mi nusben, 
+
+Wallaḥ war yendim, 
+Kemmini a tislit,
+
+Lmakla-m yecbaḥ,
+Laɛyun n tnnina,
+
+Tefɣed (ad) tmerreḥ,
+Win ik (m) yuɣen, 
+
+Ala lxir d rrebaḥ,
+Ccnawi Ccnawi
+
+D yiwen n ssenf deg tẓuri taqbaylit. 
+
+Zik qqaren "ad ccnuɣ" flan nneɣ flan, d lmaɛna-s ad awwiɣ imeslayen qqariḥen ( ad ɛayraɣ ) ṣṣifa, lqed, lesɛaya, tirrugza n wihin nneɣ wihin. 
+
+Tura ameslway aggi ibeddel lemaɛna, yuɣal d asgwet ( pluriel) n umeslay ccna (chanson).
+Amaɛzzbar Amaɛzzbar
+
+D yiwen n ssenf n tzuri n tmeṭṭut taqbaylit. 
+
+Amɛazzbar yettili deg tlemmast n wurar n lxalat, anda ad kkrent snat n trebaɛ n lxalat. 
+
+Yiwet n tarbaɛt ad tili ttin n "temɣarin", tinna nniden ad tili ttin n "telmezyin", dɣa ad bdun ccna. Tarbaɛt-nni n temɣarin ad kkatent s umeslay deg telemzyin. Tarbaɛt-nni n telmezyin ad kkatent deg temɣarin. 
+
+Anect-a aggi yakw yella s uneccraḥ d uzmumeg.
+Asbuɣar Asbuɣar
+
+D yiwen daɣen n ssenf n ccna unti ( n tullawin) deg tmurt n Yeqbayliyen. 
+
+Deg kra n tamiwin, ssawalen-as "tibuɣarin". D tullawin id yettawin tibuɣarin mara tili temɣra, lextana ilmend n tuqqna n lḥenni. 
+
+Di mkul taddart deg Tmurt n Yeqbayliyen, di mkul tawaccult, llant tbuɣarin iwulmen i twaccult-nni uɣur yella lfarḥ, uɣur tella tmeɣra.
+Tifilkut Tifilkut
+
+Tifilkut d taddart id yezgan deg temnaṭ n At Yellilten. Nettat d yiwwet n taddart muqqren aṭas, Sawalna-s zik Taddart m sebɛa iderma.
+
+Deg taddart aggi yemmdel yiwen wergaz yettwasnen aṭas deg Umezruy n Yeqbayliyen " Si Ḥend Welqadi", yellan seg twaccult n At Welqadi, yettfen tagelda n Kuku.
+
+D yiwet n taddart anda llan aṭas n inazuren, gar-asen kra seg tarbaɛt n Abranis (Karim, Belɛid). D taddart id yefkan daɣen yiwen wergaz yettwasen aṭas deg umezgun, waggi d Bubker Imaxxuxen.
+
+Tiẓiṭ Tiẓiṭ
+
+Tiẓiṭ d yiwet seg tuddar n At Yellilten, id yezgan deg udrar.
+Buɛidel Buɛidel
+
+D yiwet n taddart id yezgan deg lɛarc n At Yettura. Ar tama tayeffust d-taddart n Yexdaccen. Ar tama-s ufella, taddart n Mniɛ. Ar tama-s n wadda, d assif yekkan gar-as akw Taɣzut n At Yellilten.
+Ixdacen Ixdacen
+
+Ixdacen d yiwet n taddart n lɛerc n At Yettura. Taddart-agi tettwasnen s leccyax-is, s yimrabḍen-is.
+Zzubga Zzubga
+
+D yiwet seg tuddar n At Yellilten. 
+
+Taddart-agi tettwassen s yergazen-is (les cadres) yellan s waṭas deg dzayer, Waḥran. Tettwasen daɣen s tezdegt-ines, s nniḍam-is. Deg taddart-aggi tella tuddkli, twizi.
+
+Skren aṭas isenfaren (projets) ilmendad n yelmezyen akw d imezdaɣ n taddar-aggi. Deg taddart aggi ilmeẓyen lemden allallen n uẓawan (instruments de musique).
+
+At Aɛziz At Aɛziz
+
+D yiwet n taddart n lɛerc n Yellulen Umalu. Ar tama-s tayeffust tella taddart n Mzeggen. Ar tama-s tazelmaṭ d adrar n Ǧerǧer. 
+
+D yiwet n taddart anda imdanen-ines xeddem aṭas tafellaḥt.
+Iẓnagen Iẓnagen
+
+Iẓnagen llan di zik yiwet n tdukkli n teqbilin timaziɣin akwd Iznaten d Imeṣmuden. Ar ass-agi aṭas n teqbilin d yimḍiqen d twaculin semman iman-nsen s yisem-nni.
+
+Iẓnagen, «At Aẓnag», Aẓnag mmi-s n Abernus (Branis/Ibernas), d mmi-s n Maziɣ, lejdud n akk yimaziɣen. Amuzilg n yisem Iẓnagen yekka-d seg waɛraben n zik i wumi ur yezmiran ara ad susren imesilwen imaziɣen am Yag (G) ur yellan ara s teɛrabt. 
+
+Ad nufa daɣen imuzligen-agi : Ifnayen, Znaga, Zenaga, Sanaga, Senaja, Senhadji, Sanhdja, Sanhadja, Çanhaja, Sinhâja.
+
+Iẓnagen llan wehḥric n Nnumidiya n zik, zedɣen-tt si zik. Iẓnagen llan imir-nni ddren akk deg uxxamen di Tmazɣa akk d Leqbayel, Ijnaten, Imeṣmuden d Yektamen. 
+
+Iẓnagen kkan-d seg unẓul-utraman n Uneẓruf, maca sakin d-yusin iɛraben, tiqbilin regglent ar ugafa ar Weṭlas Alemmas ar Aṭlas n Uneẓruf d Tmurt Leqbayel.
+
+Isem n wasif Sinigal yekka-d seg yiẓnagen, s ufus n Tburtigizt Sanaga.
+
+Gar teqbilin n yeẓnagen ad nufa :
+
+Tixencelt Tixencelt
+
+Tixencelt neɣ Xencla, d tamdint n tmurt n yicawiyen d tamaneɣt n twilayt n Txencelt. Tezga-d deg temnaṭ n Wawras deg wegmuḍ (ccerq) n Ledzayer, ar 1122 lmitrat deg tfellayt af yillel. Llan deg useggas n 2008 ugar n 108 580 imezdaɣ di tɣiwant-nni. 
+
+Tixencelt tezga-d deg ugafa n twilayt n Txencelt, ar 470km seg Ldzayer d 100km seg Tbatent ar wegmuḍ. 
+Bnan tamdint-a deg ukessar n iɣallen imezwura n udrar n Wawras, ar utaram a d-nufa yiwet teqacuct i wumi qqaren Ixf n Sidi Ɣris. Deg wegmud illa yeɣzer n Baɣay.
+Tawrirt Aɛli Wnasser Tawrirt Aɛli Wnasser
+
+Tawrirt Aɛli Wnasser d yiwet n taddart id yezgan deg lɛarc n At Yettura. Ar tama-s tayyefust llan Imezwaɣ, At Manṣur, Buɛidel.
+
+- At Sɛid
+- Illemassen
+Aɛumar Aɛumar
+
+Aɛumar d taɣiwant n twilayt n Tubiret i-d yezgan ar ugugas utraman (confin) n Tmurt n Leqbayel af wakalen n yinezliwen xas ttweɛraben aṭas imezdaɣ deg-sen d sruḥen tamaziɣt am tmiwa am Delles neɣ Lexḍareyya. 
+
+Aɛumar tezga-d ar 95 km seg Ledzayer Tamanaɣt, deg ubrid aneɣlaw wis semmus (RN 5) i d-yettawin ar Qsenṭina. Amkan agejdi n tɣiwant illa gar RN5 d RN25 (abrid i-d ittawi si Tacentirt ar Tizi Wezzu) ar wekan i wumi imezdaɣ qqaren-as "Bracema" (Aɛumar-Tamersiwet)
+
+Aɛumar di 1998 tela azal n 20 532 imezdaɣ, tigti deg-sen reggwen taremɣa (terrorisme) deg tuddar d ixliǧen deg useggasen n 1990. 
+
+D axliǧ agejdi n tɣiwant, bnan-it tama n tmersiwet (gare)
+
+Asif n Sabaw Asif n Sabaw
+
+Asif n Sabaw d asif agejdan i d-yezgan di tmurt n Iqbayliyen, Aɣbalu n wasif-a d idurar n Ǧerǧer yakk d iɣezṛawen i d-yettaken seg yignan niden deg ugezdu n Tizi Wezzu, Yettazzal alamma yewweṭ ar Adles anda iy kettem iman-is deg yilel agrakal. Sabaw yefka-d isem-is ar uzaɣar i d-yezger wasif-a, azaɣar-nni anda tella waṭas n tkerrazt (tfllaḥt) seg Tirẓaẓin ar Tadellest.
+
+Sabaw d amkan adeg aman n Ǧerǧer d Wekfadu ittemlillen. Akk n isfaen ar ufella d yiɣezran ḍeggren deg wasif n Sabaw akwd Wasif n Messuya di tama n Iferḥunen. 
+
+Ǧerba Ǧerba
+
+Ǧerba d tagzirt, di tama n Gabes azɣar deg teftist n Tunes. 
+
+Ǧerba ɣur-es anezwi alegɣan adeg nufa akal d acebḥan. "Tamaneɣt"-ines d Ḥumt Suq anda zedɣen ugar n 65 000 n yemdanen. Tella aṭas n tamerrit deg tagzirt-a, acku tiftisin d yiṭij n tegzirt d tiɣerfranin s aṭas i yemerrayen seg akk n Turuft i d-yusan (Fransa, Alman, Ṭelyan). Yerna surrten usaru amzewaru n saga n Star Wars di Ǧerba (S tmaziɣt : Ṭrad n Yetran) deg useggas n 1977. 
+
+Di tagara, nezmer ad negra tamawt belli deg tegzirt n Ǧerba llan ineselmen n ɛibadiya akwd kra n wudayen dinna. 
+
+Seattle Seattle
+
+Seattle d tamdint n Awanek n Washington deg ugafa-utraman n Yiwunak Yeddukklen,tezga-d gar Puget Sound d Ugelmim Washington, ar 165km seg talast gar Iwunak Yedduklen d Kanada. 
+Seattle d yiwet temdint tigejdiyin af yiri n Agaraw Amelwi. Diɣ asagen ameqqran f tnezzutt gar Asya d Tamrikt. 
+
+Llan 630 320 imezdaɣen deg temdint-agi, semman-as ɣef wayen yiwen uɣella asrew Seattle. Qqaren-as daɣen Jet City acku d Boeing ara tettwasen Seattle akwd tiẓegwa-s tizegzawin. 
+Agemmay amaziɣ alatin Agemmay amaziɣ alatin
+
+Agemmay amaziɣ alatin yefsa ɣef ugemmay alatini. I umaziɣ n ugafa (Merruk d Lezzayer d Libya), agemmay Amaziɣ Alatin isseqdac 23 isekkilen Ilaṭiniyen imɣulen d 10 isekkilen-nniḍen n ugemmay Alatin.
+
+Agemmay-agi d agmud n uzdal n agemmay Alatin i tirawt n tileqmant timaziɣint am Taqbaylit d Tarifit, seg iseggwasen 1840. I ɛedda s aṭas isseɣwelen, uqbel ad yaweḍ ar lqem amiran.
+
+Iqbayliyen semman-as Tamɛemmrit, tajmilt i Mulud Mɛemmri, amesnilsi i t-yersan "deg udɣaɣ" aseggas n 1973.
+
+Agemmay Amaziɣ Alatin isseqdec abaɛda i tirawt n amzun akk tileqmant n tutlayt Tamaziɣt. Yezmer daɣen ad yeseqdic i tutlayin n Merruk (tid i seqdacen Tifinaɣ).
+
+NB: Zik nesseqdec, "ț", "ʐ", maca mači tura (Kamal Naït-Zerrad, Tajerrumt Tatrart n Teqbaylit).
+
+
+Tira: I ubeqqeḍ n isekkilen s Tifinaɣ, zdem afaylu agi : ircam.ma, dɣa ḥrez it ddaw "C:\windows\fonts" (beddel "C" s usekkil n uẓar ma Windows ur yeserkeb ara deg uḍebsi C).
+
+(*) Agraw Imaziɣen
+
+
+
+Zichyújfalu Zichyújfalu
+
+Zichyújfalu d yiwet n taddart n 941 imezdaɣ, i d yussan di temnaṭ n Fejér, Hungri, s zdat n Székesfehérvár.
+
+tiɣiwanin i as-d-yezzin d Seregélyes, Szabadegyháza, Gárdony akk d Pusztaszabolcs. Taddart tussa-d rrif n rraya n tmacint 44 (Székesfehérvár–Pusztaszabolcs).
+
+lkaɣeḍ amenzu i d-yuddren Zichyújfalu yettwaru ass n 1239.
+Puella Magi Madoka Magica Puella Magi Madoka Magica
+
+Puella Magi Madoka Magica (魔法少女まどか☆マギカ, "Mahō Shōjo Madoka Magika?", Magical Girl Madoka Magica) (2011) d yiwen u manga shôjo/magical girl (unuɣ yettembiwilen n Japun) i yura Gen Urobuchi.
+
+Deg temdint n Mitakihara, yiwet teqcict n 12 iseggwasen akk d-temdakwelt-is Sayaka Miki mugrent yiwen u mexluq (isem-is Kyubey) i sent idisumren yiwen ugatu akken ad uɣal-ent ttiqcicin teseḥḥirin (Magical Girl), i wakken ad nnaɣ-ent tiseḥḥarin n diri, acku d nutenti id yeskaray-ent deɛwessu deg umḍal. Yiwen n wass, tusa-d yiwet n teqcict tamaynut ɣer uɣeṛbaz andi teqqar Madoka. Taqcict agi ur-tebɣa-ara at'teǧ attuɣal taqcict taseḥḥart. Ass id ɣtes Madoka atteqbel agatu n Kyubey, tfaq-ed belli tudert n teqcict taseḥḥart ur-tushil-ara...
+Kawabata Yasunari Kawabata Yasunari
+
+Yasunari Kawabata (川端 康成, "Kawabata Yasunari"?) ilul ass 14 yunyu 1899 di Osaka, yemmut ass 16 brir 1972, d amyaru n Japun. Yewwi arraz Nobel n tasekla di 1968.
+
+14 yunyu 1899, deg tallit n Meiji, i d-ilul Kawabata Yasunari, war ccek, d yiwen umyaru ameqṛan n tasekla tajapunit. Ilul di Osaka aseggas n 1899, yeggujel segmi i yella d amecṭuḥ. Ilul d amarir, tadawsa-ines teqqim ur teǧhid ara akk tamgeṛt-is. Yerna, yeɣra taɣuri ɛlayen, imir-nni yewwi anefḍis seg tesdawit n Tokyo (1924).
+
+Deg 1924, yessufeɣ tasɣunt "Bungei Jidai" akked umddakkel-is Yokomitsu Riichi. Deg-s, yura yiwen ungal "Izu no odoriko" (taceṭṭaḥt n Izu). Deg 1935, yura "Yukiguni" (Tamurt n wedfel), adlis-is i imusan aṭas.
+
+Deg 1968, yewwi arraz n Nobel n tasekla, swin i yuɣal musan deg utaram. Yemmut deg 1972. 
+
+Yamen Yamen
+
+Yamen neɣ Tagduda n Yamen (Taɛrabt : Al-Jumhuriyah al-Yamaniyah, ﺍﻟﺠﻤﻬﻮﺭﯾّﺔ اليمنية), d tamurt taɛrabt i d-yezgan af yixef deg wenẓul-ataram n Taɛraba (Arabie), tamanaɣt-is d Ṣenɛa. Ɣur-s tiftisin akked Ugaraw Ahendi d Yilel Azeggaɣ. 
+Yamen yebḍa tilisa-nes d Tagelda Tasaɛudit deg ugafa d Ɛuman deg wegmuḍ, tesɛa tajumma taɣrudt n 527 970 km². 
+
+Zik-nni, Yamen yettwassen ddaw isem n Taɛraba Tumart (Arabie Heureuse), Yamen n wass-a yillul-d deg useggas n 1990 sakkin tadukli n Tegduda Tagdudant d Taɣerfant n Yamen (Yamen n Wenẓul) d Tegduda Taɛrabt n Yamen (Yamen n Ugafa).
+Maison Ikkoku Maison Ikkoku
+
+Maison Ikkoku (めぞん一刻 "Mezon Ikkoku?") d yiwen u manga n Rumiko Takahashi. Yeffeɣ-d di Japun s takwebbanit n Shôgakukan seg 1980 ɣer 1987.
+
+Yusaku Godai, yiwen unelmad ig xseṛen yak tikelt timzizlin akken ad yekcem ɣer tasdawit, yeɣtes yiwen n wass ad yeǧǧ tamezduɣt andi ig yettili netta ak d kṛaḍ yimedanen (Ichinose-san, Akemi Roppongi, d Yotsuya-san). Acku kṛaḍ agi ur-tettaǧǧan-ara ad iɣer.
+Dacu kan, ass-nni, tusad tamasayt tamaynut n tmezduɣt-nni n Yusaku. Yiwet n taǧǧalt n 30 iseggwasen i mi semman Kyoko Otonashi.
+Yusaku tehwa-yas aṭas Kyoko. Yerna, yesɛa yiwen amenzay ameynut, Shun Mitaka, yiwen uselmad n tennis. Yecbaḥ yernu d ameṛkanti.
+Tamellayt tanafrayt agi att-nzeg sa n iseggwasen. Aniwa ara yawin ul n Kyoko...
+Si Maḥmud Wazza Si Maḥmud Wazza
+
+Si Maḥmud Wazza d yiwen unaẓur ameqqran n tẓuri taqbaylit. D yiwet seg tgeǧda n uẓawan Aqbayli. 
+
+Si Maḥmud Wazza illul deg tama n Yeɣbuliyen deg At Wartiran, deg usegwas n 1924.
+
+Deg usegwas n 1938 iṛṛuḥed ar Lzzayer tamanaɣt f uḍar. Yeṭṭef lexdma deg Ben Ɛaknun. Di la Qasba n Lzzayer yemlal d inaẓuren am Ḥmed Meǧǧdul, Mulud Lbaḥri, Ḥaǧ Racid, Ḥaǧ Zerruq. 
+
+Deg useggwas n 1944 alami 1955 yella di Fransa.
+
+Yeccna deg Umaṭṭaf n teqbaylit deg usegwas n 1940 s lemɛawna n Ccix Nurdin. 
+
+Yeccna kra n tezlatin am : Aguǧil, Jet-iyi ad ɣenniɣ (1958), Lɛiq Tamuqrant, d waṭṭas n tezlatin n ddin (Ameddaḥ) akw d Lla Cṛifa, Lla Yamina, Lla Zina, Ccix Nurdin. Yesɛa nnig 100 n tuɣac. Imeslayen n tuɣac-is n Ccix Nurdin akw d Aɛmar Uḥadda. 
+
+Deg 1955 yesɛedda timzizelt (le concours), irrebaḥ-i-tt. Dɣa yekccem ar Rradyu n Teqbaylit. Di rradyu yekkat taǧewaqt, lefḥel, lɣida i marra inaẓuren n Rradyu n Teqbaylit.
+
+Yettiki di tedwilt "La Muḥamadya" deg fus n Ccix Lɛenqa akw d Aɛmar U Yaɛqub, Muḥ Akli (n At Wartilan), Aɛmar Ujelwaḥ. Deg tedwilt aggi n "La Muḥamadya" ulac tullawin yettikin deg-s. Nutenti sɛant tadwilt n ccna n ddin waḥden-sent. 
+
+Yexxdem akw d Ccix Leḥsnawi deg Fransa (deg usegwas n 1944), Akli Yahyaten, Daḥman Lḥarraci, Cṛif Xeddam, Ṭaleb Rabaḥ, Maɛṭub Lwennas, Lla Cṛifa, Lla Yamina, Lla Zina. Yessen daɣen wiyyad am Zerruqi Ɛellawa.
+Aɛmar Uḥadda Aɛmar Uḥadda
+
+Aɛmar Uḥadda d yiwen unaẓur ameqqran aqbayli. D yiwen gar imezwura n Rradyu n Teqbaylit.
+D acennay, yexxdem taɣen amezgun n ṭaḍsa s Teqbaylit.
+
+Anwa-t ? Illul deg usegwas n 1921 di tezniqt n Laḥna (rue des martyrs ) deg Lzzayer tamanaɣt. Izuran-is deg At Wartilan. 
+
+Deg 1937 yezweǧ. Ɣures 15 n igurdan. 
+Yella ixeddem deg "le port" n Lzzayer.
+
+Deg usegwas n 1942 yettiki d adrabki deg tarbaɛt n Meẓyan Buseksu. Yurar akw d Waɛrab, Muḥuc. 
+
+Asmi yuden Ccix Buseksu dɣa yeṭfi-tt Aɛmar Uḥadda. 
+
+Deg usegwas n 1945-1946 iṛṛuḥ ar tedwilt n Ccix Nurdin iwakken ad yeccnu s teqbaylit. 
+
+Deg usegwas n 1948 iṛṛuḥ ar Fransa anda yeccna.
+
+Yexxdem akw d Ccix Nurdin, Amrawi Misum, Ccix Aɛrab Awzelag, Yusef Abǧawi
+
+Yexxdem ama tuɣac ama d amezgun s teqbaylit ( Taccequft umi isemma taqbaylit deg usegwas n 1981). Yesker daɣen "les sketchs" : Yefraḥ yezweǧ, Aɛmar di ssuq (1985), Aɛmar di la cite, Aɛmar di Remḍdan.
+
+Da Aɛmar Uḥadda yesɛa azal n 30 n tezlatin deg rradyu n teqbaylit s teqbaylit. 
+
+Gar-asent llant: 
+
+- A baba sɛu laɛqel
+
+- Ulac wi ɛzizen felli
+
+- Amayaf
+
+- Attay yewwded lexrif
+
+- Asmi yella d afelaḥ
+
+- Ṭṭef kkan imi-k
+
+- Isem n yemma
+Dunkerque Dunkerque
+
+Dunkerque ("Duinkerken" s tahulandit) d tamdint deg ugafa n Fransa (Hauts-de-France). Tesɛa imezdaɣ.
+Créteil Créteil
+
+Créteil (asusru [kʁe.tɛj]) d tamdint tarumit n agezdu n Val-de-Marne, deg temnaṭ Île-de-France. Yella azal n imezdaɣen i zdiɣen tamdint-a deg useggas n 2009, gar-asen kra n Leqbayel. 
+
+Ar ṭrad n umadal wis sin Créteil tella d taɣremt tagamant, maca teẓra seg 1955 Créteil aṭas n teẓɣwin n ugmam n Mont-Mesly d wemasdag Charles-Gustave Stoskopf. Créteil tuɣal-d tamaneɣt n ugezdu n Val-de-Marne s yiwen tenaṭ (décret) n 1965. Seg wasmi bnan aṭas n yizudaɣen : Hôpital Henri Mondor, Préfecture, Hôtel de Ville, Palais de justice.
+
+Illa tmerwin igmamen deg tɣiwant n Créteil. 
+
+George Orwell George Orwell
+
+Eric Arthur Blair (d isem-ines s tidet) d amyaru Ingliz, ilul-d deg 25 yunyu 1903, immut deg 21 yennayer 1950.
+Yiwen seg yedlisen-is yettwasenen aṭas d winna umi yeqqar : 1984. 
+
+
+Minsk Minsk
+
+Minsk (Tarusit : "Мінск") d tamanaɣt n tmurt n Byelorusi. Zedɣen deg-s 1,9 imelyan imezdaɣen.
+Igzennayen Igzennayen
+
+Igezennayen d yiwet n tqebilt di yeffus (wenẓul-utaram) n Arif.
+
+Imdanen-ines qqaren-asen Igezennayen, nutni ssawalen (meslayen) s tutlayt Tamaziɣt.
+Tuddar imeqqranen di tmurt n igezennayen d : Icaweyyen (Aknul),Ajdir, Tizi Wesli, Bured,Ineḥnaḥen, Tala Tazeggwaɣt. 
+Igezennayen mutyen (ɣriben) aṭas ɣer Turuft d timdinin n Merruk am Taza, Fas , Ameknas , Rbaṭ ... Taza d tamdint deg illan aṭas n Igezennayen.
+
+Igzennay tella deg wammas n "userdas n tlelli" neɣ "Armée de libération" s trumit. Irumiyen semman tamawin n Aknul, Tizi Wesli , Bured" s "Akraḍan n Tmeṭṭant" neɣ s tefransist "triangle de la mort".
+
+Blaise Pascal Blaise Pascal
+
+Blaise Pascal ilul deg 19 yunyu 1623 deg Clairmont (Clermont-Ferrand n wass-a) deg Fransa, immut deg 19 ɣuct 1662 deg Paris. Yella d afelsuf, amsnulfu, d amaru afrensis.
+
+Alma Waklan Alma Waklan
+
+Alma Waklan (Tafrensist : Maoklane) d taɣiwant n tama ugafa n ugezdu n Sṭif deg temnaṭ Taqbaylit. Tezga-d ar 70km si Sṭif, deg ugafa llan Idurar N Ibaburen, deg wenẓul Ḥammam Gergur (Aɛrabwalen). 
+
+Kra n turdin mazal-iten i ttmeslayen s teqbaylit kan, gar-asen ad nufi : It Yeḥya, Zrur, Tizi N Brahem. 
+Ɣef wayen amiḍan n 2008, zdiɣen ugar n 15 715 imezdaɣ g tɣiwant-a. Lla Cṛifa Lla Cṛifa
+
+Lla Cṛifa, isem-is n tidett Wardya Bucemlal, tlul-d d It Ḥalla, taɣiwant n Ilmayen (di Burǧ Bu Ɛririǧ) aseggas n 1926. D tacennayt taqbaylit yellan seg tmezwura yesulin ccan i w-cewwiq d uḥiḥa. Tecna ɣef ddel, tecna ɣef lgirra, tecna ɣef yargazen d lxalat, tecna ɣef Rabbi d lawliyat.
+
+Akken id ţɛawad nettat s yimad-is, asmi tella tamecṭuḥt, t-kes tiɣeṭṭen g tmizar n xwali-s. Acewwiq-is musnaw di taddart ulamma imiren, di tmurt n leqbayel, d lɛib i teqcict ad tecnnu.
+
+Anda tesla i yenzizen u bendayer, a ţaɣiţ tawla a-ţaɛnu afrag anda yella wurar iwakken a-ţecnu d lxalat nniden.
+Asmi tessawwed 18 iseggasen di leɛmr-is, teǧǧa tamurt-is, teṭṭef abrid-is ar Lezzayer. Dɣa, deg tmaccint i tt-yewwin ar Lezzayer, tewwi-d acewwiq anda is teqqar "Bqa ɛla xir ay Aqbu, tura ifukk zhu".
+
+Kra n lweqt kan mi d sawwed ar Lezzayer, tameṭṭut n xali-s Lla Yamina n Yiɣil Aɛli, tewwi-tt ar Radyu anda tebda dɣa abrid-is di ccna. Tufa di Radyu Lla Zina Tawertilanit, Lla Wnissa Taxerfelliwt. Cwit kkan terna-d Lla Lǧida Tameqqrant, Ǧamila, Ḥnifa.
+tettɛawad-d di lweqt-nni yella kan "srid" (en direct) ulac asekles.
+
+Lla Cṛifa tettɛawad-d belli teccna ugar n 800 tezlatin. Assa, tid id-yegran ţid yellan di Radyu akk ţid teskles iw znuz.
+
+1) Tizlatin n Ddin
+
+
+2) Tizlatin n Trad
+
+
+3) Tizlatin n lfarḥ
+
+
+4) Tizlatin nniden 
+
+At Tizi At Tizi
+
+At Tizi d taɣiwant n ugezdu n Sṭif di tmurt n Ledzayer. 
+
+Taɣiwant n At Tizi tezga-d ar tama n ugezdu n Bgayet, ar 24 km si Buɛendas d 12 km seg Yilel Agrakal. Tamnaṭ-a d tamedrart di tama n Weqqas. 
+
+Ad nufi gar tudrin n temnaṭ : 
+
+Ahaggar Ahaggar
+
+Idurar n Ahaggar,neɣ s Tmaceq Idurar Uhaggar d idurar id yezgan deg Uneẓruf Ameqqran (Ṣṣeḥra) g wenẓul n tmurt n Lezzayer.
+
+Imucaɣ neɣ Imajeɣen (Imaziɣen n Uhaggar) ssawalen i yidurar-nni ("Idurar Uhaggar"), D isem i d-yekkan seg wawal Ahaggar (asget: "Ihaggaren") i wumi qqaren Ihaggaren (Inublen/Ccerfa) gar Imucaɣ n temnaṭ-a.
+
+Tamnaṭ tamedrart n Uhaggar ɣur-es tajumma azal n 540 000 km2, ugar tin n Fransa. 
+Taqacuct n yidurar-a tella d Tahat, deg 3004 lmitrat af yilel. 
+Ḍrifa Ḍrifa
+
+Ḍrifa d yiwet seg tcennayin tiqbayliyen n isegwasen n sebɛin-tmanyin. 
+
+Tella deg tarbaɛt (chorale) n Si Belḥanafi am Ǧegiga, Malḥa, Cabḥa. Tullas-agi ccnant aṭas n tuɣac akwd Twat Murad, Dalil Ɛumar, Sayǧi Belɛid. 
+
+Teccna deq-s n tezlatin id as yura Si Belḥanafi. 
+
+Tella daɣen deg tarbaɛt n umezgun n rradyu n teqbaylit anda turar deq-s n tceqqufin ar tama n Anisa, Nwarra, Ǧamila, Salima, Acruf Yidir, Buɛraba, Cabḥa.
+Drifa Drifa
+
+Drifa (Isem-is aḥqani d Zahra Ǧuder) d yiwet n tcennayin tiqbayliyen n isegwas n sebɛin-tmanyin.
+
+Tetteki deg nnuba umi qqaren "Icennayen uzekka", id yettqedim imiren Si Belḥanafi. 
+
+Tella deg tarbaɛt (chorale) n Si Belḥanafi am Ǧegiga, Malḥa, Cabḥa. Tullas aggi ccnant aṭas n tuɣac akw d Twat Murad, Dalil Ɛumar, Sayǧi Belɛid, 
+
+Teccna deq-s n tezlatin id as yurra Si Belḥanafi d Taleb Rabaḥ.
+
+- Awi-yid amendil-iw
+
+- Awid afus-im qqarbed (Si Belḥanafi)
+
+- Beddaɣ malaɣ (Taleb Rabaḥ)
+
+Tella daɣen deg tarbaɛt n umezgun n rradyu n teqbaylit anda turar deq-s n tceqqufin ar tama n Anisa, Nwarra, Ǧamila, Salima, Acruf Yidir, Buɛraba, Cabḥa.
+Ger tceqqufin igi tettiki, llant : 
+
+- Tamuɣli
+
+- Asensu n barra n temdint
+Sid Ɛli n At Qasi Sid Ɛli n At Qasi
+
+Sid Ɛli n At Qasi d yiwen n unaẓur aqbayli, yeccnan, yettekin deg waṭas n tceqqufin umezgun n teqbaylit. 
+
+D yiwen daɣen n unaɣmas n rradyu n Teqbaylit.
+
+Yebda deg tazwara n usegwas n sebɛin deg nnuba n imectuḥen n Maǧid Bali. Iɛdda sakkin ar nnuba n "Les Amateurs" - Iḥfaḍen n Wecruf Yidir. 
+
+Iɛedda ar tesgilt n Cṛif Xeddam deg usegwas n 1969. 
+
+Yeḥbes asegwas f lǧal n lehlak-is, umbɛed yuɣaled ar umaṭṭaf n teqbaylit anda yeskles adebsi-ines amezwaru. 
+
+Tizlitt-is tamezwarut "Acḥal iɣezzifed a yid" deg usegwas n 1972. 
+
+- Lḥenni
+
+- Ssuded ay aḍu
+
+- Ma ttruɣ
+
+- A lukan
+
+- Lakul (ar tama n Baḥbuḥ Ḥamid, Buɛraba, Cabḥa, Salima, Ḍrifa, Mḥenni, Anisa, Debbac). Tettwaskels deg usegwas n 1986. 
+
+- Asensu n barra n temdint (ar tama n Ḍrifa, Salima)
+
+-Tamuɣli ( taceqquft yura Si Belḥanafi, ar tama n Nwarra, Ḍrifa, Acruf Yidir, Anisa, Salima, Mhenni, Buɛraba, Debbac Rabaḥ)Twat Murad Twat Murad
+
+D yiwen n ucennay aqbayli n usegwas n 70. 
+
+Yeskles idebsiyen-is ar Maḥbubati.
+
+Iɛedda-d ar tilizri ( Télé) deg usegwas n 1979-1980, deg yiwet n tedwilt f Lɣazi.
+
+Iɛedda ar tedwilt n "Iḥefaḍen" sɣur Belqassem akw d Mḥenni At Waɛmiruc (Amroun).
+
+Iɛeddad deg "La Salle Atlas", akw d Wakli Yeḥyaten, deg usegwas n 1973. 
+
+Yexxdem daɣen yiwet n tmeɣra deg "Ḥusin Day", anda teccna daɣen Massa Buccafa, asmi tebda ccna kkan.
+
+- Lemḥibba n temziw (ixedmi-tt akw d Cṛif Nadir, Ǧamel Cir ar derbuqa) deg usegwas n 1971. 
+
+- Inna-s ( Akw d Cabḥa)
+
+- Nek d kem, ferqnaɣ ( Akw d Cabḥa)
+
+- Urriɣ tabratt i tin ḥemlaɣ
+Zira Zira
+
+Zira d yiwet n tneɣmast deg Umaṭṭaf wis sin (Amaṭṭaf Aqbayli) di Lzzayer. D yiwet daɣen yettarun deg Uɣmis La Dépêche de Kabylie s teqbaylit abrid i durt.
+Tamelyant Tamelyant
+
+Tamelyant (Tarumit d Teɛrabt: Miliana), d taɣiwant n wegmuḍ n ugezdu (wilaya) n Ɛin n Ddefla. Tela (tesɛa) azal n 39.662 n yimezdaɣen deg useggwas n 2008.
+Muṛad Zimu Muṛad Zimu
+
+Muṛad Zimu d acennay aqbayli ilulen deg taddart Acallam (taɣiwant Ifiɣa, Iɛeẓẓugen, Tizi Wezzu) ass n 2 Yennayer 1970. Yeɣṛa deg uɣerbaz n Iɛeẓẓugen alarmi i d-yewwi turagt n "BAC" aseggas n 1989, sinna yelmed Timettisent di tseddawit n Ldzayer. Imi d-yewwi turagt, yekcem ɣer s agezdir n tutlayt d idles Amaziɣ n tseddawit Mulud Mɛemmri di Tizi Wezzu aseggas n 1995 iwakken ad iheggi agerdas n Majister.
+
+Michel Platini Michel Platini
+
+Michel Platini (illul-d g 21 yunyu n 1955, di Joeuf, Mosel, Fransa) yella d amarir afrensis n ddabex n uḍar si 1972 ar 1987. 
+Takkunt Takkunt
+
+Aglim n uqqaru, am uglim nniḍen, yettekes ayen iqedmen, yeggar-d amaynut deg umkan-ines nebla m nettfiqi.
+
+Takkunt d cwiṭ n weglim (i d-yezgan ɣer tama n barra n weglim n uqqeru) id-yeksan lama3na damuqran aṭas, neɣ dahrawan aṭas, neɣ id-yeksan s waṭas ɣer ayen iwulmen.Amin Meɛluf Amin Meɛluf
+
+D yiwen n umyaru n tmurt n Lubnan, yettarun s trumit.
+
+Illul deg usegwas n 1949 deg temdint n Birut deg tmurt n Liban. Macca temzi-s isɛedda-tt deg Tmurt n Maṣar. Baba-s d yiwet umeɣnas (journaliste) yettwasnen aṭas aṭas.
+
+Yekkcem ar Tkadimit n Tsekla Tarumit deg usegwas n 2011.
+
+Ger yedlisen-is, llan : 
+Timri Musa Timri Musa
+
+Timri Musa d yiwet n taddart deg tama n At Ksila.
+
+Imezdaɣ-is ǧǧan taddart aggi deg usegwas n 1954. Imezdaɣ-is llan tura deg Lzzayer s waṭas. Tarwa-nsen tettemeslay ala s taɛrabt. Kra kkan seg-sen i mazal snen taqbaylit.
+Ḥaman Abḍella Ḥaman Abḍella
+
+Ḥaman Abḍella d Amaru Aqbayli ilulen deg useggas n 1936 di taddart n At Dawed deg Iɛeṭṭafen, lwilaya n Tizi Wezzu. 
+
+Ilul-d deg useggas n 1936 di taddart n At Dawed deg iɛeṭṭafen. D agujil n ubabat ɣer 9 iseggasen di leɛmeṛ-is. Yetturebba-d , am netta am atmaten-is, di twacult n Ddada-s deg Ihran (Wehran). Taɣuri-s yebda-tt deg uɣerbaz n Tmesgida deg At Aaqil. Abḍella amecṭuḥ, yella d uẓwiṛ, d uḥric, ilemmed s lemɣawla. Ger yiḍ d wass yufa-d iman-is di Lmadrasa El falaḥ di temdint-agi n Ihran (Wehran), ikemmel deg-s taɣuri. Abḍla yuki ɣef yiman-is, yefti wallaɣ-is ɣef tnekkit-is (identité) ɣef ayen meṛṛa icudden ɣer tutlayt-is. Di temdint-agi n Wehran iḥus belli yella kra it-yessemgaraden netta d wid is-d-izzin, ama di tutlayt neɣ di kra n leɛwayed. Lxilaf-agi iḥus-as am timmist di lǧetta, labaɛda ass-nni deg is-yugi Ccix-is deg uɣerbaz ad yemmeslay s teqbaylit “Tutlayt n lkuffar” (Luɣat El kuffar), rnu ɣer waya yewwet-it acḥal n tikelt ɣef teqbaylit yessexdem daxel n uɣerbaz-agi. Tadyant-agi teqqim-as i Abḍella Ḥaman d cama deg wallaɣ-is.
+
+Ass mi meqqar, yefhem ddunit ugar, yessen d acu d azref, d acu d tidett, yessen daɣen iberdan yettawin ɣer tmusni, yuɣal d win yeffuden tafat. Di tallit-nni yettwali atmaten-is nḥafen, agdud s lekmal-is yenneɛtab, yettwafareṣ sɣur ucengu afransis, dɣa yuɣal yefratt di rray-is akken ad yali s adrar, akken ad iḥareb aṛumi. Kra n isegwasen akken iserdasen n Fransa ḥebsent deg wedrar n Sidi Ali Benyub di tama n umalu n tmurt. Ḥekmen fell-as s 20 isegwasen n lḥebs. Isegwasen imezwura yesɛeddaten-id di lḥebs n Sidi Belaabas, syen akkin uɣalen wwin-t ɣer lḥebs n Lambèze, ("Timḍelt n nnig tmurt" akken is-isemma Muḥend Uharun). Dɣa di lḥebs-agi id-yerra Dda Abḍella "Tira" ger wallen-is. Xas akken yessen taɛrabt, yessen tafransist, maca netta yefren tira s teqbaylit. Yura aṭṭas n isefra, yura aṭṭas n wungalen, yessuql-d aṭṭas n yedlisen ɣer teqbaylit am : "Ṛubaɛiyat" n Omar Xayyam. Abḍella Ḥaman yeḥka-d ɣef ass mi yella di lḥebs yenna : "Yiwet n tikelt, seg waken iyi-fukent tewriqin, ifuk-iyi daɣen wemru, dmeɣ-d tacekkart n Ssima, ferqeɣ-tt, xaḍeɣ-tt am ukayit, rniɣ dmeɣ-d abruy n lbarud (tirgin), uriɣ yis isefra-w…(…)Aṭṭas iyi-sarɣen isardasen n Fransa seg wayen uriɣ."
+
+Akken tefra tegrawla, di 1962, Abḍella Haman yeffeɣ-d si lḥebs. Yemlal d Dda Lmulud At Maamar, yemmeslay yides ɣef teqbaylit, ɣef uguren id-tt-magaren iqbayliyen di Lezzayer. Abḍella Ḥaman yesteqsa Dda lmulud ɣef ssebba it-yeǧǧan ad yaru idlisen-is ḥaca s tefransist, acuɣer ur ten-yuri ara qebbel s teqbaylit? Dda Lmulud yerra-y-as-d, yennaya-s belli yuraten akken ad ten-fehmen merra leǧnas. Abḍella Ḥaman s wurrif d imeṭṭi, yeḥka-y-as tadyant yeḍran yides di Wehran, amek it-ttlaqaben ɣef teqbaylit-is, amek is-ugin ad yemmeslay s tutlayt-is, yenna-y-as daɣen belli ilaq yal amusnaw aqbayli ad yaru s teqbaylit-is, mači ḥaca s tefransist kan neɣ s taɛrabt. Lmulud Maamri iɛuhed seg wass-nni Abḍella Ḥaman dakken tira-s ad d-tili ḥaca s teqbaylit, ma d ayen iɛnan tira s tefransist ad d-tili ḥaca i lmend n teqbaylit.
+
+Ass-agi Dda Abḍella yettidir di Wehran, yesɛa 76 iseggasen di tudert-is. Ayen merra yura yefka-t i Useqqamu Unnig n Timmuzɣa (H.C.A) akken ad t-id-sizergen. Dda Abḍella d ameɣnas di tili, d win ur yettzuxxun s wayen yefka i tmaziɣt, d win yefkan melba ceḥḥa i tutlayt, i tsekla akwed yidles amaziɣ.
+
+
+Ɛumar Xeyyam Ɛumar Xeyyam
+
+Ɛumar Xeyyam d amyaru, amusnaw afarsi, ilul ass n 18 Mayyu aseggas 1048 di Nicapur di tmurt n Fars, ass-a Iran, yemmut ass n 4 Dujember aseggas 1131. Yura tamedyazt-is s tfarsit, ma d tizrawin tussnawanin d inaydinyen nniḍen yura-ten s taɛrabt.
+Tawilayt n Lezzayer Tawilayt n Lezzayer
+
+Tawilayt n Lezzayer d agezdu i d-yezgan deg ugafa n tmurt n Lezzayer, gar uzaɣar n Mettijet ed Yilel Agrakal. D nettat ay d tanebḍit tamecṭuḥt akk seg yidis n wakal, maca deg twilayt-a ay d-tezga temdint n Dzayer, tamaneɣt n tmurt yerna d tamdint tadzayrit tameqrant akk). Tajumma n twilayt n Dzayer 1.190 km2 (yikilumitren imkuẓen). Zedɣen-tt 2.882.897 n yimezdaɣen.
+
+Llant 57 tiɣiwanin deg ugzdu-a, gar-asen a nufi 
+
+Azwaw Kebbus Azwaw Kebbus
+
+Azwaw Kebbus (ilul deg 20 Yebrir 1952), d amarir adzayri n tkurt n uḍar. Yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel (deg 1972-1973).
+Aɛmer Imac Aɛmer Imac
+
+Aɛmer Imac (s tlatinit : "Imache Amar"), d argaz n tesertit Aqbayli, ilul ass n 7 Yulyu 1895 deg taddart n At Meṣbaḥ Tamurt n Iqbayliyen deg tɣiwant n At Dwala, yemmut ass n 7 Fuṛaṛ deg useggas 1960.
+
+Deg yiwet n taddart, isem-is At Mesbaḥ n tɣiwant n At-Dwala, ass 07 n yulyu n useggas n 1895, ilul-d yiwen n llufan semman-as Aɛmer Imac. Tawacult-is d tin i ixeddmen tafellaḥt seg zik, am twaculin meṛṛa n temurt n Leqbayel.
+
+Aɛmer, yekcem ɣer uɣerbaz, asmi yesɛa tmenya iseggasen deg leɛmeṛ-is, aɣerbaz i d-yusan deg taddart n Tegemmunt Ukerruc. Yeffɣ-d seg-s deg useggas 1908. D yiwen i yezemren, sin iseggasen kan mi i d-yeffeɣ yebda leqdic deg useggas 1910, armi qrib ad yewweḍ ṭṭrad agraɣlan amezwaru n 1914, yekker yunag ɣer Fransa.
+
+Yufa-d dinna axeddim, deg yiwet n teḥanut. Aɛmer yessen axeddim-is akken iwata. Ur yelli ara d aɣrib yeqqimen deg yiwen wemkan, ɣas ulama ixuṣṣ din kra n ttawilat, yessen ad iɣer, am wakken daɣen yessen ad yaru akken iwata tafransist. Armi d aseggas n 1926 i d-yufa amkan i t-iɛejben. Sutren-as ad tessalin d aqerru n yixeddamen.
+
+ɣas ulama deg wuṭṭun wis ɛecra n weɣmis El Umma n wayyur n yebrir 1933, i d-iban i tikkelt tamezwarut yisem n Aɛmer Imac d amyaru aɣella. Aɛmer yettaru si zik, maca s yisem nniḍen. Yeqqim deg weɣmis El Umma armi d aseggas 1937, d aɣmis i s-yerran azal, i s-yefkan udem ama di tmurt ama di berra.
+
+Tmenya n yiseggasen n lxedma, armi d aseggas 1933, anida d-yufrar deg wegraw n 28 mayu 1933 d amaray amatu n Yetri n Ugafa n Tferka. D aɣelnazri ɣef Lezzayer Tazzayrit, di tmurt n yeɛdawen, i lmend n umennuɣ-is s tuffra, yettwattef ɣer lḥebs ass n 5 deg unbir 1934, yerna ixelleṣ 200 frank n lexṭiyya. Mi i iɛedda di ccreɛ ttren-t, tirririt-is : « nefraḥ aṭas aṭas, mi d-tewweḍ tegnit am tagi, i tikkelt tamezwarut, i tikkelt tamezwarut, 101 iseggasen ayagi, ad d-nssuɣ lmeḥna-nneɣ zdat n teɣdemt tafransist, ad teslem awal-nneɣ s yimeɣnasen n ugafa n tfarka ». Setta n wayyuren i yeqqim, yeffeɣ-d deg wayyur n mayu 1935.
+
+Ur yuɣal ara ɣer wemkan-is n lxedma, sebba ɣef umennuɣ aserti, yelha-d d Yetri ENA. D bab n tidet, yessawaḍ awal-is. Degmi i d-yufrar deg useggas 1935 ɣer tama n uselway n Yetri ENA Meṣṣali Lḥağ. Ma d aselaway amezwaru, seg useggas 1924 ar 1926, isem-is Ğeffal Muḥamed i d-ilullen deg useggas n 1885 di taddart At Ḥag n tɣiwant Irğen.
+
+Seg asmi i iruḥ, Messali ɣer umdakkel-is Cekkib Arslan ɣer Genève, deg wayyur n wunbir 1935 ar yunyu 1936, d Imac, Yaḥyawi, Nwira d Rağef i iheddren s yisem ukabar n Yetri, armi d-yuɣal Meṣṣali di tallit n Tirni Taɣerfant1. yessaweḍ lḥal sin imddukkal-a, i tikkelt tamezwarut, ur msefhamen ara, anwa i d abrid ara awin deg unebdu 1936, ay-a sebba-ines d tamuɣli ukabar ɣef tkebaniyin n lɛesker agraɣlan2, anida Aɛmer Imac yugi ad yili ɣer tama n leḥkem n Tirni taɣerfant n Spanyul, acku aneggaru-ya yugi ad yeqbel timunent i wid yellan seddaw n laɛnaya-ines, ladɣa tamnaḍt n Rrif. Tugin-agi n uttekki n Yetri ENA ur yelli wemsefhem d Ukabar Azduklan Aṛumi (PCF) di tallit n Tirni taɣerfant.
+
+Imac ur yessusum ara, yezga yeqqar-d ayen i t-iceɣben, di lweqt anida tamuɣli n Ukabar Azdukklan Aṛumi ɣef Blum Violet ur telhi ara. Deg tirririt n Aɛmer Imac i wid yellan deg-s, yenna: "ṭṭfen amkan n yir rraṣa, ay imdukkal n yeɛdawen". Ma d tamuɣli-ines ɣef Blum yenna : "ur yelli d ayen yelhan, d akellex kan fell-aɣ".
+
+Seg tallit-nni, amennuɣ ger Aɛmer Imac d Messali yettnerni. Mi d-yehder wegraw n Yetri n Ugafa n Tfarka, i d-yeḍran ass n 27 di yebrir 1936, di temdint n Grande aux Belles, zdat n 500 n yimeɣnasen, Aɛmer yerfed awal, yesmekta-d deg-s amezruy n ukabar n Yetri, yenna: "d nek i yellan s deffir n tlalit n Yetri ENA", seg tama nniḍen yenna, amek Messali ur yettwaṭṭef ara ɣer lḥebs deg useggas 1935, d acu i d sebba? Mi yesla ttɛeggiḍen kra n yimeɣnasen s uselway Messali, yerra-yasen : "tiddukla ilaq ad teddu d wahil-ines mačči ddaw n ufus n yiwen wergaz".
+
+Ɣas akken yeḍra yid-s wannect-nni, Aɛmer yeqqim, yettkemmil amennuɣ deg ukabar n Yetri, d imenɣi mgal ukabar n Tirni Taɣerfant, acku d akabar-agi i d-yeglan s uselyen n Yetri n Ugafa n Tferka. Deg awal-is, d amaray amatu yenna : "d akabar n Tirni Taɣerfant i d sebba n uselyen n ukabar-nneɣ". Amgirred ger Aɛmer d Messali irennu ula di lweqt n lḥeṛs mgal Fransa, messali yesuffeɣ-d yiwet n tikti ɣef tlalit n Umnir 1Azzayri. Si tama tayeḍ, Imac yessuter timunent i tmurt n Lezzayer. Ɣas ulama yella ger-asen wugur aserti, sawḍen ad mlilen, Aɛmer yesɛa kan deffir-s imeɣnasen d Lqbayel, ma d Messali yesɛa ula d netta wid n temnaḍt-is. Di temlilit-agi Aɛmer yerfed awal, yefka-d amedya n tmurt n Leqbayel yellan si zik, tessen amek tetteddu s tlalit n useqamu agdudan, d amgdul, ula d fransa neɣ timura nniḍen mazal ur ssinent walen-agi. Ugur aserti yellan si zik, maca iban-d aya-a kan, ger imeɣnasen, amek ara tili Lezzayer ɣer zdat, d taɛrabt d tineslemt neɣ d tin n yedles d tutlayt n tmaziɣt.
+
+Mi yebda ṭṭrad agraɣlan wis sin, yal yiwen yesmuqul d acu ad d-yawi, d acu ad d-yaker neɣ ad d-terbaḥ, ma d Aɛmer ur d-yelhi d yiman-is, d win yettzidin di leqdic. Taggara n useggas 1938, yeḍra-d di Fransa wegraw aɣelnaw2 i d-yettwaheggan s tiktiwin n Imac d wemdakkel-is Yaḥyawi. Deg temlilit-agi, Imac, yewwet-d deg Fransa d tmura nniḍen i tt-yettɛawanen, tid yettwalin timura n Tefriqt Ugafa i nnfeɛ-nsent kan, yenna : « Ifriqiyen, yessaweḍ lḥal fell-asen, ad walin nnfeɛ-nsen di tmurt-nsen, ilaq ad ḍefren abrid n umennuɣ i wakken ad ḥarben ɣef tmura-nsen ». Mi d-yella uselyen n Ukabar n Uɣref Azzayri (PPA), Aɛmer yettwaṭṭef ɣer lḥebs, acku yella zik d amaray amatu n Yetri, ay-a yella-d deg useggas n 1940, yemlal dinna d yemdukkal-is n ukabar n weɣref, acku yugi ad yeqbel timlilit d leḥkem Vichy.
+
+Axeddim aneggaru n Aɛmer Imac yella-d deg useggas 1942. Iruh ɣer Lalman, ulac win yeẓran d acu n sebba, yuɣal-d ɣer Fransa ur yettu tasertit. Ṭtrad wis sin mačči d ayen yelhan i d-yewwi ama i netta ama i Tmurt-is.
+
+Ayyur n yennayer n useggas 1947, ikcem-d ɣer Lezzayer, ikemmel axeddim di Lezzayer Tamanaɣt. Deg waggur n fuṛar, yura tabrat n lefraq i yemdukkal-is yettidiren di Fransa. Yessefhem-d sebba n tuɣalin-is ɣer tmurt d temsalt yellan gar-as d Messali. D ayen yelhan i yexdem, yenna-d daɣen deg-s: « Ma tella tɣawsa, ilaq imenɣi fell-as, d wa i d abrid i weɣref akken ad yaweḍ ɣer lebɣi-s. D aya i d awen-ḍelbeɣ ! Ur yelli d acu ad aɣ-yebḍun. Ur ilaq ad tewwetem deg wayen yelhan, talla tɣawsa ur ilaq weɣref ad tt-yeğğ, ad tettwabeddel neɣ ad tettwaker,… »
+
+Aɛmer Imac, yessuter talalit n Ukabar n Tdukli Tazzayrit1 (PUA). Iswi-s nniḍen, yebɣa ad yessizdeg tineslemt, yerna ad tt-id-yekkes seg yir ifassen.
+
+Ma d ikabaren, Aɣref Azzayri d Umussu MTLD, iɣaḍ-iten lḥal ɣaf wayen d-yenna Aɛmer. Messali iɛedda-d di tudrin n tmurt n Leqbayel, yeqqar : « Aɛmer mačči d ayen yelhan iwumi d-yessawel ». Tiktiwin n Aɛmer Imac ttzidint, ttkemmilent, uɣent amkan deg ukabar n MTLD, kecment deg wallaɣen n yimeɣnasen seg useggas n 1949 ar 1951 akk d 1954 ar 1955. Ayen akk yexdem Aɛmer d iseggasen, d wayen yeḍran yid-s deg umussu-ines, ur yessawed ara ɣer lebɣi-s akken yebɣa, yuɣal yekcem ɣer ukabar UDMA n Ferḥat Ɛebbas.
+
+Deg useggas 1950, i d-yuɣal ɣer taddart-is At-Meṣbaḥ, seg wasmi tebda tegrawla tazzayrit, aṭas i d-yettasen ɣer-s, seg yemdukkal-is neɣ d imjuhad i wakken ad awin kra n tiktiwin d tmuɣli-ines ɣef tallit-agi, d usuter n tesɣunin d yeḍrisen ɣef umennuɣ ad awin.
+
+Aɛmer Imac yemmut ass n 17 fuṛar 1960, di taddart-is, At-Meṣbaḥ, taɣiwant n At-Dwala. Dda Aɛmer ilul-d d agrawliw, yedda s tiktiwin-is, yefka tudert-is i umennuɣ ɣef Lazzayer Tazzayrit, ayen nebɣu nini-t-id fell-as, ur nessawad ad d-neḥku ayen yexdem d iseggasen. Awal-is aneggaru i d-yenna di tebrat-is : « tanemmirt i kunwi, a ken-ctiqeɣ, kemmelt deg webrid n tegmat. Myeḥmalet akken iwata am tarwa n yiwet n twacult. Tanemmirt i kunwi ssarameɣ-awen tudert, ur yelli ad yid-wen yedru ad tɛicem deg tmurt-nneɣ Lezzayer…»
+
+Yura Aɛmer Imac iḍrisen :
+
+Idlisen ɣaf Aɛmer Mezdad :
+
+Ayt Ḥewwa Ayt Ḥewwa
+
+At Ḥewwa, d yiwet n temnaṭ n deg Cclef anda ar assa ttemslayen s Tmaziɣt ( Aqabylit).
+
+Tezgad ar 170 n ikilumitren ar umalu n Lzzayer Tamanaɣt, 95 ar ugafa n Cclef.
+Damus Damus
+
+Damus d yiwet n temdint id yezgan deg temnaṭ n Tipaza. Tamedint n Damus tezgad ɣef 70 ikilumtren ar umalu n Tipaza. Deg 2008, ɣur-es azal n 17,111 imezdaɣen. Zik di lawan n Irumyen, sawalen-as "Dupleix". Imezdaɣen-is llan seg teqbilin n At Ziwi, d Izatimen ed At Milak. 
+
+Damus tezga-d ar ugafa-utrim n twilayt n Tipaza, ɣef 50 km ar utrim n weɣrem n Cercal ed ɣef 55 km ar wegmuḍ (ccerq) si Tnes.
+
+Ɛmer n At Ḥemmuda Ɛmer n At Ḥemmuda
+
+Ɛmar n At Ḥemmuda, d yiwen n wergaz, n umeɣras n tlelli, n timunent n tmurt n Lzzayer.
+
+Illul deg usegwas n 1923 deg tama n Tasaft Ugemmun. Yettwanɣa deg usegwas n 1956 axaṭer d yiwen n umeɣras n Tizzayrit.
+
+Deg useggas n 40, yetteki deg yiwet n terbaɛt yekkaten ɣef Lzzayer Tazzayrit, anda ilaq ad yilli wemkan i Tmaziɣt (ladɣa Taqabylit).
+
+Ɛmar At Ḥemmuda aẓar-is n taddart n Tasaft Ugemmun deg tama n Ibudraren, deg tlemmast n wedrar n Ǧerger. Yettili-yas i "colonel" Ɛmiruc (Ɛmiṛuc At Ḥemmuda). 
+
+Ɛmar At Ḥemmuda yella yeqqar deg uɣerbaz "Ecole Normale" di Buzriɛa deg Lezzayer. Yeɣra daɣen deg tama n Bufarik, Tamelyant akked Benɛknun. 
+
+Di Benɛkun yetteki deg terbaɛt i wumi qqaren "Tarbaɛt n inelmaden n Tesdawit n Benɛkun" ar tama n Ḥusin At Ḥmed, Saɛid Cciban, Ɛumar Usediq, Muḥend At Ɛemran, Bennay Waɛli.
+
+Asmi yexsar akayad-ines n le bac, yekkcem dɣa ar ukabar n PPA anda yennuɣ ɣef Lzzayer Tazzayrit si tazwara n usegwas n 1942. 
+
+Ɛmar At Ḥemmuda d yiwen n umeɣnas n terbaɛt n "l'OS", tarbaɛt n umenuɣ tufirt, yettusemma ɣef uqarruy n terbaɛt-agi deg tama n tmurt n Yeqbayliyen (kabylie). 
+
+Deg useggas n 1948, Ɛmar At Ḥemmuda yettusemma d amazwar (candidat) deg tama n Useqqif n Tmana (Micli). 
+
+Cwit n lweqt, ifaq i tektiwin n ukabar n ugdud azzayri (PPA), dɣa yeɛreḍ ad yessekcem timuzɣa deg ukabar-agi akk di tektiwin n ukabar-agi. S waya i d-yella gar wid i yessekren ayen i wumi semman "la Crise berbériste" deg usegwas n 1949. Cwiṭ n lweqt kkan, Aɛmar At Ḥemmuda yettwaṭṭef ger ifassen n Fransa, anda yekcem ɣer lḥebs di Blida.
+
+Asmi yella deg lḥebs di Blida, akabar n Ugdud Aɣerfan n Lzzayer (PPA), yessufeɣ-it di lufaq. 
+
+Deg useggas n 1950, Fransa tserreḥ-as, yeffeɣ-d si lḥebs. Asmi i d-yefaɣ si lḥebs, yuɣal ixeddem di Lzzayer ar tama n Mbarek n At Mangellat akked Baccir Bumaɛza. 
+
+Asmi i yekker ṭrad n 1954, yettwateḥem am "wemdakul n tektiwin n Messali Ḥaǧ" (yuggin di lawan-nni traḍ d umenuy ɣef timunent n tmurt n Lzzayer s leslaḥ). 
+
+Dɣa yettwanɣa deg usegwas n 1956 ɣer f ufus n kra n yemjuḥad (ALN) deg tama n At Waɛban (Aqbil ).
+Adrum Adrum
+
+Adrum asegt: "Iderman", d agraw n twaculin yedduklen garasent s wassaɣ n tegmatt (n tmusni) maci alamma yella gar-asent wassaɣ n idammen.
+
+Agraw n iderman yecrek wakal, mi ara dduklen d Taddart, akka igant tuddar n tmurt n leqbayel
+
+ẓer daɣen
+Axaṛṛub
+Tawacult
+Axaṛṛub Axaṛṛub
+
+Axaṛṛub asegt: "Ixerban", d agraw n twaculin yedduklen s wassaɣ n idammen.
+
+Agraw n ixerban mi ara dduklen s wassaɣ n tmusni (tegmatt) ad suffɣen Adrum
+
+Bennay Waɛli Bennay Waɛli
+
+Bennay Waɛli d yiwen n umeɣnas n timunent n tmurt n Dzayer. Illul deg tazwara n isegwasen n ɛcrin, yemmut deg usegwas n 1957. 
+
+D yiwen n umeɣnas daɣen n timuzɣa, n Lezzayer anda ilaq ad yilli umkan i Tmaziɣt. 
+
+Bennay Waɛli illul deg taddart n Lǧemɛa n Sarriǧ deg lɛarc n At Frawsen. Asmi yella d amectuḥ, Bennay Waɛli yeffeɣ deg taddart. Iṛuḥ ar temnaḍt n Lezzayer am waṭas n Yeqbayliyen di tallit-nni. 
+
+Yekcem ar Ukabar n Wegdud Azzayri (PPA) deg tezwara n isegwasen n rebɛin. Yettusemma-d d aqarru n ukabar-aggi deg tama n Ǧerǧer. 
+
+Yettiki daɣen deg terbaɛt yettwassnen s yisem n "Groupe d'étudiant de Ben Aknun", ar tama n Ḥusin Nat Ḥmed, Ɛumar Usediq, Aɛmar At Ḥemmuda, Mbarek n At Mangellat. Tarbaɛt-agi ad tuɣal ad tennaɣ ɣef umkan n Tmaziɣt deg Lzzayer. D Bennay Waɛli ara yillin ɣef uqarruy n terbaɛt-agi.
+
+Ɣef wanect-a Bennay Waɛli yettwanɣa deg useggwas n 1957 deg taddart-is.
+Mbarek At Mengellat Mbarek At Mengellat
+
+Mbarek n At Mengellat d yiwen ilemẓi yettekkin deg ukabar n Ugdud Azzayri deg iseggwasen n rebɛin. Yetteki daɣen deg tarbaɛt yettnaɣen ɣef umkan n tmaziɣt deg Lzzayer.
+Agatha Christie Agatha Christie
+
+Agatha Christie neɣ s yisem-is ameqqran Agatha Mary Clarissa Mille, tlul deg 15 ctamber 1890, temmut deg 12 yennayer 1976 (ar 85 iseggasen). Nettat d tamarut s Tenglizt.
+Herbert George Wells Herbert George Wells
+
+Herbert George Wells d amaru ingliz, illul-d deg 21 ctanmbir 1866, yemmut deg 13 ɣuct 1946.
+
+Floor Games 
+Sadeq Abǧawi Sadeq Abǧawi
+
+Deg yisem-is n tidett, Sadeq Buyaḥya. D yiwen unaẓur, acennay, i ilulen deg tama n Bgayet di 1907. Yemmut ass n 7 yennayer 1995. 
+
+Baba-s n taddart n Kuku deg temnaṭ n At Yeḥya (Tamurt Ufella). Sadeq Abǧawi yennum yettruḥ ɣef taddart-agi nsen seg wasmi yella d amectuḥ. Tawacult-is, netta, ur qdiɛen-ara akk taddart-nsen ansi id-kkan. 
+
+Sadeq Abǧawi zik i yebda ccna, laɣda ccna tandalusit (Andalou). Mucaɛ aṭas di ṣṣenf-agi n ccna. 
+
+Deg useggas n 1933 alami d 1938, yella ɣer uqerruy n tarbaɛt n ccna Tandalusit umi semman "Lmussilya". Dɣa deg webrid-is di ccna yaggi tandlust, iruḥ alami di Tala Yemsan (Tlemsen) anda yelmed kra n nnubat, anda id-yerna tamussni. 
+
+Yettwasen daɣen s tezlatin yura s teqbaylit i waṭṭas n icennayen n tallit-nni. 
+
+Asmi telli "rradyu" n Bgayet deg useggas n 1946, Ccix Sadeq Abǧawi yuɣal d bab n uẓawan (chef d'orchestre), yesɛday-d daɣen tidwilin di rradyu-yagi. 
+
+Deg tedwilin-is i bdan deqs n icennayen id-yufraren tallit-nni amzun Abdelwaḥab Abǧawi, Yusef Abǧawi, Ameqqran Agawa, Ccix Lmuḥub, Lɣazzi.
+
+
+Hommes et femmes de Kabylie, tome 1, sous la direction du professeur Salem Chaker, Edisud.
+Muḥemmed Idir n At Ɛemṛan Muḥemmed Idir n At Ɛemṛan
+
+D yiwen ugrawliw azzayri, aqbayli, illulen deg taddart n Taqidunt deg tama n At Wasif. 
+
+Yettiki di tarbaɛt umi qqaren "Inelmaden n tsenawit n Ben Ɛkun", tarbaɛt ig ɛarden ad sekccem Timuzɣa (Taqbaylit) deg ummenuɣ ɣef tlelli d timunet n tmurt n Lzzayer. 
+
+D yiwen i yerẓan asalu n ccna ɣef tmaziɣt. D netta i yurran ccan yuɣalen d azamul n Imaziɣen marra, umi isemma "Kker a mmi-s Umaziɣ".
+
+Yurra tizlatin nniden ɣef umennuɣ, tilleli, timuzɣa. 
+
+D yiwen seg yergazen id yewwin aṭas n imeslayen sɣur tantaliwin n tmaziɣt yemxxalafen. Yewwid imeslayen n "Tilleli", "Amaziɣ". 
+
+Yidir At Ɛemran yettwaḥbes seg 1956 alami d 1958. 
+
+Yidir n At Ɛmran yella daɣen ɣef uqarru n Usqamu Unnig n Timuzɣa (HCA) deg 1994 alami di 2004. 
+
+Arezqi U Lbacir Arezqi U Lbacir
+
+Arezqi U Lbacir d yiwen n wergaz yettnaɣen ɣef tlelli "Bandit d'honneur", deg tama n Ukeffadu, Tamgut, Iɛekkuren.
+
+Arezqi U Lbacir, ilul deg useggas n 1859 deg tama n Buḥini. 
+
+Baba-s qqaren-as Bacir Aɛli N At Aɛli, ma d yemma-s qqaren-as Tasaɛdit Taǧibat. 
+At Welqadi At Welqadi
+
+D yiwet n twaccult, yeṭṭfen tamnaṭ n Ǧerǧer ger lqar wiss seṭṭac, yeɣlin asmi id wwḍen irrumyen ar Lzzayer.Orhan Pamuk Orhan Pamuk
+
+Isem-ines n tidett Ferit Orhan Pamuk, d yiwen n umaru aterki. Ilul deg ass n 7 deg wayyur n yunyu deg useggas n 1952 deg temdint n Stanbul. 
+
+Idlisen-ines ṭṭfen taqacuct n yedlisen deqs n lweqt. Nzan azal n 12 imelyan n yedlisen-is, ubayen, mucaɛ aṭas aṭas. S waya yuɣal d Amyarru aturki yettwasnen aṭas deg umaḍal.
+
+Idlisen-is ttwaṭerǧment (ttwasuqlen-d) ar ugar n 60 n tutlayin, gar-asent tarumit, talimant, tanglizit, tatelyanit, taspenyulit...
+
+Amyaru yagi yerbaḥ tlata n warrazen, gar-asent win n France Culture (1995), win n uɣmis n New York Times deg useggas n 2004, win n Medicis deg useggas n 2005. 
+
+Yella daɣen yesselmad deg tesdawit n Culumbia "Littérature comparée". 
+
+Deg useggas n 2006, yerbaḥ araz n "prix de la littérature", d amyarru aterki amezwaru i irebḥen arras aggi.
+
+Amyarru Orhan Pamuk illul di Stanbul deg useggas n 1952, deg yiwet n twaccult yesɛan adrim, yettekan, yesnen tarumit.
+
+Asmi yewweḍ ar Tesdawit, yeɣra "architecture" maca cwiṭ n lweqt kan yeǧǧa leqraya-yagi, yuɣal yetbaɛa leqraya iwakken ad yuɣal d aneɣmas (journaliste). Asmi yesuli leqraya-s, yennum yettɣima deg wexxam-is ass marra, mebla ma yeffeɣ. Dɣa yebda isurifen imenza deg tira n yedlisen.
+
+
+S tmeslayt n tarkit: 
+
+Basel Basel
+
+Basel (s Telmanit "Basliya", (s (teṭelyant "Basel") d tmenrut (tamanaɣt) n Ukantun n Basel. Tesɛa azal n 169,692 n imezdaɣen deg useggwas n 2011.
+
+Tezga-d deg tama n ugafa-asammer n tmurt n Teswist anda asif n Run yettali ar ugafa. Tezgad daɣen ar 70 n ikilumtren ar ugafa n temdint n Bern, ar 75 ikilumitren ar ugafa-usammer n temdint n Zurik, ar 27 n ikilumitren ar wadda n temdint n Muluz.
+Ameqqran Agawa Ameqqran Agawa
+
+Amuqran Agawa d yiwen n uccanay n ccna adiyani (Ameddaḥ), yettwasen aṭas aṭas deg tmurt n Leqbayel.
+
+Isem-is n tidett Waɛli Muḥend Amuqran. Illul deg taddart n At Aṭṭeli deg tama n At Yiraten deg usegwas n 1926. Yemmut deg usegwas n 2009. 
+
+Yebda abrid-is di ccna deg temdint n Bgayet, dɣa di Rradyu n Bgayet yeldin deg usegwas n 1946 i yebda icennun.
+
+- Llaḥ llaḥ ideflawen, ṣṣelaḥ Igawawen
+
+- Larbɛa n At Yiraten
+
+- Ig aɛzrir yissem-ik a llaḥ
+
+- Ay ul-iw utub
+
+- Arsul llaḥ
+
+- Akka id zzman
+
+- A nnbi nnaɣ
+
+- Ilaq ad necfu
+
+- Ilaq ad nfekkar
+Adam Smith Adam Smith
+
+Adam Smith (5 yunyu 1723 - 17 yulyu 1790) d afelsuf dɣa adamsan abriṭani n Tufawin. Yeqqim deg umezruy am baba-s n tussna tudmist tatrart, ayɣef amahil agejdan, "Tabaɣurt n iɣlanen", d yiwen n iḍrisen imesbedden n ulellamẓri udmis. Aselmad n tafelsuft tazerfant di tasdawit n Glasgow, yefka-d mraw iseggasen n tameddurt-is i uḍris agi yehregen idemsanen imeqranen uḍfiren, widak Karl Marx yetsemmi « ikelsaken » dɣa ad rsen imenzayen imeqqranen n alellamẓri udmis.
+
+Aṭas n medden ssnen Adam Smith asmi yura yiwen udlis g useggas n 1776 umi qqaren Wealth of Nations (Ayla n Iɣlanen); d bab n weḍru n tikta n talellamt (libéralisme). 
+
+Lwalid Mimun Lwalid Mimun
+
+Lwalid Mimun d acennay Arifi, ilul g Ayt Sidel di tama n Nnaḍuṛ g useggwas n 1959. 
+
+Yeɣra deg Fas. Netta tuɣa illa am maṛṛa iwdan n taddart-is : d ameksa (aniči s Terifit), ibda itirar tamja (taqsebt).
+
+Ittcnu ɣef amek teddren, tkkaren imaziɣen d irrifiyen g tmurt-nsen d lbaṭel. Itɛawed tamara n yinni ihajren tamurt-nsen iẓwan ɣer Turuft, yin iwyen tiṛumiyin am g tizlit dwel a mmi inu. Itwasen g Arrif am weni iyifen maṛṛa icennayen n Arrif. D netta g igin ansi tamedyazt n Arrif ttwassen g akk umaḍal, timura n Tmazɣa am Dzayer. Adisk-nes amezwaru ism-is Ajjaj, ifuɣ g iseggasen 1980, g Merruk aql-it itwegdul (leḥkam ur t-teǧǧi ad imzenz).
+
+"Ajjaj" (1980)
+"Ametluɛ" (1986)
+"Tayyut (Taggut)" (1997)
+
+Tizlit umi qarn ""Neccin Ssa"
+
+ah neccin ssa ! ah neccin ssa
+lalla tammurt a nneɣ, nssudum akal nnem
+ad nssu cjjur nnem s tidi nnɣ
+ad nkerz timura, ad nbeḥḥar tibeḥḥar
+ad cem nṣun, ad cem nḥḍa, s min ɣarneɣ d tizemmar
+Ad neḍreq i yedbarn, deg ujenna nnem d azegza
+wenni i cem icarhen, min yestahedj ad t iẓaṛ
+Abrid a waxxa yeẓẓu, yeẓẓu s rḥarrac
+ad neggur, ad neggur ar ɣar ad naf tinnewac
+yurat & iɣenjit Lwalid Mimun
+
+Tizlit umi qarn ""Bu Yidunan""
+
+bu yidunan, bu yidunan, la babak, la yemmak
+bu yidunan, bu yidunan, la umak, la ultmak
+tɣemyed di tzegurt, xf ak adfel d wunẓaṛ
+tcarhed tudert, ul nnek iƐammer
+Ṭṭram di tmurt, lmunkar yemɣar
+Tisendect tḥart xf ak am ufiɣar
+Bu yidunan a bu yidunan, ameṭṭa nnk d nwac
+ɣa ad teksed iɣebnan, Ṭṭram ad ibarc
+ad tnewwar cejjart, ad yesrewrew wedrar
+ɣa ad tḍuw tedbart, zi leqfez ad tugut
+
+yura-t & iɣenj-it Lwalid Mimun
+
+Tizlit umi qqaren ""Idurar n Arrif""
+
+Idurar n Arrif i dihan ibedden
+Idurar n ssif i dihan isedden
+Iḍennaṭ tuɣa din ca n yiwdan qedden
+Maca ass a aqqa din ca imeḍran hedmen
+Imeḍran n tmaddiwin di tqicciwin ɣemyen
+Maca aqqa ɣemyen din, xf ca n targazt cehden
+Targazt n ɛabdekrim, targazt n irifiyen
+xzart ɣer idurar in, xzart a imezzianen!
+ass a yeqqim din ratar n wairaden
+ratar n ɛabdekrim d ratar n yimjahden
+
+yura-t & iɣenj-it Lwalid Mimun
+Washington Washington
+
+Washington, D.C d tamanaɣt n Yiwunak Yedduklen. Isem-ines ameqqran d Washington, District of Columbia. 
+Deg Washington yella Axxam Amellal, izdeɣ deg-s aselway n Yiwunak Yedduklen.
+
+Tamdint i qqaren-as Washington ansi aselway amezwaru n Yiwunal Yedduklen, George Washington.
+
+<br>
+</br>
+Bujumbura Bujumbura
+
+Bujumbura d tamaneɣt n tmurt n Burundi. Zedɣen-tt 235.440 n yimezdaɣen. D nettat ay d tamdint tameqrant akk deg Burundi.
+Tezga-d deg ugafa-agmuḍan (nord-est) n ugelmim afriqi n Tanganyika. Deg Bujumbura ay d-yezga usagen (lmerṣa) ameqran n Burundi, yerna seg usagen-a ay tessuffuɣ tmurt-a ɣer beṛṛa lɣella-nnes n lqahwa, leqḍen, igelman akked uhallun (étain).
+At Temlict At Temlict
+
+D yiwet seg xemsa n temdinin (ar tama n At Yezǧen, At Taǧnint, At Bunur, Bergan, Zegrara) tiqburin n At Waɣlan (Mzab).
+
+Assa, isem-ines yettubedel, yettwasṭaɛreb ar Melika.
+At Tuzin At Tuzin
+
+At Tuzin (S tifinaɣ:ⴰⵢⵜ ⵜⵓⵣⵉⵏ) d yiwet n teqbilt tamaziɣt n ugafa n Umerruk, id yezgan deg tama n Arrif. 
+
+Isem-is s Tarifit qqaren-as Ait Tuzin.
+
+Taqbilt n At Tuẓin, yuggar adrar azaɣar. Izuɣar-is ruḥen alami d lqrub n temdinin am Kassita, Midar,azlaf..
+Deg lawan n traḍ n 1921- 1926, At Tuẓin am waṭas n teqbilin tirifiyen, nnuɣent mgal Ispanyuliyen akw d irrumyen.
+
+Imezdaɣ n teqbaylit aggi ar assa ttemeslayen Tamaziɣt n Arrif (tarifit).
+At Ccud At Ccud
+
+At Ccud (Taɛrabt : Ben Choud) d taɣiwant n ugezdu n Bumerdas, gar Delles d Laɛzib n Ccix. 
+
+Ass-a zedɣen-tt ugar n 10.000 imezdaɣ deg tɣiwant-nni. Akk deg-sen d aɛrabsawalen. 
+
+Sidi Dawed Sidi Dawed
+
+Sidi Dawed d tamdint deg ugezdu n Bumerdas, deg tmurt n Leqbayel. Ɣur-s 16 900 imezdaɣ deg useggas n 2008. 
+
+Zik irumiyen qqaren-as Issers-Djedian deg 1870, sakkin Bois-Sacré, dɣa qqaren-as Abbo seg 1925 ar 1962. 
+Budwaw Budwaw
+
+Alma (seld n userɣen: Budwaw) d taɣiwant n ugezdu n Bumerdas, tezga-d ar 35 km si Dzayer Tamanaɣt deg wegmuḍ (ccerq) d 11 km si Bumerdas ar utaram. Qqaran-as di lawan n Fransa daɣen "Alma"
+
+Ɣur-s deg 2008 azal n 71 238 imezdaɣ. 
+Dwiret Dwiret
+
+Dwiret (دويرات) d taddart tamaziɣt deg wenẓul n Tunes. Tezga-d deg temnaṭ n Taṭṭawin ar 20 km. 
+
+Tantala n Dwiret tella yiwet n waṭas imukan adeg mazal-iten ttmeslayen s tmaziɣt deg wenẓul n Tunes akwd Ǧerba d Tmezret d Cninni. Aṭas n At Dwiret geǧǧen ar Tunes tamaneɣt i wakken ad xedmen dinna. 
+Tamaziɣt n Ǧerba Tamaziɣt n Ǧerba
+
+Tamaziɣt n Ǧerba neɣ Tajerbit (Tajerbit : Tamaziɣt neɣ ddwi jjerbi) d tantala tamaziɣt i ttmeslayen deg Ǧerba
+Tameslayt Taǧerbit tettwameslay dɣa deg kra n tuddar n tegzirt-aggi (tama n wadda akw tama talemast n tegzirt-aggi am Iqellalen). Deg tuddar n ufella n tegzirt-aggi, ulac aṭas n medden yesnen taǧerbit.
+
+Ṭahir Ṭahir
+
+Ṭahir d taɣiwant n ugezdu n Ǧiǧel, ar 18 km si temdint n Ǧiǧel. Ɣur-s 77367 imezdaɣ. 
+
+Deg wakal n tɣiwant illa Amafag Ferḥat Ɛebbas. 
+Lɛewwana Lɛewwana
+
+Lɛewwana (Tafṛensist: "El Aouana", Taɛrabt : "العوانة"), d taɣiwant n utaram (lɣerb) n Ǧiǧel di tama n Zyama Lmenṣuriya g Tmurt Leqbayel. 
+Zedɣen-tt 12.384 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as Cavallo.
+Leɛzib n Zeɛmum Leɛzib n Zeɛmum
+
+Leɛzib n Zeɛmum (s tefṛensist: Laazib Zamoum; Naciria), d taɣiwant n wegmuḍ (ccerq) n Bumerdas, zedɣen-tt 21.272 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Haussonvillers". Tagi d akal n tmurt n Yiflisen Umellil di tmurt n Leqbayel. 
+
+Ssi Mesṭafa Ssi Mesṭafa
+
+Ssi Mesṭafa (s tefṛensist: Si Mustapha, isem n tidett : Taqiḍunt), d taɣiwant n Bumerdas, zedɣen-tt 9.015 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as Félix Faure.
+
+Taqerbuzt Taqerbuzt
+
+Taqerbuzt d taddart n Tmurt Leqbayel iqqenen ar tɣiwant n Uɣbalu deg tawilayt n Tubiret. Taddart agi tezga ar ugmuḍ n tawilayt, d-talast s Bgayet (deg ugmuḍ) d Tizi Uzzu (deg ugafa).
+
+Taqerbuzt d adeg-aɣella n tɣiwant n Uɣbalu, tḥesseb aqrib 14000 imezdaɣen. 
+
+Zzin-as deg ugafa d-ugmuḍ idurar n Ǧerǧer dɣa deg unẓul Iɣzer n Summam.
+Taddart n Taqerbuzt teɛelleq ar aqrib 900 imitriyen deg usawen.
+Ṣur Lɣezlan Ṣur Lɣezlan
+
+Ṣur Lɣezlan d taɣiwant n utaram (lɣerb) n ugezdu n Tubiret, zedɣen-tt 42.179 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as Aumale.
+Bab Lwad Bab Lwad
+
+Bab Lwad (s tefṛensist: "Bab el Oued"; anamek s tmaziɣt: "Tabburt n Wasif"), d taɣiwant n twilayt n Lezzayer (tezga-d deg temdint n Lezzayer), zedɣen-tt 87.557 n yimezdaɣen.
+
+Cengiṭ Cengiṭ
+
+Cengiṭ (Taɛrabt : "شنقيط") d taɣiwant n wammas-utaram n Muriyanya i tezga-d deg wegni uneẓfran n Wedrar. 
+Tutlayt taẓnagt Tutlayt taẓnagt
+
+Taẓnagt (isem aẓaṛan: Taḍḍungiyya) d tutlayt Tamaziɣt tutrimin ay tt-ttmeslayen deg wenẓul-utaram n Muritanya, Taznagt d yiwet n tutlayt yettwaggzen s ungar acku amdan n ifganen yettmeslayen yis ur yugar ara 3000 n ifganen. Dɣa zik tmurt n Muriṭanya tella tettmeslay yakk s tutlayt-a send n unekcum n iserɣinen (aɛraben) n Banu Dlim deg umsenɣa n Car Buba deg useggas n 1644.
+
+
+Ass-agi ttmeslayen ala 1.900 imdanen s Teẓnagt. 
+
+Deg Kamal n At Ẓerrad (2004: 15) ad nmuqel i yellan aṭas gar tentaliwin n Teẓnagt. Deg umedya ad naf :
+
+Tasendit Tasendit
+
+Tasendit (qqaren-as Tamaziɣt kan), d tantala i ttmeslayen zik deg wenẓul n tmurt n Tunes, ladɣa deg taddart n Sened armi issegwassen 1970/1980. Zik ttmesalyen daɣen tamaziɣt di Bu-Amram, Sakkat, Tmagurt ed Lɛeyyaca (Djebel Orbata) ula di Um el Aleg d Zannuc (Djebel Majourah). 
+
+
+Tizezert d wuccen
+
+"Tikelt yeffud iğen izerzer.
+Yugser isess g tanut yexsa a yali wer yezmer-c
+Yezra-t uccen ɣal-ennej yumm-as:
+"Ay uma, cek d abehlul tugsert g tanut u tessinet-c maka talit!""
+
+"Tarewla n Bni Hilal ar Tunes"
+
+Musa Ag Amastan Musa Ag Amastan
+
+Musa Ag Amastan (S tfinaɣ ⵎⵓⵙⴰ ⴰⴳ ⴰⵎⵙⵜⴰⵏ) ilul deg useggas n 1867 s aseggas amaziɣ 2817, immut deg 23 Dujanbir 1920 s aseggas amaziɣ 10 Dujanbir 2870. D yiwen n wergaz amaziɣ Amanukal n teqbilt n Kel Ɣela n Uhaggar seg 1905 ar 1920.
+Si Belḥanafi Si Belḥanafi
+
+Muḥemmed Belḥanafi d yiwen umedyaz ameqqran n teqbaylit, d bab n wawal, n usefru.
+
+Si Belḥanafi, netta isem-ines n tidett d Muḥemmed n At Taḥar. Ilul di 1927 deg tama n At Wasif, deg taddart n At Sidi Ɛetman, deg yiwet n twaccult n yemrabden. Di lawan -nni n traḍ n Lzzayer, yella deg tama n Tihert (Tiaret) anda yella ɣef uqarruy n tarbaɛt n tsertit n le FLN di tama-yagini.
+
+Yexxdem aṭas n tedwilin daɣen deg rradyu n teqbaylit, rradyu tis snat " tibḥirt iǧeǧǧigen", "rrif lkanun", " tuksa n lxiq". Yexdem aṭas n tezlatin i waṭas n Icennayen akw tcennayin tiqbayliyen am Nwaṛa, Cabḥa, Malḥa, Ḍrifa, Wardya.
+
+Budapest Budapest
+
+Budapest d tamanaɣt n tmurt n Hungri si 1867. Zedɣen deg-s 1 712 210 n imezdaɣ.
+August Wilhelm Schlegel August Wilhelm Schlegel
+
+August Wilhelm Schlegel ilul degg 8 ctambir 1767, immut deg 12 maggu n 1845. D afelsuf almani.
+Fas Fas
+
+Fas d yiwet n temdint n Merruk, deg-s 1 040 563 n yemdanen zedɣen-tt.
+Gabriele D'Annunzio Gabriele D'Annunzio
+
+Gabriele D'Annunzio ilul deg 12 meɣres 1863, yemmut deg 1 meɣres 1938. D amaru iṭalyani.
+
+
+
+
+
+Pink Floyd Pink Floyd
+
+Pink Floyd d icennayen ingliziyen n rock. Zenzen ugar si 200 imelayn n yidisken.
+
+Thomas Hobbes Thomas Hobbes
+
+Thomas Hobbes ilul deg 5 yebrir 1588, yemmut deg 4 dujamber 1679. D afeslsuf ingliz.
+Ɛli Belḥaǧ Ɛli Belḥaǧ
+
+Ɛli Belḥaǧ (ilul deg 1956 deg temdint n Tunes), d argaz n tsertit adzayri, yettekka akked Ɛebbasi Madani deg ussebded n Terni Tislamit n Ussukkes (FIS). 
+
+Imawlan n Belḥaǧ rewlen seg Dzayer ɣer Tunes, "yerna laṣel-nsen seg Muriṭanya". Belḥaǧ yezdeɣ deg Tqubbet (deg temdint n Ldzayer). 
+
+Deg yiseggasen n 1980, yella yeqren ɣer Mustafa Buyali, yerna d aya ay t-yessawḍen ad yettwaṭṭef ɣer lḥebs i tikkelt tamezwarut deg 1984. 
+Deg 1989, yessebded-d akked Ɛebbasi Madani akabar isenneslem (islamiste) n Terni Tislamit n Ussukkes (FIS), yerna yella yeqqar-d lxeḍbat deg yiwet n tmesgida deg Bab Lwad. 
+
+Deg 1991, iger-d tiɣri i lɣaci akken ad d-snekren imenɣi imselleḥ mgal udabu, am wakken ay yettekka akked Ɛebbasi Madani deg ussenker n ccwal deg tmurt. D aya ay yejjan anabaḍ (lḥukuma) adzayri ad ten-yeḥbes deg sin, yerna akabar-nsen yettwafsex deg tezwara n 1992. 
+
+Deg 2006, Ɛebdelɛaziz Butefliqa yeɛfa fell-as yerna yebra-as-d seg lḥebs. Llan aṭas n medden ay t-yettwalin d yiwen seg wid ay yezzuɣren tamurt ɣer tallit-nni taberkant n yimenɣi imselleḥ ay d-yellan gar udabu ed tegrawin timsellḥin ay d-yefrurxen seg Terni Tislamit n Ussukkes. Seg wasmi ay d-yeffeɣ seg lḥebs, Ɛli Belḥaǧ yettwaṭṭef yerna yettwaḥbes acḥal d tikkelt ɣef wawal-nnes ayyes ay iɛerreḍ ad d-yessenker ccwal tikkelt nniḍen.
+Tibeskert Tibeskert
+
+Tibeskert d tamdint n tmurt n Dzayer, i tezga-d deg wegmuḍ n Yegnan Iɛlayanen, deg wenẓul n tama n Wewras, ɣur-es 205 608 imezdaɣ deg useggas n 2008. Tajumma n tɣiwant-ines d 127,55 km2. 
+Mila Mila
+
+Mila d tamdint n ugafa-agmuḍan n tmurt n Lezzayer. Tajumma n tɣiwant-agi d 129,89 km2. Zedɣen deg temdint-agi 69 052 imezdaɣen deg 2008. 
+D tamanaɣt n ugzedu n Mila. 
+
+Deg tmiḍi wis 19 (lqern) mazal gar imezdaɣen imaziɣen wid ttmeslayen ula d ttseqcen tutlayt tamaziɣt deg temnaṭ-a (Zwaɣa neɣ "Izewwaɣen" d tama n Ferǧiwa neɣ "Iferǧiwen"). 
+
+Mila, tella deg zzma agwans n tamwaya n Yekutamen acku imezdaɣ n temnaṭ akk gar-asen d Imaziɣen deg laṣel-nsen ulac waɛraben di tmiwa-nni. 
+Wad Ssemmar (taɣiwant) Wad Ssemmar (taɣiwant)
+
+Wad Ssemmar d taɣiwant n ugezdu n Dzayer, deg usun n Lḥerrac. Deg 2008 ɣur-es azal n 32.062 imezdaɣen. 
+
+Taɣiwant n Wad Ssemmar tezga-d ar 15 km ar tama tegmuḍant n wammas n Dzayer Tamanaɣt.
+Asaka n Qsenṭina Asaka n Qsenṭina
+
+Asaka n Qsenṭina (Tafrensist : Gué de Constantine, Taɛrabt : جسر قسنطينة) d taɣiwant n Ugezdu n Dzayer Tamanaɣt ar 10 km n wenẓul n Dzayer Tamanaɣt. 
+
+Deg useggas n 2008 ɣur-s azal n 133.247 imezdaɣen. 
+Ccraga Ccraga
+
+Ccraga d taɣiwant n Twilayt n Lezzayer ar 10 km ar utaram n wammas n Dzayer Tamanaɣt. Ɣur-s deg useggas n 2008 80.824 imezdaɣen. 
+Paul Verlaine Paul Verlaine
+
+Paul Verlaine ilul deg 30 meɣres 1844 deg Metz (Fransa), immut deg Paris di 8 yennayer 1896. D amedyaz afransis ameqqran.
+
+Muḥemmed Cikri Muḥemmed Cikri
+
+Muḥemmed Cikri (s Taɛrabt: "محمد شكري" , s Tefransist: "Mohamed Choukri") d amyaru d Amaziɣ yura ungalen s Taɛrabt. Muḥemmed Cikri ilul di 15 yulyu 1935 di At Ciker, di temnaḍt n Nnaḍur, di Arrif. Immut di 15 wamber 2003.
+
+Deg wakud n laẓ di Arrif, tawacult-nnes terwel ɣer Tanja. Baba-s aql-it d askayri iccat tarwa-nnes d temeṭṭut-is.
+Muḥemmed Cikri umi iẓṛa manaya irwel si taddart-ines, ibda ikkal itnus di zzenqet anda i yexs ad yečč, anda itettar neɣ izenz taḥcict.
+
+Armi itwaṭṭef deg usekraf (leḥbes) umi aql-it ɣur-s 20 iseggwassen, isselmed-as yiwen umeḥbus tira n Taɛrabt.
+Yura aṭas n idlisen gar-asen Aɣrum Ḥafi. Adlis-nni itwasuɣel ɣer 40 n tutlayin. Aɣrum Ḥafi itwagdel deg Umeṛṛuk deg wakud n Ḥasan wiss 2.
+Di 15 Wamber 2003, immut Muḥemmed Cikri di usganfu n userdas di Rbaṭ.
+Alessandro Manzoni Alessandro Manzoni
+
+Alessandro Manzoni ilul deg 7 meɣres 1785, yemmut deg 23 mayyu 1873 (ar 88 iseggasen). D amaru aṭelyani.
+
+
+
+
+Tinɣir Tinɣir
+
+Tinɣir (s tifinaɣ: ⵜⵉⵏⵖⵉⵔ) d tamdint id yezgan deg tama n usamar n Tgelda tameṛṛukit deg uzaɣar n Tudɣa ar tuffɣa n Weṭlas Afellay af udem n Wedrar n Saɣru. D tamaneɣt n Tasga n Tiɣir seg useggwas n 2009. Deg 2004 akk iɣerman d wemdan n tɣiwant-agi ɣur-sen azal n 86.500 imezdaɣen tuget-nsen d imaziɣen
+
+=Tinɣir d Tmaziɣt=
+
+Akk imezdaɣen llan d imaziɣen, ttmeslayen akk gar-asen s Tacelḥit neɣ s Tmaziɣt n Weṭlas. Deg temnaṭ, llant ttzdiɣent tiwsitin timaziɣin am Ayt Ɛeṭṭa ar tama n wenẓul, Ayt Merɣad deg wegmuḍ, Ayt Ḥdidu deg ugafa et Ayt Yafelman
+Ifuɣa (Tawsit) Ifuɣa (Tawsit)
+
+Ifuɣa (asget : Afaɣi) d tawsit (taqbilt) tahewwart (ccarif) n Yimucaɣ n Imrabṭen (Inselmen) s laṣel U-Jana (Ijnaten). 
+Kel Ifuɣa llan deg Mali (Aẓawad) deg temnaṭ n Kidal ula deg Wedrar n Ifuɣa. Tigti deg-sen llan d imeksawen d iserdasen. 
+
+
+Adrar n Cenwa Adrar n Cenwa
+
+Adrar n Cenwa d adrar id yezgan deg tlemmast n tezrart n waṭlas anewrir, Isem-is d win yeflalin ar 905 imitren sufell n weswir yilel. Yezga-d deg ugezdu n Tipaza di Lezzayer. D azamul n yicenwiyen i mazal ttmeslayen s Teqbaylit neɣ s Hcenwit. 
+Jean Carbonnier Jean Carbonnier
+
+Jean Carbonnier d yiwen umusnaw n Fransa, d yiwen ger iselmaden imuqranen n uẓref (droit) deg tmurt n Fransa, laɣda deg wayyen yeɛnan aẓref n ger medden (droit des obligations).
+
+Illul deg temdint n Liburn deg tmurt n Fransa deg usegwas n 1908. Yemmut deg usegwas di 2003 deg Paris. 
+
+Yeɣra aẓref (leḥeq) deg Tsedawit n Bordeaux deg tmurt n Fransa.Asmi yessuli leqraya-s, yesɛedda akayad n "Agrégatation" n uẓref, yerbaḥ dɣa yekcem ar Tsedawit n Pwatyi (Poitiers) anda yuɣal d aselmad. 
+Charles Baudelaire Charles Baudelaire
+
+Charles Baudelaire neɣ Carl Budler, d yiwen n umedyaz ameqqran n tmurt n Fransa. Ilul di lpari deg useggas n 1821. Yemmut daɣen di lpari deg useggas n 1867.
+
+Adlis-is yettwasnen aṭas mačči cwiṭ d "Fleurs du mal" neɣ "Tigeǧǧigen n diri", i d-yessufaɣ deg useggas n 1857.
+
+Pablo Neruda Pablo Neruda
+
+Pablo Neruda ( Pablu Niruda s teqbaylit)
+
+D yiwen n umedyaz, amyarru, argaz aserti n tmurt n Cili (Chile). Illul deg usegwas 1904 deg temdint n Parral (Tamnaṭ n Linyares). Yemmut deg usegwas n 1973 deg temdint n Santyago (Santiago). 
+Mufdi Zakariya Mufdi Zakariya
+
+Mufdi Zakariya d yiwen n umedyaz Azzayri. Kra qqaren belli illul deg useggas n 1908, kra nniḍden qqaren illul deg tama n At Yezgen deg temnaḍt n At Weɣlan (Mẓab). 
+
+Yemmut deg useggas n 1977 deg tiɣremt n Tunes. 
+
+D netta i yuran "Qassaman", Imseɣret aɣelnaw n tmurt n Ledzayer asmi yella deg lḥebs.
+Saɛid Sifaw Saɛid Sifaw
+
+Saɛid Sifaw, neɣ Lmeḥruq, d yiwen n umedyaz, amaru amaziɣ n tmurt n Libya. D azamul n timuzɣa deg tmurt n Libya. Saɛid Sifaw Lmeḥrug ilul deg temdaint n Jadu deg wedrar n Infussen (Adrar Nefussa), deg useggas n 1946. Yemmut deg yiwen n sbiṭar deg temdint n Tunes deg useggas n 1994. 
+
+Saɛid Sifaw yura d adlis s yisem n Adlis aberkan, yewit diḍes mass Sifaw akken a tifesser g uɣṛem n Rbaṭ g tmurt Lmarruk, dacu taneggarut ayi tugi-yes.
+Malḥa Malḥa
+
+Malḥa d yiwet n tcennayt taqbaylit n iseggasen n sebɛin.
+
+Tetteki deg tarbaɛt n Tullas ar tama n Cabḥa, Malika Dumran, tullas nniḍen.
+
+Deqs n tezlatin-is, yurra-tent Si Belḥanafi.
+
+Salem Caker Salem Caker
+
+Salem Caker (ilul deg 1950 deg Yiɛezzuzen, di tɣiwant n Larebɛa n At Yiraten, Tizi Wezzu) d asnilsan linguiste Aqbayli yerna d aselmad n tmaziɣt deg tesdawit deg Paris d Aix-en Provence. 
+Caker iqeddec deg usudu aɣelnaw n tutlayin ed tɣermiwin Tisemranin (INALCO) id yezgan di Paris seg useggas n 1989, deg wemkan n André Basset d Lionel Galand.
+
+Deg 1973 yewwi tafesna n duktuṛa deg tesnilst Tamatut. Sin akin seg 1973 ar 1981 yeqdec d aselmad deg tesdawit n temdint n Lezzayer. Deg 1978 yewwi duktuṛa niḍen deg tsekla d [ Tussniwin talsanin]]. Gar 1981 e 1989 yeqdec d aselmad deg temdint n Aix-en-Provence (deg tesdawit n Provence akked Wammas Aɣelnaw n Unadi Ussnan [CNRS]). 
+Sakkin, deg 1990 yessbed-d Ammas n Unadi Amaziɣ "André Basset" deg usudu n INALCO. Ma deg 2008 yebda iqeddec deg Usudu n Unadi ɣef Yimaḍalen Aserɣin d Yineslem n Aix-Provence. Salem Caker yura-d aṭas n yedlisen d tezrawin ɣef tesnilsit tamaziɣt. Daɣen, d netta ay d-yelhan s Tsedkalt Tamaziɣt (Encyclopédie Berbère) i d-itteffɣen g Fṛansa
+
+
+Ḥasin Ḥasin
+
+Ḥasin (s tefṛensist: Hacine), d taɣiwant n ugezdu n Mɛesker, zedɣen-tt 9.176 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as Dublineau.
+Ulxu Ulxu
+
+Ulxu d taddart n tɣiwant n Uẓeffun (deg ugafa n Tizi Wezzu). Deg taddart-a ay ilul umaru adzayri Ṭaher Ǧaɛut.
+Danya yellis u Sasi Danya yellis u Sasi
+
+Tettwasen am "Danya Ben Sasi", d yiwen n tlemẓit, tacennayt tamaziɣt n Libya. 
+
+Gar tezlatin-is :
+Ayda Ayda
+
+Ayda d yiwet n tceqquft n l'opéra i yurra yiwen n utelyani umi qqaren Verdi.
+
+Abrid amezwaru anda id ɛedda deg temdint n Lqahira deg tmurt n Maṣer deg usegwas n 1871.
+
+Taceqquft aggi tettemeslayed ɣef yiwet n tallit uqbel talalit n sidna ɛissa. 
+
+Deg tgelda n Maṣer, yella yiwen ugellid (isem-is : ) yesɛan yelli-s (umi qqaren: Amneris). Yelli-s aggi teɛceq deg yiwen n usardas n Baba-s. Aserdas aggi (isem-ines : Ɣadames), netta, iḥemel yiwen n teqcict (isem-is : Ayda). Ayda nettat d taklit n yelli-s n ugellid n Maṣer. Dɣa yelli-s n ugellid n Maser (Amenris), tettasem deg tayri yellan ger Ayda akw d Ɣadames. 
+
+Yiwen wass akken, yekker traḍ ger tmurt n Maṣer akw d tmurt n Tyupia (Ethiopie). Ɣadames yella ɣef uqarruy n iṣerdasen n ugellid n Maṣer (général). Irruḥ dɣa ad yennaɣ. 
+
+Ɣadames irrebaḥ traḍ. Yuɣaled dɣa. Mid yewwed, medden akw ferḥen yiss ula d agellit n Maṣer. Iwakken ad yesnemir (remercier) yeffka-yas yelli-s ad-t yaɣ. 
+
+Macca Ɣadames akw d Ayda ur friḥen ara.
+Karmen (Carmen) Karmen (Carmen)
+
+Karmen d yiwet n tceqquft (opéra) i yurra Ǧurǧ Bizi (Georges Bizet). Yeks-i-t-id deg yiwen n udlis n Alfred Mirimi (Merimet). Taceqquft aggi tɛdda-d tikelt tamezwarut deg usegwas n 1875 deg Paris.
+Ɛumman Ɛumman
+
+Ɛumman d tamurt n Asya, tezga-d deg wenẓul-agmuḍan (sud-est) n Tzunegzirt Taɛrabt (Péninsule Arabique). 
+
+Tajumma-nnes 309.550 km2 (yikilumtren imkuẓen). Zedɣen-tt 2.845.000 n yimezdaɣen (Iɛummaniyen). Tamaneɣt-nnes d Masqaṭ.
+Abu Ḍabi Abu Ḍabi
+
+Abu Ḍabi d tamaneɣt n Limarat Taɛrabin Yeddukklen. Tezga-d deg ugafa (nord) n tmurt, ɣef yiri n Ubagu Afarsi. Zedɣen-tt 896.751 n yimezdaɣen.
+Dawḥa Dawḥa
+
+Dawḥa d tamaneɣt n Qaṭar. Tezga-d deg wegmuḍ (ccerq) n tmurt. Zedɣen-tt 998.651 n yimezdaɣen.
+Qaṭar Qaṭar
+
+Qaṭar d tamurt n Asya, tezga-d deg wegmuḍ (ccerq) n Tzunegzirt Taɛṛabt, deg Ubagu Afarsi (Golfe Persique). Tajumma-nnes 11.437 km2 (yikilumitren imkuẓen). Zedɣen-tt 1.696.563 n yimezdaɣen (Iqaṭariyen). Tamaneɣt-nnes d Dawḥa.
+
+Lamir-ines d Ḥammad Bin Xalifa. 
+Birut Birut
+
+Birut (Taɛrabt : بيروت "Bayrūt" Talatint: Berytus, Taramit: Birot בירות, Tafransist Beyrouth) d tamaneɣt n Lubnan. Tezga-d deg utaram (lɣerb) n tmurt, ɣef yiri n Yilel Agrakal. Zedɣen-tt 750.000 n yimezdaɣen (1.900.000 s tmiwa ay d-yezzin fell-as).
+Taggargrent Taggargrent
+
+Teggargrent (neɣ Twargrit, Taggengusit), d tantala tamaziɣt i yettmeslayen deg wemdan n Warglen (Wargren) d Ingusa deg Ledzayer. 
+Deg useggas n 1987, ɣur-es kan 10,000 imsiwlen. 
+Llan kra n tmeẓlawin gar tantalawin n Warglen (Taggargrent) d tin n Ingusa (Taggengusit). Daɣen gar At Warglen llan kra n tmeẓlawin timecṭuḥin gar iderman n At Brahim, At Sisin d At Waggin.
+
+Imsiwelen si Warglen ẓran Tamaziɣt n Ingusa, Timasin d Tumẓabt kif-kif itent, i wumi qqaren Twargrit dɣa ɣef wayen Jean Delheure (1987:355), "at Wargren fehemen d aweḥdi tawsint, "At Warglen fhimen At Tmasin mliḥ".
+
+Vermont Vermont
+
+Vermont d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa-agmuḍan (nord-est) n tmurt, ɣef tlisa n Kanada, teqreb tamnaṭ n Kebek d werɣem n Montreal. 
+
+Tajumma-nnes 24.923 km2 (yikilumitren imkuẓen). Zedɣen-t 625.741 n yimezdaɣen. Tamaneɣt-nnes d Montpelier.
+Kebek Kebek
+
+Kebek (Tafrensist : "Québec", Tanglizt : Quebec) d tamnaḍt n wegmuḍ n Kanada.
+
+Tajumma-nnes 1.667.441 km2 (yikilumitren imkuẓen), zedɣen-tt 8 080 550 n yimezdaɣen (Ikebeken) deg 2012. 
+
+Aneɣlaf amezwaru : Philippe Couillard (PLQ)
+
+Kebek yezga-d gar temnaḍin n Wakal Amaynut ed Labrador akwd Brunswick Amaynut d Ontario, dɣa ɣur-es tilisa akwd Iwunak Yedduklen d yiwunak n New York, New Hampshire ed Maine. 
+
+Amur ameqqran seg yimezdaɣen n temnaḍt-a ssawalen s tefṛensist (79 %) maca llan 7,9 % n wenglizwalen (Anglophones). Tutlayt tunṣibt tella d Tafrensist deg temnaṭ-agi. 
+Toronto Toronto
+
+Toronto d tamdint n Kanada, tezga-d deg wenẓul-agmuḍan (sud-est) n tmurt . 
+
+D nettat ay d tamdint tagejdant n temnaḍt n Ontario. Zedɣen-tt 2.503.281 n yimezdaɣen.
+
+
+New York New York
+
+New York d nettat ay d tamdint tameqqrant akk deg Yiwunak Yeddukklen. Tezga-d deg ugafa-agmuḍan (nord-est) n tmurt, ɣef Ugaraw Aṭlasi. Zedɣen-tt 8.336.697 n yimezdaɣen (19.006.798 s yegmamen ay d-yezzin fell-as). Tamdint-a tezga-d deg uwanak n New York.
+
+Llan semmus (5) n yisunen deg New York, s tenglizt qqaren-as "Boroughs". 
+
+Octave Mirbeau Octave Mirbeau
+
+Octave Mirbeau ilul ass n 16 di furar 1848 deg Trévières (Fransa), immut deg Paris g 16 di furar 1917. D amaru afransis.
+
+Octave Mirbeau d aneɣmas d umyaru afransis igan aggag meqquren. Aneggal, yaru aṭas n idlisen amm : "L'Abbé Jules" (1888), "Le Jardin des supplices"(1899) d "Le Journal d'une femme de chambre" (1900). Yaru awed tisiway n umezgun ẓund "Les affaires sont les affaires" ityassnen s waṭas.
+
+Afernan n tẓuri, ikka iga ameddakkel d Claude Monet d Auguste Rodin. Isten awed Alfred Dreyfus g tedyant-nnes. 
+
+
+
+
+Sɛid At Mɛemmer Sɛid At Mɛemmer
+
+Sɛid At Mɛemmer d amyaru, d amedyaz aqbayli i yettidiren di tmurt n Lalman. Ilul ass n 09 yunyu 1966, deg At Meslayen di Tizi Uzzu.
+
+Sɛid At Mɛemmer d yiwen umedyaz atrar, d amyaru aqbayli i yettidiren di tmurt n Lalman. Yedder u yeqqim d aqbayli n tidett.
+
+Tamedyazt ines tgerrez aṭas, u nettaf deg isefra ines yakw ayen yaɛnan taqbaylit; yewwi-d af ṭaqa n isental, ger wid yecqan taqbaylit. Essaid At Maamar iseqdac tamedyazt-is s uzawan i wakken ad yejbed tamezzuɣt n win a s-id-iḥessen, ur llan ara aṭas i zemren ad xedmen akken. Taẓuri ines meqqret ama di taqbaylitiquren i yettmeslay, ama deg umgarad n isental ɣef i d-ittawi deg isefra ines, ama d Tayri, Tawacult, Imdukal, Ineɣmasen d inaẓuren iqbayliyen imucaɛen am Muḥend Arab Besaɛud, Lunis At Mengellat, Lwennas Meɛṭub, Ɛli At Ferḥat (Ideflawen)... atg. Aseḥrireb af tutlay tamaziɣt d taqbaylit, i nettaf nezeh di tmedyazt-is. 
+Essaid At Maamar issufɣ-ed yiwen uḍebsi usid s w-azal-is, isem-yas : "I kečč a Lunnas". D tajjmilt i ucennay Lwennas Meɛṭub. 
+
+Daɣen Essaid At Maamar yettsuqul-ed si tutlayin tiwerdanin(tiberraniyin), ladɣa seg talmanit, imi yettidir di tmurt n Lalman. ɣef umedya, llant kra n tmucuha yettwasnen di tmurt agi, i yuran watmaten "Grimm". Yerra-tent-id ar tutlayt taqbaylit, admega d Hänsel akw d Gretel, iwimi yefka ismawen iqbayliyen: "Ḥmiṭuc d Duduc", ak d Aschenputtel neɣ "Cendrillon", iwimi isemma : "M-iɣiɣden". Essaid At Maamar, ula d netta yettaru timucuha s taqbaylit. Ger tid i yettwasnen d "Tiɣimit deg tiɣilt n wedrar". Essaid At Maamar yettaru aṭas imagraden, isefra, akw d idrisen deg ismal uzeṭa n Internet, ladɣa deg asmel n tasekla : imyura.net. Atnan izwal n kra n tmucuha, tijmilin, idrisen akw d isefra n Essaid At Maamar :
+
+
+Seřwan Seřwan
+
+Seřwan neɣ Selwan (Tamaziɣt n Arrif: Seřwan, s Taɛrabt: سلوان', s Tafṛansist: "Selouane") d yiwet temdint yellan di temnaḍt n Ennaḍor di ugafa n Merruk. Deg useggas n 2004 zedɣen di Seřwan 10.000 imezdaɣ. Akk nsen ssawalen tutlayt Tamaziɣt. 
+Aɣbal Aɣbal
+
+Aɣbal (s tefṛensist: "Aghbal"), d taɣiwant n utaram (lɣerb) n Tipaza, zedɣen-t 6.606 n yimezdaɣen.
+Angélica Angélica
+
+Angélica Ksyvickis Huck tlul ass n 30 wamber 1973.
+Alan Stivell Alan Stivell
+
+Ilul Alan Stivell ass n yennayer 1944 di Rium (Riom) deg Auvergne, d anaẓur, acennay, aẓawan afṛansi yettnaɣen iwakken idles abriṭani d tmurt tabriṭanit ad sɛun azref deg akal-nsen. Yetturar s waṭas n tawilat uẓawan garasen: "bombarde", "biniou kozh", "cornemuse écossaise", "tin whistle" d "harpe celtique".
+
+24 Iseɣraz :
+
+
+Agraw i Yidles d Tugdut Agraw i Yidles d Tugdut
+
+Agraw i Yidles d Tugdut (GDG) (Tafransist: "Rassemblement pour la Culture et la Démocratie (RCD)") d akabar asertan i yellan deg Lezzayer. Akabar-a yedwes deg tmurt n Leqbayel . Yesbedd-it mass Saɛid Saɛdi deg 1989 deg Tizi Wezzu. 
+
+Amezruy n ukabar-agi daɣen yeqqen s amezruy n umalway-ines Saɛid Saɛdi.
+
+Agraw i Yidles d Tugdut, am Tirni Iɣallen Inemlayen, ur yekcim ara deg tefrant n tselwit deg 2002.
+Tagrawla (Tarbaɛt) Tagrawla (Tarbaɛt)
+
+Tarbaɛt n tagrawla tlul-d di Tesdawit n Bab Zzewwar, deg 1977, snulfan-tt-id inelmaden di tussnakt: yidir Ɛumar, xlifa, ḥsen, yerna-d ɣur-sen Belɛid deg 1980, tizlatin-nsen: jida,ulerri,nerrez,yuègurten,afrik,fadma n sumer,yemma tedda hafi, ssuffɣen d a CD aneggaru deg 2012 isem-is "acuɣer".Dante Alighieri Dante Alighieri
+
+Dante Alighieri ilul g 22 mayyu 1265, immut g 14 ctambir 1321. D amaru aṭalyan. D netta i d ababat n tutlayt taṭalyant n wassa, imi yella seg imezwura i yuran yess yerna itebbet ilugan-is asmi tella d tantala kan tatuksanit deg tmennaṭ n Florencia n tura. Yettwassen ugar s udlis-is " Tikumidit", ideg i d-yessugen yiwen yinig ɣer Ǧahennama anda i d-yettemlil wid i ixedmen cceṛ i d-yegran di tmes.
+
+Gelasius I Gelasius I
+
+Gelasius I neɣ Gelaz Amezwaru, d ababat n teknisit wis 49, ilul deg Tefriqt ugafa, yemmut di Ṛrum ass n 21 Wamber aseggas 496.
+ESME Sudria ESME Sudria
+
+ESME-Sudria (ex-Ecole spéciale de mécanique et d'electricité) d yiwet n "Grande école" (lakul tameqqrant) tafransist n tussna n enjenyer, tella di temdint n Ivry-sur-Seine.
+
+Lakul tlul di useggas n 1905, baba-s d anjinyur afransi s iẓuran ikataliyen Joachim Sudria.
+Taglest Taglest
+
+Taglest d tallit tamenzut deg amezruy tebda mi id-tenulfa tira (3200 uqbel talalit n lmasiḥ) tekfa mi teɣli temdint n ruma ɣef ufus n teqbilin tibarbarin (tribus barbares) aseggas n 476.Burkina Faso Burkina Faso
+
+Burkina fasu d tamurt id yezgan deg umalu n lber n tefriqt zint-as-d setta n tmura ,seg ugafa mali ,seg usamer niǧer ,seg unẓul tugu,binin,ɣana,kut divwar.
+
+Burkina fasu (vulta taɛlayant) tella d amur deg tgelda n Mali tineslemt, sakin tuɣal d amur deg tgelda n sanfi , sakin teqqel d tagelda n vulta uqbel amnekcem afransi deg useggas 1896,tewwi timunent ines deg useggas 1960.
+Igures Igures
+
+Igures d yiwet n taddart i d yezgan di tɣiwant n At Yeḥya di tanebdaḍt n Tala n Sila (Michelet) deg ugezdu n Tizi Wezzu.
+
+Aɛmer Ubuyaḥya d yiwen umrabeḍ ,tezdeɣ tarwa-s tama n wasif ddaw Igures , di tgerwla mgal amnekcem afransis (1954) tefka d taddart 32 imeɣraṣen am [Akli At Ṭayeb][Tasaɛdit At Ṭayeb] [Messaoud,Madjid,Yamina At Tayeb],[Muḥend Lɛerbi At amar] neɣ [Busɛad Ujidan]. Syina mi yefra ṭrad, ulin atas imezdaɣ d asawen seg wasif mi yuɣen tiferkiwin ɣer taddart n At Mlal id yezgan s ufella n Igures .
+
+Taddart Igures tesɛa tilisa nettat dwatas Ljiranis : At Mellal , At Bu Yusef ( tiferdud+tazruts ) iferhounene (ibelqisen+ahduch)
+Taddart igures tebda ɣef 6 Idermans :
+1* At Ṭtayeb= ( 4 Ixamen )
+2* At Weftis(ait mouffok)
+3* Igujilen + At aemar ( Oudjidane )
+4* At L'mouhoub 
+5* At Abderrahmane,6*Ait Idir
+
+Tadert igures tesa 6 n yismawen n twacult:
+
+Tesɛa taddart azal (983 imezdaɣ) deg useggas 2015 .
+Dawed Dawed
+
+Dawed d agellid wis sin n tgelda n Israyil tamzikit, yuder deg uwines wis mraw send talalit n Ɛisa.
+Deg ajjed n tineslemt, d nnbi seg 25 inbiyen yuran di Leqran.
+
+D ameksa n udrum n Yahuda, d mmis amaẓuz n Yasa , Ḍalut agellid n imir nni yusem fellas acku yebɣa ad as yekkes tagelda mi i yenɣa Ǧalut ameqran.
+Asmi yemmut Ḍalut yuɣal Dawed d agellid yeẓaz tilisa n tgelda n israyil alama d Maṣer akked Furat imi yemmut dawed ixelf t id Sliman mmis ɣef uqerru n tgelda.
+Sami Ameziane Sami Ameziane
+
+Sami Ameziane neɣ Sami Ameẓyan s teqbaylit d anazur urasan (humoriste) aqbayli, d amyaru, d ameskar umezgun n urasan d teḍṣa. Yella daɣen d anadal n Basket-Ball. Ilul ass n 6 yennayer 1979 deg Saint-Denis Fṛansa.
+Aksel (agellid) Aksel (agellid)
+
+Aksil (s tlatint: Caecilius), d agellid amaziɣ d amɣar ameqqran n twsit. Ilul deg teɣremt n Tixencelt deg tmurt n Dzayer, yenbeḍ tagldit tamaziɣt yellan si Tunes ɣer utaram n Dzayer. Yezga-d wakal ines si Wehran d Tlemsan deg utaram ar tiɣremt n Qayrawan deg ugmuḍ. Ittuyssan aṭṭas deg n unekcum n Waɛraben ɣer Tefriqt n Ugafa. Yffeɣ seg tmasiḥit d yekcem ɣer Tneslemt, maca yuɣal ɣer tmasiḥit send lmut-is. 
+
+Aksil yennuɣ mgal Ɛuqba Ibn Nafiɛ d Zuhayr Ibn Qays Lbalwi nnig unekcum nsen ɣer Tmazɣa.
+Saɣru Band Saɣru Band
+
+Saɣru Band d tarbaɛt seg wanẓul-wegmuḍ n Umerruk. Saɣru Band xelqen-tt atmaten Mbarek d Xalid Ulɛrbi tsmun inaẓuren Mbarek Ulɛrbi, Xalid Ulɛrbi, Ɛmar, Fuad d Ɛli.
+
+
+
+
+Ieɣf n Uzger !
+
+Ur nudir ula n-dder
+
+Ur ngin ula n-kker
+
+Ur neɣri, ur n-semder
+
+Ur ɣurneɣ mayed n-ffer !
+
+Nekkni nugi ad nɣer
+
+Iɣef-inu am win uzger
+
+Ur nekriz mayed n-megger
+
+Is tram ad n-g Lbeṛbeṛ ?
+
+Ur nɛeqqal yad i bučfer
+
+Tin Baddu ula Bugafer
+
+Tirrugza d mas tessfer
+
+Ur nsul dat-t n-bedder
+
+Tamara tegna-ɣ g iɣmeṛ
+
+Ur nɛeẓẓi ad as nɣer
+
+Is tram ad n ttetter ?
+
+G wakal g d nenker ?
+
+Tabrat i Wbama.
+
+Ubama nkk d ameẓyan
+
+Yemmi ɛzizen tenna-yi
+
+Mimmi wigan ka yafi.
+
+Nekkni nuɣal d-ameqṛan
+
+Neɣṛa nuli s ifadden
+
+Awinit-t ayt idrimen
+
+Sawleɣ dat Lbeṛlaman
+
+Uwin-i-d ayt iɛekzan
+
+Beddan ɣifi rad-i nɣen.
+
+Awyati-nn s Marikan
+
+Ad idireɣ amm imdanen
+
+Ssufɣati-nn g ixeṛṛiqen.
+
+Ḥellu issergigin akal
+
+Abujadi Aṛeḥḥal
+
+Aydas-n yenna Ɛellal.
+
+Ameɣnas g ubniq iɣemel
+
+Tarwa nneɣ mmuten s wetfel
+
+Tidit n wi tdderɣel.
+
+Nger aɣuyyi ar Agdal
+
+Ad asin aqeṛyan ungal
+
+Yaɣi uya seg Listiqlal.
+
+Negr-ak aɛeban amellal
+
+Asey ɣifi bu tḥellal
+
+Hat sbiddiɣ acenyal.
+
+Ubama nekk d Amaziɣ
+
+S tmagit d yiles inw stiɣ
+
+Ran wi ad digsen fsiɣ !.
+
+Ad geɣ Aɛrab ur rtiɣ
+
+Uridd Lyaman agd ddiɣ
+
+Graɣ cigan d asettiɣ
+
+Mimmi wanna-d ssegmiɣ
+
+Ad as geɣ isem nna riɣ
+
+Meqqar-d s idammen ɣiɣ
+
+Ad ẓẓalleɣ i wanna riɣ
+
+Ur ṛeẓẓaɣ nkk ula kweniɣ
+
+Qqa-d qqimeɣ d Amaziɣ
+
+Lalla Mimuna
+
+G ubrid iǧan aɣezzaf
+
+G ubrid nǧa akabaṛ
+
+Tawrirt ad-t naley zik
+
+Ur neǧǧid i fad d laẓ
+
+Tawant tella yaɣ g wul
+
+Ur neǧǧid i fad d laẓ
+
+Mimuna lalla Mimuna !!
+
+G uǧraw abadir nga-t
+
+Diǧes asafar i kwu yan
+
+Iqbilen urem-n akw ttečan
+
+S uryaz ula tameṭṭut
+
+S wunǧal ula amellal
+
+S taymat nččar akw lxiṛ
+
+Mimuna lalla Mimuna !!
+
+Ntter i Mulana neɣra-s
+
+Gin aɣ tisura xf uyeffas
+
+Raren ul inw d afessas
+
+Aferaḥ ufan aytmas
+
+Maṛs iẓil ayaseggwas
+
+Tizzwa xf uldjiǧ arras
+
+Mimuna lalla Mimuna !!
+
+Tayri tella yaɣ ǧ wul
+
+Tayri n wa-nn d ta-nn d wa-nn
+
+Tudmawin ur akw ḥlint
+
+Win-nek a Rebbi ayd nǧa
+
+Nemyaɣ ifassen ad neddu
+
+Nemyiri akw afella
+
+Mimuna lalla Mimuna !!
+
+Abrid-inu !
+
+Ageḍṛuṛ iney-i-id aqmu,
+
+Issencef-i uẓru n leɛlu,
+
+Ur yad yaṭfut umalu,
+
+Iɣef inker ir'ad iddu.
+
+Ggulliɣ ttbeddaleɣ ansa,
+
+Ad nzel laṭer-inu i tmara;
+
+Sbelyun neɣ d Fransa,
+
+Nekkin yad giɣ ubeṛṛa.
+
+Amalu, tga-yi tmara
+
+Taɣect asiɣ tissufra
+
+Ad nadaɣ nekk anfara
+
+Neɣ d-zaydeɣ tayeḍ tmara.
+
+Ka nɣan-t s rrṣaṣ d ssif,
+
+Ka nɣan-t waman bessif;
+
+Tiɛurrma yugin lḥif
+
+Temmut g Laṭlas d rrif.
+
+Umẓen-aɣ ayt tmezyin
+
+Reglen ɣifneɣ tifelwin,
+
+Ukern-aɣ tiwargiwin,
+
+Ur aɣ-isul ɣas aẓey-inn.
+
+Immut meskin g waman,
+
+Immut tcan-t iselman;
+
+Ur tekkul lḥhukuma,
+
+Ur ibriy lberlaman.
+
+Kker a mmis Umaziɣ !
+
+Kker a mmis Umaziɣ !
+
+Tafuyt nneɣ tuli-d,
+Cigan aya wer tt-ẓriɣ,
+
+Tawala nneɣ a gma tetti-d,
+
+Azzel in'as i Masinissa :
+
+Tamazɣa tuki-d ass-a,
+
+Arraw-is mlalen dduklen,
+
+G isenḍal n lejdud feṛḥen.
+
+Kker a mmis Umaziɣ !
+
+Tafuyt nneɣ tuli-d,
+
+Cigan aya wer tt-ẓriɣ,
+
+Tawala nneɣ a gma tetti-d,
+
+In'as in'as i Yugerten
+
+Arraw-is s annar ffɣen,
+
+Idammen-is hat at-tni raren
+
+Isem-is at-t-id-sskeflen,
+
+Kker a mmis Umaziɣ !
+
+Tafuyt nneɣ tuli-d,
+
+Cigan aya wer tt-ẓriɣ,
+
+Tawala nneɣ a gma tetti-d,
+
+Ɣiwel in'as i Takfarinas :
+
+Tilelli, a-nemmet fellas,
+
+Tamurt nneɣ d tmust nneɣ
+
+Ayd igan tudert nneɣ.
+
+Kker a mmis Umaziɣ !
+
+Tafuyt nneɣ tuli-d,
+
+Cigan aya wer tt-ẓriɣ,
+
+Tawala nneɣ a gma tetti-d,
+
+S tutlayt nneɣ a-nili,
+
+asekk' ad yaf iḍelli,
+
+Timmuzɣa at-tegm at-ternu,
+D itri dda s akw ntteddu.
+
+Kker a mmis Umaziɣ !
+
+Tafuyt nneɣ tuli-d,
+
+Cigan aya wer tt-ẓriɣ,
+
+Tawala nneɣ a gma tetti,
+Afɣanistan Afɣanistan
+
+Tamurt n Afɣanistan, tezga-d g unẓul n Asya, tezga-d gar Pakistan akked Iran.
+Ityupya Ityupya
+
+Ityupya d tamurt n Tefriqt Tagmuḍant. Tajumma-nnes 1.104.300 km2 (ikilumitren imkuẓen). Zedɣen-tt 85.237.338 n yimezdaɣen (Ityupiyen). Tamaneɣt-nnes d Addis Abeba. 
+Iritirya Iritirya
+
+Iritirya d tamurt n Tefriqt Tagmuḍant. Tajumma-nnes 117.600 km2. Zedɣen-tt 5.224.000 n yimezdaɣen (Iritiriyen). Tamaneɣt-nnes d Asmara.
+Ṭugu Ṭugu
+
+Ṭugu neɣ tagduda n ṭugu d yiwet n tmurt id yezgan di tefriqt umalu , tesɛa tilas nettat d tmura
+Burkina Fasu,Ɣana,Binin.
+Michael Jackson Michael Jackson
+
+Michael Joe Jackson, ilul ass n 29 ɣuct 1958 di Gary Indiana, d acennay, aceṭṭaḥ, amaru n tezlatin amarikani.
+Malawi Malawi
+
+Malawi d yiwet n tmurt id yezgan deg unẓul umenẓaw n tefriqt , tesɛa tilisa nettat d Muzambik,Tanẓanya,Zambya.
+Eminem Eminem
+
+Eminem neɣ Slim Shady isem aḥeqqani Marshall Bruce Mathers III, ilul ass n 17 Tuber 1972 di Kansas City deg ugezdu n Missouri di tmurt n Marikan. D anaẓur deg uɣanib n rap.
+
+
+Asif n Mississippi Asif n Mississippi
+
+Asif n Mississippi d asif ameqran akk deg Tamrikt n Ugafa. Ibeddu-d seg ugelmim n Itasca (deg Minnesota, deg Yiwunak Yeddukklen), yerna aman-nnes ttenɣalen s anẓul [1] arma d Abagu n Miksik. Isafen n Missouri ed Ohio ssenɣalen-d daɣen aman-nsen s asif-a. Mississippi ɣer-s 3.780 n yikilumitren deg teɣzef, yerna tajumma-nnes [2] tuweḍ ɣer 3,1 km2 [3].
+D anaram [4] Hernando de Soto ay d Uṛufi amezwaru ay yuwḍen s asif-a deg 1541. Deg 1673, Ifṛensisen Louis Jolliet ed Jacques Marquette ssaklen [5] deg wasif-a yerna uwḍen armi d asif n Arkansas. Anaram afṛensis La Salle yuweḍ s adelta n wasif-a deg 1682 yerna d netta ay d Afṛensis amezwaru ay d-yesɣerten [6] tama n Mississippi ed Louisiana d ayla n Fṛansa. D aya ay yejjan Fṛansa ad teḥkem tama n ugafa n wasif-nni. Ma d tama n wenẓul-nnes teqqel ddaw udabu n Spenyul seg 1769 d asawen. Deg 1783, Iwunak Yeddukklen rran asif n Mississippi d talast-nsen tutrimt [7], sakkin, deg 1803, Fṛansa tessenz akal-nnes n Mississippi ed Louisiana i Yiwunak Yeddukklen. Deg 1863, deg tallit n Wemgaru Aɣarim [8] deg Yiwunak Yeddukklen, iɣallen imarikaniyen n Tdukli ḍḍfen tamdint n Vicksburg ay d-yezgan ɣef wasif n Mississippi yerna d aya ay ten-yejjan ad sbeɛden iɣallen Ikunfidiṛaliyen ɣef wasif-a. Ass-a, asif n Mississippi yeqqel d abrid ameqran n yiɣerruba deg Yiwunak Yeddukklen.
+
+↑ superficie مساحة
+↑ yikilumitren imkuẓen
+↑ explorateur مستكشف
+↑ voyager سافر
+↑ déclarer أعلن
+↑ occidentale غربية
+↑ guerre civile حرب أهلية
+Imilcil Imilcil
+
+Imilcil d yiwet temnaḍt tamsedrart iy yellan deg Merruk. 
+
+Imezdaɣ n Imilcil da ttinin asen agdud n Ulemɣenni. Imilcil illa deg idurar n Aṭlas deg yiwen uzilal n 2200 mitru. G ugdal n Ayt Ḥdiddu, Imilcil d yiwen iɣrem ikkan i yidles Amaziɣ tizzit tameqqrant iwer-inn Umerruk.
+Azɣenɣan Azɣenɣan
+
+Azɣenɣan (s tira n Tefransist: "Segangan") d iɣrem yellan di ugafa Umerruk di temnaḍt n Ennaḍur g Arrif, yus-d 6 kilumiter ɣef utaram n iɣrem n Nnaḍur. Tajumma n Azɣenɣan d can 508 hiktar, zeddɣen deg-s kra n 20.180 n imezdaɣ.
+Mlilt Mlilt
+
+Mlilt neɣ Mřič s Tmaziɣt n Arrif (Tasbanyant: Melilla, Taɛrabt: مليلية) d tamdint seddaw tenbaḍt n Spenyul di ugafa n Umerruk, ɣer wefṭis n Ilel Agrakal deg Arrif. 
+Agelmim n Itasca Agelmim n Itasca
+
+Itasca d agelmim ameẓyan ay d-yezgan deg uwanek n Minnesota, deg Yiwunak Yeddukklen. Itasca lqay gar 6 ed 11 n lmitrat, tajumma-nnes [1] 4,7 km² [2]. Deg 1832, Henry Schoolcraft yuweḍ s agelmim-a yerna yufa-d seg-s ay d-ibeddu wasif n Mississippi. Ujibwaten (Ihendiyen ay izedɣen deg tama-a) semman-as i ugelmim-a Omashkoozo-zaaga'igan (agelmim n uwapiti[3]). Ma d Schoolcraft isemma-as 'Itasca' seg tenfalit talatinit veritas caput (iɣef n tidet, anamek-nnes, iɣef n wasif n Mississippi).
+
+Arrif Arrif
+
+Arrif (s tifinaɣ: ⴰⵔⵔⵉⴼ) d tama tadelsant tamsedrart tezga-d ugafa n Umeṛṛuk, tessajja ɣef yilel agrakal, zeddɣen deg-s 3 imelyan n imezdaɣ.
+
+Seg iɣerman imeqqranen i yellan di temnaḍt n Arrif Ameqqran ɣer-neɣ: Nnaḍur, Lḥusima, Miḍar, Targist, Azɣenɣan, Seřwan, Zayyu, berkan, Aɛarwi, Driwec, At Buɛeyyac, kassita , Imzuren ed Ajdir 
+
+Idurar n Arrif udsen ar idurar n ordillera Bética n unẓul n Spenya. Akken daɣen i yudsen ɣer idurar n waṭlas maca ur qqinen ɣursen ur llin d amur deg-sen. Gar-asen tella Taza.
+Iwdan yessawalen Tmaziɣt di Arrif qqaren i iman-nsen “Imaziɣen” neɣ “Irifiyen”, tutlayt-nsen qqaren as “Tamaziɣt” mači "Tarifit". Iwdan n berra i Arrif d nitni i yeqqaren Tarifit.
+
+Traditionally, the principal Riffian tribes of the region are:
+Agelmim n Mellaḥ Agelmim n Mellaḥ
+
+Agelmim n Mellaḥ d agelmim amerɣan i d-yezga-n deg ugafa n ugezdu n Ṭṭaref (Lezzayer). Agelmim-a yezga-d ɣef yiri n Yilel Agrakal anda yebṭa gar-asen yiwen kan n usaka n yijdi ayen yeǧǧan aman-is d imerɣanen
+Agelmim-a d adeg anda ttekken waṭas n yigṭaṭ iminigen deg yinig-nsen gar Tferka d Tuṛuft. Tajumma n ugelmim-a 860 km². Tudes ɣer-s yiwet n teẓgi n taydiwin.
+
+Sɣur : <nowiki>http://tasedkalt.wikidot.com/mella-agelmim-n</nowiki>
+Tirni Tislamit n Ussukkes Tirni Tislamit n Ussukkes
+
+Tirni Tislamit n Ussukkes (s tefṛensist: "Front Islamique du Salut" - FIS), d akabar adzayri aqbur ay yellan yekkat akken ad yerr tamurt n Ldzayer d awanak (ddula) islami. 
+
+Akabar-a sbedden-t-id Ɛebbassi Madani ed Ɛli Belḥaǧ deg 18 Furar 1989. Deg tefranin n tɣiwanin n 1990, akabar-a yessaweḍ ad d-yerbeḥ amur ameqran seg tɣiwanin n tmurt n Ldzayer. 
+Si 1991, ggan aṭas n tigawin (actions) n ccwal (tikliwin ed yisundiden [grèves]), dɣa d aya ay yejjan awanak adzayri ad ten-yeṭṭef yerna ad ten-yerr ɣer lḥebs.
+
+Deg tefranin tiwamniyin (parlementaires) n Dujembeṛ n 1991, Tirni Tislamit n Ussukkes terbeḥ tuzzya tamezwarut n tefranin. Maca deg Yennayer n 1992, asmi ay yeffeɣ Cadli Benjedid seg wemkan-nnes n uselway n tegduda, ttwabeṭlent tefranin-nni yerna ttwafesxent tɣiwanin ay yeḥkem ukabar-a. 
+Deg Meɣres n 1992, axxam n ccṛeɛ n temdint n Ldzayer yefsex akabar n Terni Tislamit n Ussukkes, yerna d aya ay yejjan ineḍfaren n ukabar-a ad d-snekren imenɣi imselleḥ i wakken ad ṭṭfen adabu s yiɣil, yerna sbedden-d Igen Islami n Ussukkes (AIS) i lmend n waya. D acu kan, deg tallit-nni, llan yineḍfaren nniḍen n ukabar-a ay d-yesbedden tirebbaɛ timsellḥin nniḍen (am Tegrawt Tislamit Timselleḥt). 
+
+Imenɣi imselleḥ ay d-yebdan deg 1992, d win ay yegren Ldzayer deg tallit-nni taberkant n rrebrab ay yeglan s waṭas n tmeddurin. 
+
+Deg 1997, anabaḍ adzayri yessuffeɣ-d Ɛebbassi Madani seg lḥebs, maca yerra-t ɣer tnezduɣt ddaw tɛessast. 
+Deg 24 Ctembeṛ n useggas-nni, Igen Islami Imselleḥ (GIA neɣ GSM s tmaziɣt) yeḥbes imenɣi-nnes. Deg wass n 13 Yennayer 2000, Igen Islami n Ussukkes (AIS neɣ GSS) yejja i lebda imenɣi imselleḥ yerna wid yettekkan deg-s yeɛfa-asen uwanak. 
+Deg 2003, awanak yefka-asen tilelli-nsen ama i Ɛebbassi Madani ed Ɛli Belḥaǧ. Deg wakud aydeg Ɛebbassi Madani yennejla ɣer tmura n beṛṛa, Ɛli Belḥaǧ yettwagdel-as ad yeffeɣ seg wakal n Ldzayer yerna mazal-itt ddaw tɛessast.
+Danmaṛk Danmaṛk
+
+Danmark d tamurt n Turuft n ugafa. Tajumma-nnes 43.069 km2 (yikilumitren imkuẓen). Zedɣen-tt 5.432.000 n yimezdaɣen (Idanen). Tamaneɣt-nnes d Kopenhagen.
+Bab Zzewwar Bab Zzewwar
+
+Bab Zzewwaṛ (anamek-nnes s tmaziɣt: Tawwurt n Yinerzafen), d taɣiwant n twilayt n Ldzayer (tezga-d deg wegmuḍ [ccerq] n temdint n Ldzayer). Tajumma-nnes 800 km2 (yikilumitren imkuẓen). Zedɣen-tt 315.456 n yimezdaɣen.
+New Delhi New Delhi
+
+New Delhi d tamaneɣt n Lhend. Tezga-d deg ugafa (nord) n tmurt. Zedɣen-tt 295.000 n yimezdaɣen.
+Totia Meireles Totia Meireles
+
+Maria Elvira Meirelles tlul ass n 11 tuber 1958.
+Letícia Sabatella Letícia Sabatella
+
+Letícia Sabatella tlul ass n 8 meɣres 1972 di Belo Horizonte, d tasegbart tabrizilit.
+Oscar Magrini Oscar Magrini
+
+Oscar Magrini ilul ass n 2 ctamber 1961.
+Tawrirt n Musa U Ɛmer Tawrirt n Musa U Ɛmer
+
+Tawrirt n Musa U Ɛmer (yettwanṭaq: "tawrirt n musa weɛmeṛ" - s tefṛensist: Taourirt Moussa Ouamar), d taddart n tɣiwant n At Maḥmud. Deg taddart-a ay ilul ucennay Lwennas Meɛṭub.
+Île-de-France Île-de-France
+
+Ile-de-France d tamnaṭ n tlemmast n ugafa (centre-nord) n Fransa, tajumma-nnes km² (yikilumitren imkuẓen), yerna zedɣen-tt n yimezdaɣen. Tamaneɣt-nnes d tamdint n Paris (yerna d tamaneɣt n tmurt s lekmal-nnes).
+Albanya Albanya
+
+Albanya d yiwet n tmurt id yezgan deg wenẓul agmuḍan n Turuft, tezga-d deg Tzunegzirt n Bilqan. Tajumma-ynes 28.748 km2 (yikilumitren imkuẓen). Zedɣen-tt 2.876.591 (2017) n yimezdaɣen (Albaniyen). Tamaneɣt-nnes d Tirana.
+
+Aselway: Bamir Topi.
+Aneɣlaf Amezwaru: Sali Berisha.
+
+Amur ameqran seg wakal n Albanya d idraren aydeg kra n tqacucin ttawḍent ɣer 2100 ed 2600 n lmitrat deg leɛlu. Izuɣar zgan-d deg utaram (lɣerb) n tmurt, ɣef yiri n Yilel Aderyati. Ugar n tis kraḍ (tis tlata) seg wakal n Albanya d tiẓegwa.
+
+Tuget deg yimezdaɣen n Albanya seg weɣref (cceɛb) albani ay d-yudren seg Yilliriyen iqburen (d aɣref ahenduṛufi). Maca llan daɣen Yegrigiyen, Iziganen, Iserbiyen ed Yibulgaṛiyen deg Albanya. Amur ameqran seg yimezdaɣen n tmurt d Inselmen. Aṭas n Walbaniyen ay yeddren daɣen deg tmura tijiratin am Kosovo, Masidunya, Serbi akked Montenegro. Deg wemgaru-nni (ṭṭrad) n Kosovo n 1999, aṭas n Walbaniyen n Kosovo ay d-irewlen ɣer tmurt n Albanya.
+
+Ass-a, Albanya d yiwet seg tmura tigellilin akk n Tuṛuft. Tadamsa n tmurt-a tebna ladɣa ɣef tfellaḥt yerna deg 1997, Albanya tenḍerr mliḥ seg yiwet n taluft tameqrant n tdamsa.
+
+(c) Omar Mouffok - Tiddukla Tadelsant Imedyazen
+Sebta Sebta
+
+Sebta (Taspenyulit : Ceuta) d tamdint ay d-yezgan deg ugafa n Merruk yerna teṭṭef-itt Spenyul. Tajumma-nnes 18,5 km2 (ikilumitren imkuẓen). Zedɣen-tt 75.276 n yimezdaɣen : llan gar-asen Ispenyulen ed Yimaziɣen. 
+Muḥemmed Ɣennuci Muḥemmed Ɣennuci
+
+Muḥemmed Ɣennuci (ilul deg 18 Ɣuct 1941 deg Susa), d argaz n tsertit atunsi n ukabar n Rassemblement Constitutionel Démocratique. Yeqdec d Aneɣlaf Amezwaru n tmurt gar 1999 ed Fuṛaṛ 2011. Deg wass n 27 Fuṛaṛ n useggas-a, yeffeɣ seg wemkan-nnes. D aya ay yejjan aselway Fouad Mebazaa ad d-isemmi Bejji Lqayed Ssebṣi akken ad t-id-yexlef. 
+Ɛin Bessam Ɛin Bessam
+
+Ɛin Bessam d taɣiwant n twilayt n Tubiret, zedɣen-tt 36.830 n yimezdaɣen (tezga-d deg utaram [lɣerb] n temdint n Tubiret yerna tebɛed fell-as s 25 n yikilumitren).
+Decmeyya Decmeyya
+
+Decmeyya (s tefṛensist: Dechmia), d taɣiwant n twilayt n Tubiret, zedɣen-tt 7.466 n yimezdaɣen. Tezga-d deg wenẓul (sud) n temdint n Tubiret yerna tebɛed fell-as s wazal n 30 n yikilumitren ed 15 n yikilumitren ɣef temdint n Ṣur Lɣezlan. Decmeyya teqqen ɣer tdayṛa n Ṣur Lɣezlan.
+Imnayen (taɣiwant) Imnayen (taɣiwant)
+
+Imnayen d taɣiwant n ugezdu n Bumerdas, zedɣen-tt 53.782 n yimezdaɣen.
+
+[[Taggayt:Lɛelma Lɛelma
+
+Lɛelma (s tefṛensist: El Eulma), d taɣiwant n Sṭif, zedɣen-tt 120.068 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as Saint-Arnaud.
+Ɛin Lekbira Ɛin Lekbira
+
+Ɛin Lekbira (s tefṛensist: Ain El Kebira), d taɣiwant n ugafa (nord) n Sṭif. Zedɣen-tt 32.113 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ttinin-as "Perigotville".
+
+Tala n Wazal Tala n Wazal
+
+Tala n Wazal neɣ s taɛrabt "Ɛin Azal" d taɣiwant tacawit n Sṭif (Lezzayer). Zedɣen-tt 41.073 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as Ampère.
+Qṣer Lebṭal Qṣer Lebṭal
+
+Qṣer Lebṭal (s tefṛensist: Ksar El Abtal), d taɣiwant n twilayt n Sṭif, zedɣen-tt 20.667 n yimezdaɣen.
+Ɛin Ulman Ɛin Ulman
+
+Ɛin Ulman (s Tcawit : "Tiṭ Ulman"), d taɣiwant n Sṭif, zedɣen-tt 59.855 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ttinin-as Colbert.
+
+""Ɛin"" d awal ay d-yekkan si teɛrabt, anamek-is "tala", ma yella d "ulman" d awal n tmaziɣt, d asget (pluriel) n "ulmu". Ma d ulmu d yiwen n useklu (ttcejr'a), yekka-d yisem-is si tlatinit (Ulmus).
+
+Tajnant Tajnant
+
+Tajnant (s tefransist: "Tadjenanet"), d taɣiwant n twilayt n Mila, zedɣen-tt 43.151 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as Saint-Donat.
+Ḥerbil Ḥerbil
+
+Ḥerbil (s tefransist: "Harbil"), d taɣiwant n utaram (lɣerb) n Tawilayt n Sṭif, deg Tmurt n Leqbayel, zedɣen-tt 3.650 n yimezdaɣen.
+
+Bugeɛɛa Bugeɛɛa
+
+Bugeɛɛa (s tefransist: "Bougaa"), d taɣiwant n twilayt n Sṭif, ɣef yiri n Tmurt n Leqbayel, zedɣen-tt 28.431 n yimezdaɣen (llan gar-asen wid yessawalen s tmaziɣt). Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Lafayette".
+
+Tamenɣest Tamenɣest
+
+Tamenɣest (s tefrensist: "Tamanrasset"), d tamdint n wenẓul-agmuḍan (sud-est) n Ldzayer (yerna d tamaneɣt n twilayt n Tmenɣest). Zedɣen-tt 76.000 n yimezdaɣen.
+Tutlayin titergiyin Tutlayin titergiyin
+
+Tutlayin titergiyin (neɣ tatergit) d afurk n tutlayin timaziɣin ttwameslayent deg Ṣṣeḥra n Tafriqt n umalu. Llant rebɛa n tutlayin:
+
+Tatergit tettemgerrad deg tama ɣer tayeḍ. Tatergit n Uhaggaṛ (tin umi ɣɣaren tahaggaṛt neɣ tamaheɣt), ssawalen-tt deg wenẓul n Lezzayer. Tamaceq ssawalen-tt deg Mali g Uẓawad, ma d tamajeq/tayirt ssawalen-tt deg Nnijer. Tutlayt-a mazal tettwaru ar ass-a s ugemmay n tfinaɣ, maca, deg Nnijer ed Mali, llan wid ay tt-yettarun s ugemmay alatini. Tamaceɣt ssawalen-tt daɣen deg Libya akekd Burkina Faso, am wakken ay llan cwiṭ n Yimuhaɣ deg Nijirya d Ččad.
+Mekka Mekka
+
+Mekka d tamdint ay d-yezgan deg utaram (lɣerb) n Tgelda Tasaɛudit. Zedɣen-tt 1.700.000 n yimezdaɣen. Deg Mekka ay d-tezga Lkeɛba, amkan wuɣur d-ttasen Yinselmen akken ad ḥijjen, yerna d nettat ay d tamdint timqeddest akk deg Lislam. Deg temdint-a ay ilul umazun (nnbi) Muḥemmed ("taẓallit ed sslam n Ṛebbi fell-as"), deg lqern wis 6 sdeffir Sidna Ɛisa, yerna deg-s ay yebda izerreɛ Islam.
+Ɛwamreyya Ɛwamreyya
+
+Ɛwamreyya (s tefṛensist: "Ouamria"), d taɣiwant n Lemdiyyet, zedɣen-tt 14.724 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Borely-la-Sapie".
+Iwezzraten Iwezzraten
+
+Iwezzraten neɣ At Wezzra(s tefṛensist: "Ouzera" neɣ "Wezzra"), d taɣiwant n twilayt n Lemdeyyet, yezga-d deg wenẓul n Waṭlas Ablidi. Zedɣen-tt 11.491 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Loverdo".
+Berwageyya Berwageyya
+
+Beṛwageyya (s tefṛensist: "Berrouaghia"), d taɣiwant n wegmuḍ (ccerq) n Lemdiyyet, zedɣen-tt 58.780 n yimezdaɣen.
+Zubireyya Zubireyya
+
+Zubireyya (s tefṛensist: "Zoubiria"), d taɣiwant n twilayt n Lemdiyyet, zedɣen-tt 15.009 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Brazza".
+Draɛ Ssemmar Draɛ Ssemmar
+
+Draɛ Ssemmar (s tefṛensist: "Draa Smar" neɣ "Draa Esmar"), d taɣiwant n Lemdiyyet, zedɣen-tt 7.465 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Lodi".
+Tablaḍt Tablaḍt
+
+Tablaḍt neɣ Tablaṭ (s tefṛensist: "Tablat"), d taɣiwant n ugafa-agmuḍan (nord-est) n Lemdiyyet. Zedɣen-tt 28.276 n yimezdaɣen.
+Ḥemdaneyya Ḥemdaneyya
+
+Ḥemdaneyya (s tefṛensist: "El Hamdania"), d taɣiwant n twilayt n Lemdiyyet, zedɣen-tt 1.524 n yimezdaɣen.
+Derrag Derrag
+
+Derrag d taɣiwant n Lemdiyyet, zedɣen-tt 7.695 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Letourneux".
+Ẓebbuja Ẓebbuja
+
+Ẓebbuja (s tefṛensist: Zeboudja; s tmaziɣt: Taẓebbujt neɣ daɣen "Timezratin" s tmaziɣt n tama-agi), d taɣiwant n twilayt n Cclef, zedɣen-tt 23.079 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Hanoteau". Inezdaɣen n Ẓebbuǧa tmeslayen s tmaziɣt. 
+Tajna Tajna
+
+Tajna (s tefṛensist: "Tadjena") d taɣiwant n Ldzayer (deg twilayt n Cclef). Tennulfa-d deg 1984. Naqal tella teqqen ɣer tɣiwant n Buzɣaya. Deg tallit n Fṛansa llan ɣɣaren-as "Fromentin". Tajumma n Tajna 127 km2 (yikilumitren imkuẓen). Zedɣen-tt 24.399 n yimezdaɣen. Ɛlayet s 600 n lmitrat ɣef yilel.
+Lkarimeyya Lkarimeyya
+
+Lkarimeyya (s tefṛensist: "El Karimia"), d taɣiwant n twilayt n Cclef, zedɣen-tt 25.060 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Lamartine". Deg tɣiwant-a ay yemmut Henri Maillot deg 1956.
+Buqadir Buqadir
+
+Buqadir (s tefṛensist: "Boukadir"), d taɣiwant n twilayt n Cclef, zedɣen-tt 41.655 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Charon".
+Wad Feḍḍa Wad Feḍḍa
+
+Wad Feḍḍa (s tefṛenssit: "Oued Fodda"), d taɣiwant n twilayt n Cclef, zedɣen-tt 36.187 n yimezdaɣen.
+Wad Rhiw Wad Rhiw
+
+Wad Rhiw (s tefṛensist: "Oued Rhiou"), d taɣiwant n twilayt n Cclef, zedɣen-tt 54.435 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Inkermann".
+Wlad Benɛebdelqader Wlad Benɛebdelqader
+
+Wlad Benɛebdelqader (s tefṛensist: Ouled Ben Abdelkader, s tmaziɣt : "At Benɛbdelqader"), d taɣiwant n twilayt n Cclef, zedɣen-tt 17.385 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Masséna".
+Tawegrit Tawegrit
+
+Tawegrit (s tefṛensist: "Taougrite"), d taɣiwant n twilayt n Cclef, zedɣen-tt 24.267 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Paul Robert".
+Tnes Tnes
+
+Tnes (s tefṛensist: "Tenes", s Hcelḥit (Tamaziɣt) n Ddahret : Hens), d taɣiwant n ugafa (nord) n Cclef, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 34.332 n yimezdaɣen (kra seg-sen ssawalen s tmaziɣt).
+Taẓult Taẓult
+
+Taẓult (s tefransist: "Tazoult"), d taɣiwant n twilayt n Batnet, zedɣen-tt 22.114 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Lambèse".
+Taseryant Taseryant
+
+Taseryant (s tefṛensist: Seriana), d taɣiwant n twilayt n Tbatent, zedɣen-tt 11.714 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Pasteur".
+Bwiḥi Bwiḥi
+
+Bwiḥi (s tefṛensist: Bouihi), d taɣiwant n twilayt n Tlemsan, zedɣen-tt 7.618 n yimezdaɣen.
+Ɛin Fezza Ɛin Fezza
+
+Ɛin Fezza (s tefṛensist: "Ain Fezza"), d taɣiwant n twilayt n Tlemsan. Zedɣen-tt 9.598 n yimezdaɣen.
+Merṣa Ben Mhidi Merṣa Ben Mhidi
+
+Merṣa Ben Mhidi, d taɣiwant n Tlemsan (ɣef tlisa n Merruk), zedɣen-tt 5.554 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Port-Say".
+Ɣazawat Ɣazawat
+
+Ɣazawat , d taɣiwant n twilayt n Tlemsan, zedɣen-tt 33.094 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as Nemours.
+Remci Remci
+
+Remci d taɣiwant n twilayt n Tlemsan, zedɣen-tt 39.525 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Montagnac".
+Wlad Mimun Wlad Mimun
+
+Wlad Mimun (s tmaziɣt : At Mimun), d taɣiwant n twilayt n Tlemsan, zedɣen-tt 13.234 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Lamoricière".
+Ṣebra Ṣebra
+
+Ṣebra , d taɣiwant n twilayt n Tlemsan, zedɣen-tt 24.622 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Turenne".
+Lqull Lqull
+
+Lqull (s tefrensist: "Collo"), d taɣiwant n utaram (lɣerb) n Skikda, zedɣen-tt 31.480 n yimezdaɣen s laṣel umaziɣ aquran. 
+Ɛin Lbiḍa Ɛin Lbiḍa
+
+Ɛin Lbiḍa (s tefṛensist: "Ain Beida"; anamek s tmaziɣt: Tala Tamellalt neɣ Tiṭ Tamellalt), d taɣiwant n Um Lebwaqi, zedɣen-tt 92.197 n yimezdaɣen.
+
+Imdanen yettwassnen ay ilulen deg Ɛin Lbiḍa llan gar-asen : Kamal Ɛabdellawi (d amaru)
+Leḥdayeq Leḥdayeq
+
+Leḥdayeq (s tefṛensist: El Hadaiek, El Hedaiek), d taɣiwant n twilayt n Skikda, zedɣen-tt 12.288 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Saint-Antoine".
+Missouri Missouri
+
+Missouri d yiwen uwanak i d-yezgan di tmurt n Marikan, yesɛa 6 n yimelyan imezdaɣ ,tajjuma-ines 180 693 km².
+Sidi Lexḍer (Mestɣanem) Sidi Lexḍer (Mestɣanem)
+
+Sidi Lexḍer d taɣiwant n Mestɣanem. Zedɣen-tt 30.950 n yimezdaɣen.
+Ɛin Nwisi Ɛin Nwisi
+
+Ɛin Nwisi (s tefṛensist: Ain Nouissy), d taɣiwant n Mestɣanem. Zedɣen-tt 11.389 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as "Noisy-les-Bains".
+Ɛin Budinar Ɛin Budinar
+
+Ɛin Budinar (s tefṛensist: "Ain Boudinar"), d taɣiwant n Mestɣanem. Zedɣen-tt 5.241 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as "Belle Côte".
+Sidi Ɛli Sidi Ɛli
+
+Sidi Ɛli (s tefṛensist: "Sidi Ali"), d taɣiwant n Mestɣanem, zedɣen-tt 31.840 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Cassaigne".
+
+Ɣef wayen yenna René Basset, d amnadi af tmaziɣt n zik, llan zik imaziɣen i yesawalen (yemeslayen) Janat (Znatiya) ar 1900 di teqbilt n Ɛacaca ("Étude sur la Zenatia de l'Ouarsenis et du Maghreb central"). 
+Xeḍra Xeḍra
+
+Xeḍra (s tefṛensist: "Khadra"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 12.294 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Picard".
+Ḥasi Meɛmac Ḥasi Meɛmac
+
+Ḥasi Meɛmac (s tefṛensist: "Hassi Mameche"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 21.778 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Rivoli".
+Grarem Guga Grarem Guga
+
+Grarem Guga (s tefṛensist: "Grarem Gouga"), d taɣiwant n twilayt n Mila, zedɣen-tt 36.482 n yimezdaɣen.
+Talmat n Termitin Talmat n Termitin
+
+Talmat n Termitin d talmat tameqrant ay d-yezgan deg wegmam n Lḥamma, deg tɣiwant n Belwizdad, deg temdint n Ldzayer. 
+
+Seg yidis n wegmuḍ (ccerq), Talmat-a tecrek tilisa akked Usalay aɣelnaw n tẓuriyin tucbiḥin akked Usarir (stade) n 20 Ɣuct. Seg yidis n wenẓul (sud), iḥudd-itt-id wezniq n Mohamed Belouizdad. Seg yidis n utaram, iḥudd-itt-id usensu n Sofitel akked Temkarḍit Taɣelnawt. Ma seg yidis n Ugafa, iḥudd-itt-id wezniq n Ḥassiba Benbouali. 
+
+Talmat-a sbedden-tt-id Yefṛensisen deg 1832. Deg 1900, iduba ifṛensisen ledyen deg-s yiwet n telmat n yiɣersiwen, deg wakud aydeg llan sfulluḥen deg-s imɣan ay d-imeɣɣin deg tmura yeḥman n wakk timiwa n umaḍal. 
+Deg 1932, Talmat n Termitin tella-d d anrar aydeg ay d-uraren kra n yisuyas (scènes) n usaru n Tarzan. 
+Deg 8 Nwembeṛ 1942, asmi ay d-ẓedmen yiserdasen imarikaniyen ɣef Ldzayer, rran Talmat n Termitin d amkan i tɣimit-nsen, yerna d aya ay yejjan Almanen ad t-wten s yisafagen-nsen deg yiḍ n 26 ed 27 Ɣuct 1943. 
+
+Deg 2001, iduba idzayriyen ɣelqen Talmat n Termitin akken ad as-ɛawden aheyyi akked ucebbeḥ. Arma ay d Mayyu n 2009 ay tɛawed tettwaldey. Ass-a, Talmat n Termitin llant deg-s wazal n 3000 n tlemsin (leṣnaf) n yemɣan, yerna aṭas n medden ay irezzun fell-as.
+
+(c) Omar Mouffok - Tiddukla Tadelsant Imedyazen
+Cili Cili
+
+Cili d tamurt n Temrikt n Wenẓul. Tajumma-nnes 756.950 km2 (yikilumitren imkuẓen). Zedɣen-tt 17.224.200 n yimezdaɣen (Iciliyen). Tamaneɣt-nnes d Santiago.
+Tadamsa Tadamsa
+
+Tadamsa (asget: tidamsiwin - s tefṛensist: économie), d anagraw (système) n wembaddel ay d-yettilin gar yemdanen neɣ tiṛmisin (tikebbaniyin) deg wenrar n tnezzut (ttjaṛa). S umata, llan kraḍ yeḥricen deg tdamsa. Aḥric amezwaru d win yerzan tafellaḥt, ṣṣyada n yiselman akked ussekfel n lerbaḥ seg ddaw tmurt. Aḥric wis sin d win n temguri (industrie). Ma d aḥric wis kraḍ, d win n yimeẓla (services).
+Ivy League Ivy League
+
+Ivy League d tagrawt n 8 seg tesdawiyin timeqranin akk n ugafa-agmuḍan (nord-est) n Yiwunak Yeddukklen. 
+Ti d tisdawiyin n Brown, Columbia, Cornell, Dartmouth, Harvard, Princeton, Pennsylvania akked Yale. Tisdawiyin-a mechuṛit s weswir-nsent aɛlayan yerna amur ameqran seg wid ay yeqqaren deg-sent d arraw n yimeṛkantiyen imeqranen. 
+
+Tagrawt-a n Ivy League d nettat ay d-yelhan s usseddu n temsizzliyin n waddal ay ttgen yinelmaden n tesdawiyin-a (ama d irgazen, ama d tisednan). Tagrawt-a tennulfa-d deg 1954.
+Tasreɣta Tasreɣta
+
+Tasreɣta (asget: tisreɣtiwin - s tefṛensist: sculpture), d taẓuri aydeg amdan iɛerreḍ ad d-yemsel neɣ ad d-yenqec ayen yettwali deg tilawt neɣ ayen yettxayal.
+Tiddukla Tanaddalt Tineslemt n Wehran Tiddukla Tanaddalt Tineslemt n Wehran
+
+Tiddukla Tanaddalt Tineslemt n Wehran (s tefransist: ASMO neɣ Association sportive musulmane d’Oran - ASM Oran ), d asrir (club) anaddal adzayri ay d-yennulfan deg 1933. Taɣlamt n tkurt n uḍar n wesrir-a tetturar deg usarir (lesṭad) n Habib-Bouakeul ay yesɛan 20.000 n yimukan.
+Lmuludeyya n Lezzayer Lmuludeyya n Lezzayer
+
+Lmuludeyya n Lezzayer (isem ummid: Mouloudia Club d'Alger; s tefransist: MCA), d taɣlamt n tkurt n uḍar n temdint n Lezzayer, tennulfa-d deg 1921. D nettat ay d taɣlamt ay irebḥen aṭas akk n teqbucin deg Ldzayer, yerna d yiwet seg teɣlamin timeqranin akk n tmurt.
+
+Aɛfir (Bumerdas) Aɛfir (Bumerdas)
+
+Aɛfir d taɣiwant taqbaylit n ugafa-agmuḍan (nord-est) n twilayt n Bumerdas (ɣef yiri n yilel) gar Delles d Mizrana. Zedɣen-tt 12.613 n yimezdaɣen.
+
+Burj Lbeḥri Burj Lbeḥri
+
+Burj Lbeḥri (s tefṛensist: "Bordj El Bahri"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer, ɣef yiri n Temda n Ldzayer. Zedɣen-tt 27.905 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Cap Matifou".
+Lmerṣa Lmerṣa
+
+Lmerṣa (s tefṛensist: "El Marsa"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer, zedɣen-tt 11.860 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Jean Bart".
+Ɛin Benyan Ɛin Benyan
+
+Ɛin Benyan (s tefṛensist: Ain Benian), d taɣiwant n utaram (lɣerb) n twilayt n Ldzayer. Zedɣen-tt 52.343 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as "Guyotville".
+Buluɣin Buluɣin
+
+Buluɣin U Ziri (s tefṛensist: "Bologhine Ibn Ziri"), d taɣiwant n twilayt n Ldzayer, tezga-d ɣef yiri n yilel, zedɣen-tt 43.283 n yimezdaɣen.
+Lḥemmamat Lḥemmamat
+
+Lḥemmamat (neɣ Baynam) d taɣiwant n utaram (lɣerb) n twilayt n Lezzayer, tezga-d ɣef yiri n yilel. Zedɣen-tt 19.651 n yimezdaɣen. Tamdint-a tesɛa tiẓgi am wakken ay tesɛa asbiṭar.
+Birtuta Birtuta
+
+Birtuta (s tefṛensist: Birtouta), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 21.808 n yimezdaɣen.
+Ḥusin Day Ḥusin Day
+
+Ḥusin Day (s tefrensist: "Hussein Dey;" yettwanṭaq s umata: Lusandi), d taɣiwant n twilayt n Ldzayer, tezga-d deg wegmuḍ (ccerq) n Ldzayer Talemmast. Zedɣen-tt 49.921 n yimezdaɣen.
+Burj Lkifan Burj Lkifan
+
+Burj Lkifan (s tefrensist: "Bordj El Kiffan"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer. Zedɣen-tt 103.690 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Fort-de-l'Eau".
+Xrayseyya Xrayseyya
+
+Xrayseyya d taɣiwant n twilayt n Ldzayer, zedɣen-tt 17.690 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Crescia".
+Rrwiba Rrwiba
+
+Rrwiba (s tefrensist: "Rouiba"), d taɣiwant n wegmuḍ n twilayt n Ldzayer, zedɣen-tt 49.881 n yimezdaɣen. Deg Rrwiba ay d-tezga lluzin n SNVI ( Taṛmist Taɣelnawt n Yimeddayen Imguranen).
+Birxadem Birxadem
+
+Birxadem (s tefṛensist: "Birkhadem"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 55.084 n yimezdaɣen.
+Lmuradeyya Lmuradeyya
+
+Lmuṛadeyya (s tefrensist: "El Mouradia"), d taɣiwant n twilayt n Ldzayer (deg temdint n Ldzayer), zedɣen-tt 29.503 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as d "La Redoute".
+Swidaneyya Swidaneyya
+
+Swidaneyya (s tefrensist: "Souidania"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 11.620 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Saint-Ferdinand".
+Lmadaneyya Lmadaneyya
+
+Lmadaneyya (s tefrensist: "El Madania"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 51.404 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Clos-Salembier".
+Ḥasi Rrmel Ḥasi Rrmel
+
+Ḥasi Rrmel d taɣiwant n Lezzayer, tezga-d deg twilayt n Leɣwaṭ. Zedɣen-tt 16.791 n yimezdaɣen. 
+Tamdint-a d tin aydeg d-ttemlilin yiseldaten (pipelines) n ugaz ed upitṛul n Ldzayer akken ad kemmlen abrid-nsen ɣer usagen (lmerṣa) n Arzew (ɣef yiri n Yilel Agrakal).
+Sidi Benyebqa Sidi Benyebqa
+
+Sidi Benyebqa (s tefṛensist: "Sidi Benyebka" neɣ "Sidi Ben Yebka"), d taɣiwant n twilayt n Wehran, zerɣen-tt 5.893 n yimezdaɣen. 
+Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Kléber".
+Ibeṭṭiwen Ibeṭṭiwen
+
+Ibeṭṭiwen (s tefṛensist: "Bettioua" neɣ "Benthioua") d taɣiwant n wegmuḍ n ugezdu n Wehran. Zedɣen-tt 14.738 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Saint-Leu".
+
+Zik llan imsiwelen n tmaziɣt deg Ibeṭṭiwen d lɛarc umaziɣ i d-yusan seg Arrif deg tmiḍi wis 16 ar wakal-a. Kkan seg At Sɛid deg Arrif. 
+Seqdacen tamaziɣt ar 1910 aẓi n akka. 
+Ɛin Kerma Ɛin Kerma
+
+Ɛin Kerma (s tmaziɣt: Tala n Tferrant), d taɣiwant n twilayt n Wehran, zedɣen-tt 6.980 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as "Munier".
+Wad Tlilat Wad Tlilat
+
+Wad Tlilat (s tefṛensist: "Oued Tlelat"), d taɣiwant n twilayt n Wehran, zedɣen-tt 13.289 n yimezdaɣen. 
+Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Sainte Barbe du Tlélat".
+Gdeyyel Gdeyyel
+
+Gdeyyel (s tefṛensist: Gdyel), d taɣiwant n twilayt n Wehran. Zedɣen-tt 29.999 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Saint-Cloud".
+Bufatis Bufatis
+
+Bufatis (s tefrensist: "Boufatis"), d taɣiwant n twilayt n Wehran, zedɣen-tt 9.906 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Saint-Louis".
+Ifker Ifker
+
+Ifker (isem usnan: "Testudines") d aɣersiw amrarad n tit idammen isemmaṭen ilan (isɛan) aɣaref, llan-t snat n telmas n tfekrin yiwet tettidir deg waman tis snat sufell n wakal.
+
+Inisi Inisi
+
+Inisi (assaɣ usnan: "Erinaceinae") d aɣersiw asuṭṭad yeṭṭafaren tawacult n tnusa. Aazagur-is dlen-t isennanen, Yetett iburɣasen d imraraden yakk d iɣeṛdayen maca ula d imɣan d igumma
+
+Tawtemt n inisi tessrusay gar n 1 d 4 n yiqzizen deg wakud n tadist yettaṭafen 40 n wussan, Tettaru yiwet n tikelt deg useggas, Gar n Yulyu ar ctenber
+Iddew Iddew
+
+Iddew (Assaɣ ussnan: "Macaca") d yiwent n tewsit yeṭṭafaren tawacult n yibka n umadal amzik, Tilmas n tewsit-a ttidiren-t deg Asya (seg Lhend ar Yapan) d Tefrikt n ugafa (deg Lezzayer d Umeṛṛuk) yakk d Gibraltar id yezgan deg unẓul n Uruppa
+Iddew d aɣersiw ur nli ara (ur nesɛi) asallaf ini-ynes ɣer wezgen ameqran n telmas-is d aras imal ar tewṛeɣ, Ar ass-a ttwassnen wazal n 22 n telmas n yiddew gar-asen kra ttwassnen s waṭas 
+Iddew mači d aɣersiw yeṭṭafaren n humu am yibka maca d netta yakk i yettemcabin ar yibka deg twacult n ibki n umadal amzik 
+
+Azrem Azrem
+
+Azrem (asget: izerman) d aɣersiw amrarad n tit idammen isemmaṭen yeṭṭafar adu-tfesna n tzermatin deg tfesna n tmeskebrin tafekka-ynes d tusdidt (tarqaqt) d taɣezfant, ur tli ara (tesɛi) iḍarren, imeẓẓuɣen, taɣect, wala irgalen. Llant 19 n twaculin n yizerman yerna ass-a, ttwassnen 2.900 n telmas
+Amur ameqran seg yizerman tteddren deg tmura izeɣlen. Aglim-nsen d alewwaɣ yerna tdel-it tekbert. Izerman lan iẓri igerrzen, yerna ssuffuɣen-d iles-nsen akken ad fruyen i wemṭa n uzwu, imi s yiles-nsen ay zemren ad fruyen i wsekdu n wayen ay d-yezzin fell-asen. Amur ameqran seg telmas n yizerman tteddren ɣef wakal, maca llan-t kra n telmas ay itteddren deg waman, yerna llan ula d wid ay itteddren ddaw wakal. Izerman, am yekk tilmas n timeskebtin (tizermemmuyin, ifekren...atg) usren (ḥwajen) ad ssiẓnen tafekka-nsen i tfukt, acku idammen-nsen d isemmaṭen akken i yusren ad srekden taẓɣelt-nsen
+
+=Uɣes neɣ Ihriren (ssem)=
+
+Leṣnaf n yizerman ttemgerraden s yiniten-nsen (llwan). Kra n yizerman sɛan initen yeɣman (am uberkan, ademdam ed waras) yerna sseqdacen initen-a akken ad sdergen iman-nsen deg wemkan aydeg llan. Maca izerman ay izewwqen s yiniten icebḥen (am wewraɣ neɣ azewwaɣ) zemren ad ilin d leṣnaf yesɛan ihriren (ssem). Initen-nsen sseqdacen-ten d aɛeyyen akken ur d-ttqerriben ɣer-sen yiɣersiwen ara ten-yeccen. Maca llan kra n leṣnaf n yizerman ay izewwqen s yiniten icebḥen am wid-nni ay yesɛan ihriren, i wakken ad sbeɛden iɣersiwen niḍen ɣef yiman-nsen.
+
+=Abeddel n teslest=
+
+Simal yettimɣur wezrem, simal yettbeddil aglim-nnes, dɣa yettajja aglim-nni aqbur (umi ɣɣaren "tislest"), yerna yettbeddil-d wayeḍ. I wakken ad ibeddel wezrem tislest-nnes, yettḥukku iɣef-nnes ɣer kra n tɣawsa taḥercawt (am weẓru neɣ asɣar). D aya ara t-yejjen ad yesseqdec tislest-nni-nnes, sakkin, azrem yettkemmil yettḥukku iman-nnes arma yessenser-d tafekka-nnes seg weglim-nni aqbur.
+
+=Učč=
+
+Tilmas n yizerman s umata ttidiren s wegmar n yiɣersiwen niḍen. Kra n yizerman tteqqsen iɣersiwen id ttegmaren yerna neɣɣen-ten s uɣes (ssem). Izerman itteqqsen llan uɣes neɣ ihriren deg yeckaren yellan deffir wuglan-nsen. Mara ad ṭṭfen aɣersiw s wuglan-nsen, ad as-gren ihriren s agensu (daxel) n tfekka-nnes. Izerman lemmẓen (sseblaɛen) učči-nsen ɣef tikkelt yerna war tuffẓa. Mi ara yili uɣersiw-nni meɣɣer, azrem yezmer ad yessenṣel igumas-nnes yerna ad yesnejbad imi-nnes anect n uɣersiw-nni ara yecc. Izerman tteddun s udemmer akked uzzuɣer n tfekka-nsen, s tmeẓwalin (muscles) ay sɛan deg yiɛebbaḍ-nsen, yerna zemren ad ddun s tɣawla ɣef yiɛebbaḍ-nsen. Mi yessebleɛ wezrem tagemrawt-nnes (proie), ad teqqim deg tfekka-nnes arma texdem-itt tɛebbuḍt-nnes. Amur ameqran seg yizerman ttṣeyyiden iɣersiwen imecṭuḥen ay ttafen deg wakal am yiɣerdayen, tizermemmuyin neɣ igra (imqerqren). Izerman n waman ttetten daɣen iselman. Wid yettalyen ɣer yisekla (ttjuṛ) ttṣeyyiden igḍaḍ neɣ ttetten timellalin ay ttafen deg yigedfen (leɛcuc).
+
+Ɣas ma yella izerman ttetten aṭas, maca zemren daɣen ad ṣebren i laẓ. Kra n medden ttṛebbin izerman deg wexxam (deg yisendyaq n wesmeɣ [jjaj]) yerna zemren ad ten-jjen ayyur war ma sseccen-ten.
+
+<nowiki>http://tasedkalt.wikidot.com/yizerman</nowiki>
+Atletaẓri Atletaẓri
+
+Atletaẓri (s tefrensist: athlétisme), d addal (neɣ d tagrawt n waddalen) aydeg ttilint aṭas n temsizzlin yemgerraden aydeg tella tazzla, aneggez neɣ azelli (aḍegger). 
+
+Deg wenrar anda ay tturaren atletaẓri, iri n wenrar sseqdacen-t i tazzla, ma d talemmast n wenrar sseqdacen-t i uneggez ed uzelli. Llan daɣen waddalen niḍen n atletaẓri ur ten-tturaren deg wenrar-nni, wanag beṛṛa i wenrar (am temsizzelt n ugama ed umaraṭun). Atletaẓri d yiwen seg waddalen imeqranen n Wuraren Ulimpiyen. Deg umur ameqran seg waddalen n atletaẓri, yal anaddal yetturar i yiman-nnes, yerna deg temsizzlin, yiwen kan n wemdan ay irebbḥen. Gar waddalen n tazzla, tella temsizzelt taruradt, timsizzelt n umedwel ed temsizzelt n yifergan. Addalen n uneggez yella deg-sen uneggez aɣezfan, aneggez aɛlayan ed uneggez s tɣanimt. Deg waddalen n uzelli, yella uzelli n tefḍist, azelli n wextuc akked uzelli n uḍebsi. Llan daɣen waddalen n atletaẓri aydeg sdukkulen ugar n yiwen n waddal, am uhiptatlun (aydeg anaddal yettekkay deg temsizzelt aydeg ara yurar 5 n waddalen) neɣ adikatlun (10 n waddalen).
+Paragway Paragway
+
+Paragway d tamurt tamecṭuḥt ay d-yezgan deg tlemmast n Temrikt n Wenẓul. Tajumma-nnes 406.752 km2 (yikilumitren imkuẓen). Zedɣen-tt 6.349.000 n yimezdaɣen (Iparagwayen).
+
+Tamurt-a ur tesɛi ilel. Seg utaram (lɣerb) tḥudd-itt-id Bolivia, seg ugafa (nord) ed wegmuḍ (ccerq), tḥudd-itt-id Brizil. Seg wenẓul, tḥudd-itt-id Terjentint. Anezwi (climat) n tmurt-a d agrawi (humide) deg wegmuḍ yerna d akiwan deg utaram.
+
+Kabelschälanlage 
+Schrottpresse
+Autopresse
+Kabelgranulieranlage
+Alligatorschere
+Recyclingmaschine
+Kabelschälanlage
+
+Deg Paragway, medden ssawalen, s umata, taspenyulit ed teguaranit. Taneggarut-a d iles n Yihendiyen ineṣliyen n tmurt. Amur ameqran seg yimezdaɣen n Paraguay d Ikaṭuliken.
+
+Deg 1537, Aspenyuli Juan de Salazar yessebded tamdint n Asuncion (tamaneɣt n tmurt). Sakkin, Paraguay teqqel d tahrest (colonie) taspenyulit arma ay d asmi tuwey azarug-nnes (indépendance) deg 1811.
+
+Gar 1865 ed 1870, yenker wemgaru gar Paraguay akked tmura n Temsisit n Kraḍ (Triple Alliance - Brazil, Tarjentint ed Urugway). Deg wemgaru-nni, Paraguay tesṛuḥ aṭas n wakal ed yergazen. Maca tessaweḍ ad d-tḥelli tama n Chaco asmi ay tga amgaru akked Bolivia.
+Asuncion Asuncion
+
+Asuncion d tamaneɣt n Paraguay yerna d nettat ay d tamdint tameqrant akk deg tmurt-a. Zedɣen-tt 1.200.000 n yimezdaɣen (s yegmamen ay d-yezzin fell-as).
+Yesser (taɣiwant) Yesser (taɣiwant)
+
+Yesser (s tefrensist: Les Issers), d taɣiwant n Bumerdas, zedɣen-tt 27.990 n yimezdaɣen af yiri n Wasif n Yesser. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Isserville". Imezdaɣen-is neɣɣar-iten "Isserriwen" s wasget, "Asserriw"/"Tasserriwt".
+
+Tiɣennif Tiɣennif
+
+Tiɣennif (s tefrensist: "Tighenif"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 55.800 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Palikao".
+Tawra Tawra
+
+Tawra neɣ Tagura (s tefrensist: "Taoura"), d taɣiwant n Suq Ahras, zedɣen-tt 18.933 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Gambetta".
+Taqliɛt (Tipaza) Taqliɛt (Tipaza)
+
+Taqliɛt (s tefrensist: "Koléa" neɣ "Coléa"), d taɣiwant n wegmuḍ (ccerq) n Tipaza, zedɣen-tt 46.158 n yimezdaɣen.
+Targa (Ɛin Timucent) Targa (Ɛin Timucent)
+
+Targa (s tefrensist: "Terga"), d taɣiwant n twilayt n Ɛin Timucent, zedɣen-tt 7.165 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Turgot".
+Tamzura Tamzura
+
+Tamzura (s tefrensist: "Tamzoura"), d taɣiwant n twilayt n Ɛin Timucent, zedɣen-tt 8.665. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Saint-Maur".
+Suger Suger
+
+Suger (s tefrensist: "Sougueur"), d taɣiwant n twilayt n Tihert, zedɣen-tt 64.970 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Trezel".
+Ṣṣwameɛ Ṣṣwameɛ
+
+Ṣṣwameɛ d taɣiwant n twilayt n Tizi Wezzu, zedɣen-tt 10.932 n yimezdaɣen.
+
+Iflisen Umellil Iflisen Umellil
+
+Iflisen Umellil neɣ Iflisen n Wedrar d taqbilt i-d yezgan deg tama utrim n wezrir n Ǧerǧer. 
+
+Iflisen llan gar yidurar n Tmezrit (822m) d wid n Tigremunt (1028 m), af izuɣar d yessafen n Sabaw d Yesser.
+D taqbilt i yettnaɣ aṭas deg umezruy-yines, imezdaɣ-nsen d imnaɣen mgal Baylik n Iṭṭurken d yirumiyen. 
+
+Irruman ufan-d semmus n temwayin g yidurar n Ǧerǧer gar-asen : Faraxen (At Frawsen), Iflensès (Iflisen) d Azus (ur nufi ara isem-nni ass-a). Qqaran Iflisen yusan-d seg tarwa n Isaflensès neɣ Iflensès.
+
+Llant azal n 13 n lɛarc gar Yeflisen Umellil, a naf : 
+
+
+Kra n medden rnan azal n 3 teqbilin aked Iflisen Umellil deg tmaya-nni : 
+Imzalen Imzalen
+
+Imzalen d yiwet n taddart di tama n Yeflisen Umellil. 
+
+Anamek n wawal-agi, yekka-d seg Amzak (asget ines d-IMZALEN), seg zik, lɛarc-agi i d-yuskan di tama n yeflisen uɣen cciɛa imi tugett gar-asen d Iḥeddaden (forgeron). Seg ayagi i d-yekka AMZAL: Win iseqdacen uzzal. Ula d tamacahutt-nni n uḥeddad uqalus, tbeggen-d anect-a. AQALUS di zzman tuɣ-itt t-d-tekka ar Yeflisen. 
+Ibaburen Ibaburen
+
+Ibaburen d yiwet n tama n idurar tezga-d di tama n tmurt n Iqbayliyen ufella, gar Sṭif, Bgayet akked Jijel), anda imezdaɣ-is sulen (mazal-iten) ttmeslayen taqbaylit 
+
+Yuɣ lḥal, imezdaɣen n tmiwa-yagi mazal-iten d Iqbayeliyen, yernu nitni ḥesben iman-nsen d Isaḥliyen (am imezdaɣ n Uweqqas akk d Suq n Letniyen, di Bgayet).
+
+Isem n taddart-agi yekka-d seg yisem n yidurar n Babur, yernu isem n yidurar-agi d aqbur mliḥ, yekka-d seg yisem n teqbilt-nni tamaziɣt ay izedɣen dinna di tallit n Rruman, wid umi qqaren Rruman ""Bavares"". 
+Iqelɛiyen Iqelɛiyen
+
+Iqelɛiyen neɣ Iqeřɛiyen d taqbilt Tamaziɣt di Arrif n Umerruk .
+Ass-a, yella yiɣrem[2] n Nnaḍur ɣef tmurt tamezruyant n tewsit-a. Azal ameqqran n imezdaɣ n yiɣrem n Nnaḍur d Iqelɛiyen.
+
+Tawsit tameqqrant n Iqeřɛiyen d tamunt n tiwsatin timeẓẓyanin n: Imezzujen, At Ciker, Buyafar, At Sidal, d At Buyefrur.
+
+↑ Tawsit = Taqbilt
+↑ Iɣrem = Tamdint
+Imweḥḥden Imweḥḥden
+
+Imweḥḥden d yiwet n tgeldit Tameslemt Tamaziɣt d tameqqrant ttuɣa tella di Tafriqt n ugafa ger 1121 d 1269.
+
+Delles Delles
+
+Delles d yiwet n tɣiwant n ugezdu n Bumerdas di tama n wasif n Sabaw ɣef yiri n Yilel Agrakal. Zedɣen-tt azal n 32 954 imzedaɣen deg useggas n 2008. 
+
+Llant kra n tuddar i-d yezgan di tɣiwant n Delles yerna si temdint, gar-asen ad naf : 
+Wlad Heddaj Wlad Heddaj
+
+Wlad Ḥeddaj (s tefrensist: "Ouled Hedadj"), d taɣiwant n twilayt n Bumerdas, zedɣen-tt 22.382 n yimezdaɣen.
+Ceṭṭaybi Ceṭṭaybi
+
+Ceṭṭaybi (s tefrensist: "Chetaibi"), d taɣiwant n utaram (lɣerb) n Ɛennaba, zedɣen-tt 7.583 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Herbillon".
+Lbuni Lbuni
+
+Lbuni (s tefrensist: "El Bouni"), d taɣiwant n Ɛennaba, zedɣen-tt 111.956 n yimezdaɣen.
+Sraydi Sraydi
+
+Sraydi (s tefrensist: "Seraidi"), d taɣiwant ay d-yezgan deg utaram (lɣerb) n ugezdu n Ɛennaba, zedɣen-tt 7.193 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Bugeaud".
+Ɛin Lbarda Ɛin Lbarda
+
+Ɛin Lbarda (s tefrensist: "Ain El Berda", "Ain Berda"; anamek s tmaziɣt: Tala Tasemmaḍt), d taɣiwant n Ɛennaba. Zedɣen-tt 17.446 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ttinin-as "Penthièvre".
+Ɛezzaba Ɛezzaba
+
+Ɛezzaba (s tefrensist: "Azzaba"), d taɣiwant n Skikda, zedɣen-tt 48.992 n yimzadaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Jemmapes".
+Mjezz Ddcic Mjezz Ddcic
+
+Mjezz Ddcic (s tefrensist: "Emjez Edchich"), d taɣiwant n twilayt n Skikda, zedɣen-tt 16.756 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Robertville".
+Ɛin Wessara Ɛin Wessara
+
+Ɛin Wessara (s tefrensist: "Ain Oussera"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 82.597 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Paul Cazelles".
+Mehdeyya (Tihert) Mehdeyya (Tihert)
+
+Mehdeyya (s tefrensist: "Mahdia"), d taɣiwant n Tihert, zedɣen-tt 30.264 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Burdeau".
+Ɛin Lḥadid Ɛin Lḥadid
+
+Ɛin Lḥadid d taɣiwant n Tihert. Zedɣen-tt 13.358 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Martimprey".
+Mellaku Mellaku
+
+Mellaku (s tefrensist: "Mellakou"), d taɣiwant n Tihert, zedɣen-tt 11.404. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Palat".
+Meḥyeddin Xalef Meḥyeddin Xalef
+
+Meḥyeddin Xalef (ilul deg 17 Yennayer 1944 deg Mecra, Merruk), d amarir aqbayli n tkurt n uḍar, yurar d amenṭag (attaquant) deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1971 ed 1973.
+Takurt n Ufus Takurt n Ufus
+
+Takurt n ufus (fr/en : "Handball") d addal ay tturarent snat teɣlamin (équipes) deg wenrar (terrain). 
+
+Yal taɣlamt tesɛa 7 n yimariren, am wakken ay tesɛa aḥric-nnes seg wenrar yerna tesɛa deg-s acebbak (but) aydeg yella uɛessas. 
+
+Deg tkurt n ufus, imariren tturaren s tkurt ay ttaṭṭafen deg ufus, wa yesɛedday-itt i wa, yerna yessefk ɣef yal taɣlamt ad teɛreḍ ad tessekcem takurt-nni deg ucebbak n teɣlamt-nni niḍen.
+Agadir Agadir
+
+Agadird tadmint tamuqrant tezga-d deg utaram n Merruk di tasga n Sus. Imezdaɣen-ines ttmeslayen aṭas s tmaziɣt tacelḥit ar wass-a. 
+
+Tella Agadir g 508 km g unẓul n Anfa ( Tigemmi tumlilt ) , d 173 km i Mugadur , d 235 km i Amurakuc . 
+
+Ugar n 421 844 n medden zedɣen g Agadir , d ugar n 600 599 n medden zedɣen g Agadir - Ida utanan . Kṛaḍ n tutlayin ad sawalen imezdaɣen n Agadir : Tamaziɣt ( tacelḥit ) , Taɛrabt ( Darija ) , Tafrasist
+
+Ar neqqar imezdaɣen n Agadir """ "Agadiriyin "" s teɛrabt , d "" Ait Ugadir "" s tamaziɣt .
+
+Awal-agi ugadir yella zik di teqbaylit, maca ass-a, uɣalen Leqbayel ur t-ssexdamen ara aṭas, d acu kan, mazal yella yiwen n wemḍiq di Tmurt n Leqbayel qqaren-as "Agadir", yernu amḍiq-agi d lexla. 
+Dɣa "agadir" anamek-is deg Yiwaḍiyen "amkan ibedden, ur neqɛid ara" (pente assez raide mais par où on peut passer), meḥsub, mi ara yili ufellaḥ la ikerrez, mi yewweḍ s agadir, ad yuɣal, acku dinna ur yeqɛid ara lḥal, akal maci d agdis i wakken ad tɛeddi deg-s tgersa. D acu kan, anamek aqdim n wawal-a netta d "aɣrab" (lḥiḍ), dɣa ɣef leḥsab n Salem Caker (Lybica), "agadir" ad yili yekka-d seg wawal afniq (phenicien), u nezmer diɣ ad t-nesseqreb s awal n taɛrabt "ǧidar" (= aɣrab, lḥiḍ). Dɣa, yezmer lḥal ad tili temdint-agi n Ugadir, di Merruk, semman-as ɣef leḥsab n wakal-nni yellan dinna, uqbel ma tettwabna, neɣ diɣ, yezmer lḥal ad tili tesɛa zik-nni iɣerban (leḥyuḍ) i d-yezzin fell-as, dɣa semman-as fell-asen.
+
+Agadir Ufella (s taɛrabt : القصبة , Al-Qasbah ) d yiwen agmam iqburen g tamdint n Agadir .
+
+G adrar n Agadir ufella iturra g-is s taɛrabt : الله الوطن الملك ("Allah, al-watan, al-malik"), « Akuc, Amur, Agellid ».
+
+Xmisti (Tisemsilt) Xmisti (Tisemsilt)
+
+Xmisti (s tefrensist: "Khemisti"), d taɣiwant n ugezdu n Tisemsilt, zedɣen-tt 20.191 n yimezdaɣen.
+Burj Bunɛama Burj Bunɛama
+
+Burj Bunɛama (s tefrensist: "Bordj Bounaama", zik-nni : "At Yindel" neɣ "Bni Yindel"), d taɣiwant n ugzedu n Tisemsilt, zedɣen-tt 18.394 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Molière".
+Zikenni, meslayen s tmaziɣt taznatt (zénète) n Warsnis maca irumiyen nɣan ed gajjen aṭas n yimaziɣen dinna ar temdinin taɛrabin i wakken ad seɛbren-ten. 
+Burj Lamir Ɛebdelqader Burj Lamir Ɛebdelqader
+
+Burj Lamir Ɛebdelqader (s tmaziɣt : "Taza"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 8.953 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Trolard".
+Belxir Belxir
+
+Belxir (s tefrensist: "Belkheir"), d taɣiwant n twilayt n Galma. Zedɣen-tt 14.979 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Millesimo".
+Ɛin Mexluf Ɛin Mexluf
+
+Ɛin Mexluf (s tefrensist: "Ain Makhlouf"), d taɣiwant n twilayt n Galma. Zedɣen-tt 11.018 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Renier".
+Buceqquf Buceqquf
+
+Buceqquf (s tefrensist: "Bouchekouf" neɣ "Bouchegouf"), d taɣiwant n Galma, zedɣen-tt 20.921 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensit, llan ɣɣaren-as "Duvivier".
+Bugerra Bugerra
+
+Bugerra (s tefrensist: "Bougara"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Leblida, rrif yedraren n Waṭlas Ablidi. Zedɣen-tt 6.637 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Rovigo".
+
+Meftaḥ Meftaḥ
+
+Meftaḥ (s tefrensist: "Meftah"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Leblida, zedɣen-tt 52.521 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Rivet".
+Larebɛa N At Musa Larebɛa N At Musa
+
+Larebɛa Bni Musa neɣ Larebɛa N At Musa s tmaziɣt (s tefrensit: "Larbaa"), d taɣiwant n wegmuḍ (ccerq) n ugzedu n Leblida, zedɣen-tt 60.482 n yimezdaɣen.
+
+Ḥafez Ḥafez
+
+Xwaja Camsu ad-Din Muḥammad Hafez-e Cirazi (yettwassnen s yisem n Ḥafez - ilul deg 1325/26 deg Ciraz, Iran - yemmut deg 1389/90 deg Ciraz), d amedyaz afarsi ay yellan itteg-d isefra n wafrayen (sentiments) ed tayri. 
+
+Tamedyazt n Hafed d tin ay yessersen llsas i tmedyazt tafarsit n leqrun ay d-iḍefren. Hafez yella yessefruy ɣef tsednan yettuḥemmlen akked liman, am wakken ay yella yekkat-d deg yemdanen ay yesɛan sin wudmawen. Deg Iran, Hafez d yiwen seg yimedyazen imeqranen akk n tmurt, yerna amur ameqran seg Yiraniyen sɛan ammud-nnes n yisefra (Divan). Deg tmurt-a, medden lemmden isefra-nnes am wakken ay sseqdacen kra seg yefyar-nnes (vers) d inzan. Seg tama niḍen, aṭas n Yiraniyen ay icennun tamedyazt-nnes, yerna llan yinuẓar ay yettcebbiḥen tifelwiyin-nsen (tableaux) s kra seg yisefra-nnes. Aẓekka n Hafez, deg temdint n Ciraz, d aqeddic icebḥen deg tsegda (architecture), yerna llan aṭas n medden ay irezzun fell-as. Tamedyazt n Hafez tettussuqqel-d ɣer waṭas n yilsawen n umaḍal.
+Taskendrit Taskendrit
+
+Taskendrit (s taɛrabt: "Al-Iskandariyya") d tamdint tameqrant n Maṣer, tezga-d deg ugafa (nord) n tmurt, ɣef yiri n Yilel Agrakal. Zedɣen-tt 4.110.015 n yimezdaɣen.
+
+Ɛin Ttuta Ɛin Ttuta
+
+Ɛin Ttuta d taɣiwant n Batnet, zedɣen-tt 52.143 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Mac-Mahon".
+Tasnafsit Tasnafsit
+
+Tiklisent d tussna ay yeqqaren ɣef wamek ay tetteddu tkellit n wemdan ed wuguren ay izemren ad tt-aɣen. Amassan n tesnafsit isem-nnes amesnafsi.
+Saskatchewan Saskatchewan
+
+Saskačewan d yiwet tamnaṭ deg utaram n tmurt n Kanada, di walmaten imeqqranen.
+
+Tajumma-nes d 651 900 km² u ɣur-es 1 010 146 imezdaɣ deg 1 yebrir n 2008, tigti seg At Saskačewan zedɣen deg wenẓul n temnaṭ. D Regina (193 093 imezdaɣ) d tamdint tameqqrant seg akk temdinin n temnaṭ. Seg iɣerman nniḍen a nufi, Prince Albert, Moose Jaw, North Battleford, Yorkton d Swift Current.
+
+Saskačewan tella gar Akalen n ugafa-atraman af ugafa, Manituba af wegmuḍ, Alberta af utaram d iwunak imarikanen af wenẓul : Dakuta N Ugafa d Montana. Isen-is yusa-d seg wasif n Saskačewan, anamek-ines i d-yusi si tutlayt n Kri (Ikriyen i yellan weɣref amezwaru f wakal-nni) d "wasif arurad" (Kisiskačewan s Tekrit).
+Johann Wolfgang von Goethe Johann Wolfgang von Goethe
+
+Johann Wolfgang von Goethe (ilul deg 28 ɣuct 1749 deg Frankfurt – yemmut deg 22 meɣres 1832 deg Weimar) d amaru yerna d amassan almani, yura tamedyazt ed tmezgunin, am wakken ay yura ɣef temsal yeqqnen ɣer tfelsuft, tasekla ed tussna. 
+
+Goethe yura-d yiwen n usefru umi isemma Faust, yerna llan wid ay t-yettwalin d netta ay d asefru aɣezfan igerrzen akk deg tsekla turufit. Goethe yesɛa daɣen aṭas n yisefra igerrzen, am wakken ay yettwassen s wungalen-nnes Wilhelm Meisters Lehrjahre (Iseggasen n welmad n Wilhelm Meister) akked Die Leiden des jungen Werthers (Tidyanin yesseḥzanen n Werthers Ameẓyan). Goethe d yiwen seg yimura ay yuraren dduṛ d ameqran deg tsekla talmanit takelsakt (classique) n tgara n lqern wis 18 ed tezwara n lqern wis 19. Tallit-nnes teɣli-d ed tallit n Lqern n Teftilin akked tallit n trumantit. Goethe yura-d daɣen idṛisen deg tussna, am Tiẓri n Yiniten (La Théorie des Couleurs) akked yeḍrisen yerzan talɣa (forme) n yiɣersiwen ed yemɣan, yerna ayen ay d-yura deg wenrar-a iɛawen aṭas imassanen n ugama n lqern wis 19 (am Charles Darwin) akken ad kemmlen inadiyen-nsen. Goethe yeqdec daɣen d aneṣṣaḥ aɛlayan n yemḍebbren n uduci (duché) n Sachsen-Weimar. 
+
+Seg yidis n tsertit, Goethe yella d amagaẓ (conservateur). Asmi ay tenker Tegrawla Tafrensist, Goethe yella yettwali agdud ur izemmer ad yeḥkem iman-nnes i yiman-nnes. Iqeddicen n Goethe deg yedles ed tussna zerɛen deg wakk timura n Turuft, yerna ttekkan deg wesnerni n tmedyazt, n umezgun akked tfelsuft.
+
+Nantes Nantes
+
+Nantes d tamdint n Fransa, deg ugezdu n Loire-Atlantique. Zedɣen-tt 283.288 n yimezdaɣen.
+Nice Nice
+
+Nice d tamdint n Fransa. D tamaneɣt n agezdu (département) n Alpes-Maritimes. Zedɣen-tt n yimezdaɣen.
+Vannes Vannes
+
+Vannes d tamdint n ugafa-utrim (nord-ouest) n Fransa yerna d tamaneɣt n agezdu (département) n Morbihan. Zedɣen-tt n yimezdaɣen.
+Amiens Amiens
+
+Amiens d tamdint n Fransa, tezga-d agezdu n Somme. Zedɣen-tt n yimezdaɣen.
+Roanne Roanne
+
+Roanne d tamdint n tlemmast n Fransa, tezga-d deg agezdu n Loire. Zedɣen-tt n yimezdaɣen. Tamdint-a tezga-d ɣef wasif n Loire, 90 km deg ugafa-utrim (nord-ouest) n Lyon.
+
+Imdanen yettwassnen ay ilulen deg Roanne:
+
+Jean-Pierre Jeunet (d imseḍru [réalsiteur])
+Rouen Rouen
+
+Rouen d tamdint n ugafa-utrim (nord-ouest) n Fransa yerna d tamaneɣt n tama n Haute-Normandie yerna d tamaneɣt n agezdu n Seine-Maritime. Zedɣen-tt n yimezdaɣen.
+Rennes Rennes
+
+Rennes d tamdint n ugafa-utrim (nord-ouest) n Fransa. D nettat ay d tamaneɣt n agezdu (département) n Ille-et-Vilaine yerna d tamaneɣt n tama n Bretagne. Zedɣen-tt n yimezdaɣen.
+Poitiers Poitiers
+
+Poitiers d tamdint ay d-yezgan deg tlemmast-tutrimt (cetre-ouest) n Fransa, ɣef wasif n Clain. D tamaneɣt n agezdu n Vienne yerna d tamaneɣt n tama n Poitou-Charentes. Zedɣen-tt n yimezdaɣen.
+Saint-Etienne Saint-Etienne
+
+Saint-Etienne d tamdint n Fransa, d tamaneɣt n agezdu n Loire (deg tlemmast n tmurt). Zedɣen-tt n yimezdaɣen. Tezga-d 60 yikilumitren deg ugafa-utrim (nord-ouest) n temdint n Lyon.
+Neuilly-sur-Seine Neuilly-sur-Seine
+
+Neuilly-sur-Seine d taɣiwant n Fransa, tezga-d deg agezdu n Hauts-de-Seine (deg utaram [lɣerb] n Paris). Zedɣen-tt n yimezdaɣen.
+
+
+Abenra Abenra
+
+Abenra (s tdanmarkit: Åbenrå), d tamdint n wenẓul (sud) n Danmark, zedɣen 15.800 n yimezdaɣen. D nettat ay d tamaneɣt n ukunti n Sønderjylland. 
+
+Tamdint n Abenra tesɛa asagen (lmerṣa) yerna tettili-d deg-s tnezzut (ttjaṛa). Deg-s ay ttnuzun yifarisen n tfellaḥt n tama-a. Tamdint-a teqqel tesɛa aseqqamu deg 1335. Gar 1864 ed 1920, ṭṭfen-tt Walmaniyen (tamurt n Preussen), yerna semman-as "Apenrade". Isem n temdint-a yeqqim yettwaru "Aabenraa" arma ay d 1948.
+Asɛeddi n teɣriwin Asɛeddi n teɣriwin
+
+Asɛeddi yettaǧǧa amdan ad yesɛeddi tiɣri-nnes ɣer unemdu niḍen mi ara yili yessawal deg utilifun. 
+Tazelmaṭ Tazelmaṭ
+
+Tazelmaṭ d yiwet n taddart (isem-is Tazelmaṭ n Izarazen) deg tɣiwant n Tmizart deg ugezdu n Tizi-Wezzu. 
+
+Tazelmaṭ d yiwen yisem i d-yekkan di tutlayt n tmaziɣt. Yusa-d deg wẓar ZLMḌ, zelmeḍ, isem amalay: azelmaḍ, unti: tazelmaṭ. Anamek-ines d idis mgal ayeffus.
+
+Taddart-a tezga-d deg yiwet n tqacuct i ycuban s adrar. Akka i-s-qqaren: adrar agad i yzedɣen deg wzaɣar. Maca di tillawt ur yelli d adrar dɣa. Taddart-a d tiɣilt yeqqnen ar yiɣil ameqqran, iɣil n at jennad, akken i-s-yenna umedyaz. Ar tama-s kan ar umalu d taddart n Tiɣilt, tagi tuli ciṭṭuḥ fellas. 
+
+Tudrin nniḍen i-s-d-izzin ddaw-s akw ay llant, am: At Rabaḥ, Bushel, Buɛisi. 
+Tudrin agi meṛṛa i d nebder i-wumi sawalen tudrin n Izarazen. Meḥsub yal amezdaɣ di tudrin agi d Azaraz. 
+
+Nezmer a d ninni: imezdaɣ n tudrin agi frurin-ed seg wzaraz, am at ubizar i-d-yekkan deg wmezwaru isem-is: Abizar( yegra-d ar tura d tasreɣta, Amnay Ubizar, ou bien le caɣalier d abizar ), am At Maɛmmer yellan dɣa sdat Izarazen, krad n tudrin i krad d At Maɛemmer ( Ibdac, At Musa, At Saɛid ), qqaren: frurin-ed deg yiwen isem-is Maɛemmer. Wigi s-umata llan d ixxamen, uɣalen d tudrin uɣalen d taggayin ( groupes ) n tudrin. Abizar ɣas akken ur yebḍi yara, maca tban d yiwet n taddart tameqqrant di tmurt n leqbayel, anwa ur nessin abizar? Ihi, ini taddart agi ad tezdi Izarazen d Wat Maɛemmer.
+
+Iban-ed d akken Tazelmaṭ, d nettat i d taddart tameqqran ger tudrin n Izarazen, tban-ed d nettat i d talemmast gar-asent, ɣures ay d-rsen yemṛabḍen di timiḍi tis xI, tama-s kan ay llan, din ay uqmen taqqubbett d lǧamaɛ n tẓallit. Daymi taddart n tzelmaṭ aṭas i s yessawalen: IZARAZEN, ur yelli Tazelmaṭ, acku, qqaren kra n yemɣaren : " d tin ay d taddart tamezwarut , tiyaḍ ar deqqal ay d-lullent"
+Ixxamen n taddart-agi ( s lebɛad nettwali-ten ), rsen fellas am tbeṛqcin isunɣen ɣef weɛrur n userdun mi yekna ad issew, acku tiɣilt agi tettwagzem deg ixef n usamer, tenneqḍaɛ-ed daxel n yeɣzeṛ, ddaw-as deg yiwet n tama( ar ugafa ), d iɣzeṛ d umadaɣ,ddaw-s di tama nniḍen ar wenẓul d araru, iserwen d ikeṛmussen i-yellan kan din, ddaw uraru d Alma ( tura d tikli ad yuɣal d taddart ). Nnig wigi meṛṛa i tella taddart, i yella weɣref yebḍan ɣef kuz n iderma: At Lḥaǧ, At Qasi, At Mḥend, At Muḥwali. Iderma bḍan akken yessulef ula di tmezduɣ, yal adrum d amkan-is di taddart, akka i tt ssuddsen at zik, rsen akken yessefk usan-ed adrum sdat wayeḍ.
+Kuz n iderma agi i d aɣref n taddart, ad ten naf zedɣen akk lwaḥid, acku ahat akken i-ten yurez uẓar, neɣ issemlal-iten-id wakud ad idiren am yiwen tamara fellasen. Maca yiwet n tutlayt, yiwet n tuda n tmetti, yiwen yedles, d Imaziɣen.
+
+Ɣef tiɣilt agi a naf tettengugu teswiɛt, mehhlen akken llan argaz tameṭṭut, aqcic taqcict,amɣar d teɣart, yal wa d acu i yqeddec. Ad naf at taddart, ttemyullen gar-asen, ɣursen amkan anda ttemyaggaren di tejmaɛt, din dɣa i ferrun timsal nnsen. Ɣursen ansayen nnsen ttqaddaren s waṭas, am : tiwizi, tacemmlit, timecṛeṭ, laɛwacaṛ, timeɣriwin, tamḍelt, tallalit, artg. Ad naf yal taɣawsa deg wemkan-is tettedu s webrid-is. Ɣur-sen yiwen webrid deg teddun meṛṛa, yerna d abrid yettawin ar tafat ur yelli ar tillas, yal yiwen yettqaddaṛ wayeḍ, yal yiwen s tugna-s, acku yal yiwen ɣures tirrugza, d tnifit, d tfenṭazit.
+Alexandre Borges Alexandre Borges
+
+Alexandre Borges Corrêa ilul ass n 23 fuṛaṛ 1966.
+Tiɣri yettṛajun Tiɣri yettṛajun
+
+Tiɣri yettṛajun, deg temsawla, d tawuri ay yellan deg kra n yiẓeḍwan n utilifun. Lemmer ad yili yiwen yessawal yagi deg utilifun, sakkin ad as-d-iɣer wayeḍ, win akken umi d-ɣran - lemmer ad yili yessermed tawuri n teɣri yettṛajun - yezmer ad yeḥbes awal akked win wukud yessawal, ad as-yerr awal i wis sin-nni ay as-d-yessawlen, sakkin, yezmer ad as-yini i win wukud yessawal neɣ win ay as-d-yeɣran melmi ara as-d-iɛawed. S waya, tiɣri yettṛajun d tawuri ayyes yiwen yezmer ad yerr awal i sin yemdanen ɣef tikkelt, war ma yeḥwaj ad yesɛu sin n wuṭṭunen n usawal wuɣur ara as-d-ɣren. 
+
+Tiɣri yettṛajun, mi ara d-taweḍ, ɣer-s aɛeyyen umi yezmer ad isel bab n utilifun, yerna itilifunen n ufus zemren daɣen ad d-snazlen aɛeyyen n teɣri yettṛajun. 
+
+Deg umur ameqran seg yiẓeḍwan n utilifun deg Tuṛuft, akked yisawalen n ufus n GSM ed UMTS, amdan yezmer ad yessermed tiɣri yettṛajun s ussuddes n yengalen-a: 
+
+I ussermed: codice_1
+
+I ussensi: codice_2
+
+I ussefqed n waddad: codice_3
+
+I wakken ad iẓer wemdan d acu-t waddad n umeẓlu-nni, ad t-id-yaweḍ welɣu s taɣect, ad isel i uɛeyyen neɣ ad as-d-iban yizen deg tegdilt n utilifun-is. 
+
+Deg yisawalen n ufus, tawuri-a tezmer ad tili d aḥric seg asefran n yemsektayen.
+Seṭṭara Seṭṭara
+
+Seṭṭara (Tafransist: "Settara", Taɛrabt: "السطارة"), d yiwet taɣiwant n Tmurt Leqbayel, i tezga-d al g anẓul-Agmuḍ n Tawilayt n Jijel. Taɣiwant-aya, tesɛa azal n 15 155 imezdaɣ deg useggwas n 2008. Deg tallit n tuṭṭfa tafrensit, llan ɣɣaren-as "Catinat".
+Ɛin Ɛerba Ɛin Ɛerba
+
+Ɛin Ɛerba (s tefrensist: "Ain El Arbaa"), d taɣiwant n twilayt n Ɛin Timucent, zedɣen-tt 12.443 n yimezdaɣen.
+Ɛin Ṭṭelba Ɛin Ṭṭelba
+
+Ɛin Ṭṭelba (s tefrensist: Ain Tolba), d taɣiwant n Ɛin Timucent, zedɣen-tt 11.188 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Guiard".
+Lɛemreyya Lɛemreyya
+
+Lɛemreyya (s tefrensist: "El Amria"), d taɣiwant n Ɛin Timucent, zedɣen-tt 19.632 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Lourmel".
+Lmaleḥ Lmaleḥ
+
+Lmaleḥ (s tefrensist: "El Malah"), d taɣiwant n twilayt n Ɛin Timucent, zedɣen-tt 16.162 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Rio Salado".
+Sidi Ben Ɛedda Sidi Ben Ɛedda
+
+Sidi Ben Ɛedda (s tefrensist: "Sidi Ben Adda"), d taɣiwant n twilayt n Ɛin Timucent, zedɣen-tt 12.224 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Trois-Marabouts".
+Bni Ṣaf Bni Ṣaf
+
+Bni Ṣaf (s tefrensist: "Beni Saf"), d taɣiwant n Ɛin Timucent, zedɣen-tt 39.668 n yimezdaɣen.
+Ceɛbet Llḥem Ceɛbet Llḥem
+
+Ceɛbet Llḥem (s tefrensist: "Chabet El Ham" neɣ "Chabet El Leham"), d taɣiwant n Ɛin Timucent, zedɣen-tt 13.438 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Laferrière".
+Lekwit Lekwit
+
+Lekwit d tamurt tamecṭuḥt n Asya, tezga-d deg Wegmuḍ Alemmas, gar Ɛiraq ed Tgelda Tasaɛudit. Tajumma-nnes 17.820 km2 (yikilumitren imkuẓen). Zedɣen-tt 2.700.000 n yimezdaɣen (Ikwitiyen). Tamaneɣt-nnes d tamdint n Lekwit (Tamdint).
+Lekwit (Tamdint) Lekwit (Tamdint)
+
+Lekwit (Tanglizt : "Kuwait City") d tamaneɣt n tmurt n Lekwit, zedɣen-tt 96.100 n yimezdaɣen.
+Suɛudiya Suɛudiya
+
+Tagelda Tasaɛudit neɣ Tagelda Taɛṛabt Tasaɛudit, d tamurt n Asya, tezga-d deg Tzunegzirt Taɛrabt yerna teṭṭef amur ameqran seg-s. Tajumma-nnes 2.149.690 km2 (yikilumitren imkuẓen). Zedɣen-tt 25.731.776 n yimezdaɣen (gar-asen 5 n yimelyunen n yibeṛṛaniyen). Tamaneɣt-nnes d Riyaḍ.
+Riyaḍ Riyaḍ
+
+Riyaḍ d tamaneɣt n Tgelda Tasaɛudit, tezga-d deg tlemmast n tmurt. Zedɣen-tt 4.878.723 n yimezdaɣen.
+Beḥrin Beḥrin
+
+Beḥrin d tamurt tamecṭuḥt n Asya, tezga-d deg Ubagu Afarsi. Beḥrin d tamurt n tegzirin, tajumma-nnes 765 km2 (yikilumitren imkuẓen). Zedɣen-tt 1.378.000 n yimezdaɣen (2016). Tamaneɣt-nnes d tamdint n Manama.
+Manama Manama
+
+Manama d tamaneɣt n tmurt n Beḥrin. Zedɣen-tt 157.474 n yimezdaɣen (2010).
+Inezeggan Inezeggan
+
+Inezeggan d yiwen iɣrem deg tama n iɣrem n Ugadir (12 km) i yellan di tasga n Sus-Mast g Umerruk . Inezeggan d almuggar (ssuq) n tsbbabt imqqeranen deg tasga-ya. Yiwen deg ilmuggarn lli baḥra ittwattas ufgan amaziɣ iɣ ira ad isaɣ kra n tɣawsa. Tasbbabt tella s tbḍit wala s ugudi. Zedɣen deg-s uggar n 112 753 n imezdaɣ s uṭṭunen n 2004.
+Yiwen wass n asinas neɣ Tlaṭ ass amqqran n ssuq. Maca ammussu n tsbbabt illa bdda deg Inezggan azal ar tuẓẓumin n ḍi yid. 
+
+Ilmuggaren lli deg-s illa :
+
+Iksimen d yiwet n taqbilt tamzwarut lli iskaren (i yeggan) almuggar deg uzaɣar n Inezggan.
+Anfa (Tigemmi Tamellalt) Anfa (Tigemmi Tamellalt)
+
+Anfa neɣ Tigmmi Tumlilt (s tafransist d tulayin tiyaḍ : " Casablanca " , s tutlayt n taɛrabt: "الدار البيضاء " "Al-dar Al-bayḍaa" ) Iɣrem d ameqqran akw di tmurt n Umerruk, tili deg yiwen arky (3.269.962 h). D iɣrem d ameqqran akk deg tmazɣa akwd Ledzayer Tamanaɣt.
+
+Tella g Anfa yiwet timzgida tameqqrant ism-es Timzgida Ḥassan II .
+
+Ar neqqar imezdaɣen n Anfa """ "Bidawa "" s taɛrabt , d "" Casawi "" s darija d tamaziɣt .
+
+Tella deg tasga n Anfa-Seṭṭat di tmurt n Umerruk,
+
+Tiɣremt n Tgmmi Tamellalt ttuybbay f mnnaw lɛmalat am:
+
+
+Tis tamt ad lɛamalat bḍant f mnnawt ljamaɛat i yellan : 
+Iwaṭṭasen Iwaṭṭasen
+
+Iwaṭṭasen (asuf: Awaṭṭas - s tefrensist: Wattasides), d tawacult tamaziɣt ay iḥekmen Merruk gar 1472 ed 1541. Iwaṭṭasen ulyen ɣer udabu deffir uneɣluy n Yimirinen, d acu kan, asmi ay ḥekmen Yiwaṭṭasen, timura tinselmin n Tefriqt n Ugafa yufa-tent-id lḥal ɣlint yagi deg tallit n ḍḍeɛfan, yerna Ispenyuliyen ed Yipuṛtugaliyen llan ẓeddmen-d ɣef tefsirin (côtes) n Tefriqt n Ugafa akken ad ḍḍfen timdinin ay d-yezgan ɣef yiri n yilel (ɣef umedya, Ipuṛtugaliyen ḍḍfen timdinin n Sebta ed Ṭenja deg 1471). Tallit n Yiwaṭṭasen d tin, daɣen, aydeg teɣli tgelda n Ɣernaṭa (deg 1492), d tin ay ifuken adabu n yinselmen deg Spenyul. Ddaw udabu n Yiwaṭṭasen, yeḥbes unnerni n temdinin n Meṛṛuk, yerna simal tella tettnerni tezmert n Yespenyuliyen ed Yipuṛtugaliyen deg Tefriqt n Ugafa. D aya ay yejjan tawacult n Yiseɛdiyen ad d-nekren, deg 1541 akken ad sseɣlin awanak (ddula) n Yiwaṭṭasen.
+Takerwant Takerwant
+
+Qayrawan, isem amaziɣ aqbur : Takerwant, d tamdint n ugafa-agmuḍan (nord-est) n Tunes. Zedɣen-tt 117.903 n yimezdaɣen. D Ɛuqba Ibn Nafiɛ ay tt-id-yesbedden deg 670.
+Susa Susa
+
+Susa (s tefṛensist: "Sousse"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 173.047 n yimezdaɣen.
+Ḥemmam Susa Ḥemmam Susa
+
+Ḥemmam Susa (s tefṛensist "Hammam Sousse") d tamdint ay d-yezgan deg ugafa-agmuḍan (nord-est) n Tunes. Zedɣen-tt 35.000 n yimezdaɣen. Deg temdint-a ay d-ilul uselway atunsi n zik Zin Lɛabidin Ben Ɛli.
+Ṭrables Ṭrables
+
+Ṭrables neɣ Ṭripuli (s taɛrabt : طرابلس "Tarāboulous" ) d tamaneɣt n Libya d tamdint tameqrant . Zedɣen-tt 1.126.000 n yimezdaɣen.
+Ɣeryan Ɣeryan
+
+Ɣeryan (neɣ "Gharyan" neɣ daɣen "Gharian"), d tamdint n ugafa-utrim (nord-ouest) n Libya, yerna d tamaneɣt n tgezdut (district) n Wedrar n Infusen. Zedɣen-tt 161.408 n yimezdaɣen.
+Ankara Ankara
+
+Ankara d tamaneɣt n Ṭṭerk. Zedɣen-tt 3.593.000 n yimezdaɣen.
+Tafrikt n Wenẓul Tafrikt n Wenẓul
+
+Tafrikt n Wenẓul d tamurt n Tefrikt. Tajumma-nnes 1.221.037 km2 (ikilumitren imkuẓen). Zedɣen-tt 49.991.300 n yimezdaɣen (Ifrikiyen n Wenẓul). Tamaneɣt-nnes tasertit d Pretoria; tamaneɣt-nnes tuɣdimt d Bloemfontein, ma d tamaneɣt-nnes timsuḍeft d Cape Town.
+Cape Town Cape Town
+
+Cape Town (neɣ "tamdint n Cape", Tafrikant : "Kaapstad") d tamaneɣt timsuḍeft (législative) n Tefriqt n Wenẓul. Zedɣen-tt 3.497.097 n yimezdaɣen.
+Bloemfontein Bloemfontein
+
+Bloemfontein d tamaneɣt tuɣdimt (juridique) n Tefriqt n Wenẓul. Zedɣen-tt 369.568 n yimezdaɣen.
+Pretoria Pretoria
+
+Pretoria d tamaneɣt tasertit n Tefriqt n Wenẓul. Zedɣen-tt 2.345.908 n yimezdaɣen.
+Grande-Synthe Grande-Synthe
+
+Grande-Synthe ("Groot Sinten" s tahulandit) d tamdint deg ugafa n Fransa (Hauts-de-France). Tesɛa imezdaɣ.
+Coudekerque-Village Coudekerque-Village
+
+Coudekerque-Village, zik Coudekerque, d taddart deg ugafa n Fransa (Hauts-de-France). Tesɛa imezdaɣ.
+Keukenhof Keukenhof
+
+Keukenhof d taɣult i iqerben ar temdint n Lisse, deg Tmura n Wadda. Yeldi yal aseggas seg meɣres ɣer mayyu. Deg 2009, 850 000 inerzaf rezfen ɣer Keukenhof.Kyoto Kyoto
+
+Kyoto (京都市, Kyōto-shi) d-tamdint deg tmurt n Japon. Tezga-d deg temnatt n Kansai deg tlemmast n tigzirt n Honcu. Tesɛa 1 463 373 imezdaɣ.
+Kobe Kobe
+
+Kobe d tamdint tameqrant tis sḍis (6) deg Yapan. Tezga-d deg wenẓul n tegzirt n Honcu. Zedɣen-tt 1.533.852 n yimezdaɣen. 
+Deg 1995, twet-d tzenzelt tameqrant deg temdint n Kobe, tenɣa 6.434 n yemdanen, yerna tejja 212.443 n yemdanen nniḍen war tanezduɣt.
+Tarumi-ku Tarumi-ku
+
+Tarumi-ku d agmam (quartier) deg temdint tajapunit n Kobe. Zedɣen-t 219.958 n yimezdaɣen. Deg wegmam-a ay ilul umarir n tkurt n uḍar Shinji Kagawa.
+Saijo Saijo
+Nishitokyo Nishitokyo
+
+Nishitokyo d agmam (quartier) deg temdint n Tokyo (tamaneɣt n Japun). Zedɣen-t 191.927 n yimezdaɣen.
+Sendai Sendai
+
+Sendai d tamdint n Japun, tezga-d deg wegmuḍ (ccerq) n tegzirt n Honcu. Zedɣen-tt 1.031.704 n yimezdaɣen. Deg temdint-a ay ilul umarir n tkurt n uḍar Yasuyuki Konno.
+Fukuyama Fukuyama
+
+Fukuyama d tamdint n Japun, tezga-d deg wenẓul n tegzirt n Honcu. Zedɣen-tt 465.238 n yimezdaɣen.
+Allus n wazzun n teɣriwin Allus n wazzun n teɣriwin
+
+Deg yitilifunen n ufus n GSM/3GSM (UMTS), talugent n GSM tesbaday-d ingalen n "wallus n wazzun n teɣriwin" ara d-yettwabedren swadda-a. Tilugan-a d ETSI ay ten-id-igan, ttwabnan ɣef yengalen uṛufiyen izɣen n wallus n wazzun n teɣriwin yerna cuban ingalen ay yettwasseqdacen deg umur ameqran n "yizirigen n utilifun urkid" deg Tdukli Tuṛufit.
+
+Deg yitilifunen n ufus, tawuri-a tezmer ad tili d aḥric seg asefran n yemsektayen.
+
+Ma yella azwir n tenzaḍt n wallus n wazzun netta d "**" (deg wemkan n "*" ay d-yettilin s umata), uṭṭun n utilifun ad yettwakles deg uẓeṭṭa. Lemmer, sdeffir waya, imseqdec ad yessens allus n wazzun s tenzaḍt s yiwen n "#", ad yezmer yemseqdec, sakkin, ad yales ad yessermed allus n wazzun-a s tenzaḍt n "*" war ma yella deg-s wuṭṭun n utilifun. Allus n wazzun ad yales ad yettwassermed deg wuṭṭun ay yettwakelsen deg uẓeṭṭa. Ɣef umedya, lemmer yiwen ad yesseqdec angal n beṛṛa n yiger deg tenzaḍt n wallus n wazzun: 
+
+codice_1
+
+sakkin ad yessens allus n wazzun: 
+
+codice_2
+
+sakkin, ad yezmer ad yales ad yessermed allus n wazzun n beṛṛa n yiger war ma yura uṭṭun n utilifun: 
+
+codice_3
+
+Mi ara tettweg tenzaḍt-a ay d-yettwabedren sufella, akk tiɣriwin ara yettwawehhin ɣer utilifun mi ara yili beṛṛa i yiger ad ttwasɛeddint ɣer 7035551212. Yezmer yemseqdec ad yessermed tawuri ɣer kra n wuṭṭun ay yemgerraden ɣef wuṭṭun-nni ay yettwakelsen deg wakud aydeg ara yeǧǧ uṭṭun-nni ay yettwakelsen akken ad t-yesseqdec sakkin. Ɣef umedya, lemmer ad yeg tanzaḍt-a: 
+
+codice_4
+
+tiɣriwin ad ttwasɛeddint ɣer 7185551212 (yerna maci ɣer "wuṭṭun ay yettwakelsen" 7035551212). D acu kan, lemmer ad yeg tanzaḍt niḍen: 
+
+codice_3
+
+tiɣriwin ad qqlent ad ttwasɛeddayent ɣer wuṭṭun ay yettwakelsen 7035551212 (yerna maci ɣer wuṭṭun-nni n tenzaḍt n wallus n wazzun ay yettwasqedcen yagi 7185551212).
+
+Nnig waya, deg yiẓeḍwan n GSM, am wid n T-Mobile d AT&T Mobility deg Yiwunak Yeddukklen d wakk iẓeḍwan n utilifun n ufus deg Tdukli Tuṛufit, yezmer yemseqdec ad d-yesbadu amḍan n tsinin aydeg atilifun ad yesserser uqbel ma yesɛedda tiɣri. Imseqdec yezmer ad d-yesbadu aya s tira n "*SC*XX" uqbel "#" aneggaru mi ara yaru tanzaḍt n wallus n wazzun, aydeg "SC" d angal n tewsit n umeẓlu (11 i taɣect, 25 i yisefka, 13 i ufaks), yerna "XX" d amḍan n tsinin ay yettwaḥsaben s 5 n tsinin. Ma yella ad yettwakkes "SC" (yerna ad yili kan "**XX"), dɣa akk tiwsatin n yimeẓla ad ttwasɛeddint. Ɣef umedya, allus n wazzun n teɣri lemmer ur tettili tririt yezmer ad d-yili s: 
+
+codice_6
+
+Deg kra n yiẓeḍwan, tezmer ad tili talast n 30 n tsinin ma aṭas uqbel allus n wazzun (anamek-nnes "XX" yezmer kan ad yili 5, 10, 15, 20, 25 neɣ 30; azalen imeqranen ugar am 45 neɣ 60 d wid ara yessiwḍen tanzaḍt-nni n wallus n wazzun ad tettwagi yerna ad d-yettwazen yizen n tuccḍa).
+Tutlayt tamirandit Tutlayt tamirandit
+
+Tamirandit s tpurtugizt: mirandês d yiwet deg tutlayt i yisawalen uɣref n Portugal. Tella yiwet gar tutlayin tirumiyin i d-yusan si tlatint. Tamirandit d tutlayt tunṣibt tis snat i yemesalyen g tmurt n Portugal di tama n Alto Trás-os-Montes.
+Ifran (Merruk) Ifran (Merruk)
+
+Ifran (d yiwen n d taɣiwantn tmurt n Merruk deg Waṭlas Alemmas. Deg-s i ittili wedfel ar waggur n yulyu.
+
+Isem n "Ifran" yusa-d seg tamunt n mnnaw n ifran i yellan tuzdeɣt tamzwarut n ufgan. La ttilin deg idurar icenba (cèdres) imeqqranen i yellan i tuzdɣt tamzwarut n ufgan wala iɣersiwen.
+Pitch Black Pitch Black
+
+Pitch Black (anamk-ines s Tmaziɣt: "Tallest tuẓẓift") d yiwen usaru (afilm) Amerikan n tsugint tussnant itwagg di useggwas n 2000, i -t David Twohy, yirar deg-s usegbar Amerikan Vin Diesel. Asaru-yagi itwagg s $23 imelyan, issidf-d $53 imelyan.
+
+Asaru-a iggur ɣef yiwen ubekkaḍ i wumi qqaren-as Richard B. Riddick (Vin Diesel) itwaksi deg yiwet teɣbarrut (ababor) n tallunt ɣer tkurmut deg yiwen ublanit. Awaren i armi tuwḍa teɣrrabut n tallunt-nni g yiwen ublanit yuzɣen, Riddick irwel si tɣrrabut. Maca aql-it dinna kan iɣersiwen ttffɣn-d akid-sen xminni teɣli tfukt. Marra medden-nni i ttugha yellan di teɣrrabut fell-asen ad rwlen si ublanit-nni s yiwen usafag, maca manaynni iqseḥ aṭas.
+Awaren i usaru n Pitch Black iffeɣ-d yiwen usaru nniḍen di 2004, yirar deg-s Vin Diesel, qqaren-as The Chronicles of Riddick.
+Tamsawla Tamsawla
+
+Ameẓlu n teɣwalt n llsas dindin kan yelfa-d ur d-yettkafi ara, ladɣa deg uxeddim. Ɣef waya, aṭas n yimeẓla isemmaden ay d-snulfan i wakken ad sselhun asseqdec n utilifun.
+
+Kra n yimedyaten seg-sen: 
+
+
+Artane Artane
+
+Artane d agmam (quartier) n Dublin (tamaneɣt n Irland). Zedɣen-t 36.564 n yimezdaɣen (2006). Deg wegmam-a ay ilul Larry Mullen Jr. (d amẓawan n tegrawt n U2).
+Mayfair Mayfair
+
+Mayfair d agmam (quartier) ay d-yezgan deg Westminster City, deg tlemmast n temdint n London. Deg wegmam-a ay tlul tgellidt n Briṭanya Tameqrant, Elizabeth Tis Snat.
+Westminster Westminster
+
+Westminster d aburough ay d-yezgan deg tlemmast n temdint n London. Tajumma-nnes 21,48 km2 (yikilumitren imkuẓen). Zedɣen-t 236.000 n yimezdaɣen. Deg Westminster ay d-yezga wegmam (quartier) n Mayfair (anda ay tlul tgellidt n Briṭanya Tameqqrant, Elizabeth Tis Snat).
+Lmetmar Lmetmar
+
+Lmetmar (s tefṛensist: "El Matmar"), d taɣiwant n twilayt n Yiɣil Izzan, zedɣen-tt 14.533 n yimezdaɣen. 
+Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Clinchant".
+Jidiweyya Jidiweyya
+
+Jidiweyya (s tefrensist: "Djidiouia"), d taɣiwant n twilayt n Yiɣil Izzan, zedɣen-tt 29.263 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Saint-Aimé".
+Sidi Mḥemmed Ben Ɛli Sidi Mḥemmed Ben Ɛli
+
+Sidi Mḥemmed Ben Ɛli (s tmaziɣt: "Sidi Mḥemmed U Weɛli"), d taɣiwant n twilayt n Yiɣil Izzan, zedɣen-tt 17.072 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Renault".
+Muḥemmadeyya (Mɛesker) Muḥemmadeyya (Mɛesker)
+
+Muḥemmadeyya (s tefṛensist: "Mohammadia"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 71.366 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Perregaux".
+Ɣris Ɣris
+
+Ɣris (s tefrensist: "Ghriss"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 22.151 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Thiersville".
+Sidi Qada Sidi Qada
+
+Sidi Qada (s tefrensist: "Sidi Kada"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 17.843 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Cacherou".
+Zahana Zahana
+
+Zahana d taɣiwant n twilayt n Mɛesker, zedɣen-tt 18.839 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Saint-Lucien".
+Asif Labṭal Asif Labṭal
+
+Wad Labṭal (s tefrensist: "Oued El Abtal"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 19.184 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Uzès-le-Duc".
+Ɛin Lewreq Ɛin Lewreq
+
+Ɛin Lewreq (s tefrensist: "Ain El Orak"), d taɣiwant n Lbeyyeḍ, zedɣen-tt 1.990 n yimezdaɣen.
+Sidi Bubker Sidi Bubker
+
+Sidi Bubker (s tefrensist: "Sidi Boubekeur"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 17.131 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Charrier".
+Mecruha Mecruha
+
+Mecruha (s tefrensist: "Mechrouha" neɣ "Machrouha"), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 21.802 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Laverdure".
+Ben Mhidi (Ṭṭaref) Ben Mhidi (Ṭṭaref)
+
+Ben Mhidi (s tefrensist: "Ben M'hidi"), d taɣiwant n Ṭṭaref, zedɣen-tt 28.399 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Morris".
+Butelja Butelja
+
+Butelja (s tefrensist: "Bouteldja"), d taɣiwant n Lezzayer, tezga-d deg twilayt n Ṭṭaref, zedɣen-tt 15.275 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Blandan".
+Derɛan Derɛan
+
+Derɛan (s tefrensist: "Drean"), d taɣiwant n twilayt n Ṭṭaref, zedɣen-tt 32.066 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Mondovi".
+Lqala Lqala
+
+Lqala neɣ Taqalt(s tefrensist: "El Kala"), d taɣiwant n twilayt n Ṭṭaref, ɣef yiri n yilel, zedɣen-tt 24.793 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "La Calle".
+Leɛwinat Leɛwinat
+
+Leɛwinat (s tefrensist: "El Aouinet"; anamek s tmaziɣt: "Tiɛwinin"), d taɣiwant n Tbessa, zedɣen-tt 19.385 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Clairefontaine".
+Leɣrus Leɣrus
+
+Leɣrus (s tefrensist: "El Ghrous") d taɣiwant n Tbeskert, zedɣen-tt 12.846 n yimezdaɣen.
+Ɛin Ɛbid Ɛin Ɛbid
+
+Ɛin Ɛbid (s tefrensist: "Ain Abid"), d taɣiwant n Qsenṭina, zedɣen-tt 25.958 n yimezdaɣen.
+Sidi Leḥsen Sidi Leḥsen
+
+Sidi Leḥsen (s tefrensist: "Sidi Lahcene"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 15.016 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Détrie".
+Sidi Ɛli Benyub Sidi Ɛli Benyub
+
+Sidi Ɛli Benyub (s tefrensist: "Sidi Ali Benyoub"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 10.567 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Chanzy".
+Sidi Ɛli Busidi Sidi Ɛli Busidi
+
+Sidi Ɛli Busidi (s tefrensist: "Sidi Ali Boussidi"), d taɣiwant n twilayt n Sidi Belɛebbas, zedɣen-tt 8.373 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Parmentier".
+Ḍaya Ḍaya
+
+Ḍaya (s tefrensist: "Dhaya"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 4.557 n yimezdaɣen. Deg tallit n tuṭṭfa tafensist, llan ɣɣaren-as "Bossuet".
+Ḥasi Zhana Ḥasi Zhana
+
+Ḥasi Zhana (s tefrensist: "Hassi Zehana"), d taɣiwant n twilayt n Sidi Belɛebbas, zedɣen-tt 6.800 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Tassin".
+Lḥeṣbeyya Lḥeṣbeyya
+
+Lḥeṣbeyya (s tefrensist: "El Hacaiba"), d taɣiwant n twilayt n Sidi Belɛebbas, zedɣen-tt 2.538 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Magenta".
+Sfisef Sfisef
+
+Sfisef (s tefrensist: "Sfisef" neɣ "Sfizef"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 28.346 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Mercier Lacombe".
+Llan deg Sfisef usunen n Bni Talla, Belbucc, Gelamin, Wled Yaɛqub. 
+Ras Lma (Sidi Belɛebbas) Ras Lma (Sidi Belɛebbas)
+
+Ras Lma (s tefrensist: "Ras El Ma", s tmaziɣt : "Ixf n Waman"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 18.644 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Bedeau".
+Deḥmuni Deḥmuni
+
+Deḥmuni (s tefrensist: "Dahmouni"), d taɣiwant n Tihert, zedɣen-tt 17.392 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Trumelet".
+Sidi Ḥusni Sidi Ḥusni
+
+Sidi Ḥusni (s tefrensist: "Sidi Hosni"), d taɣiwant n twilayt n Tihert, zedɣen-tt 7.610 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Waldeck Rousseau".
+Reḥweyya Reḥweyya
+
+Ṛeḥweyya (s tefṛensist: "Rahouia"), d taɣiwant n twilayt n Tihert, zedɣen-tt 19.644 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Montgolfier".
+Ḥemmadeyya Ḥemmadeyya
+
+Ḥemmadeyya (s tefrensist: "Hammadia"), d tawilayt n Tihert, zedɣen-tt 15.357 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Victor Hugo".
+Mecreɛ Ṣṣfa Mecreɛ Ṣṣfa
+
+Mecreɛ Ṣṣfa (s tefrensist: "Mechraa Sfa", "Mechraa Asfa"), d taɣiwant n twilayt n Tihert, zedɣen-tt 15.402 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Prévost-Paradol-Agricole".
+Ɛin Ddheb Ɛin Ddheb
+
+Ɛin Ddheb (s tefrensist: "Ain Deheb" neɣ "Ain Dheb"), d taɣiwant n twilayt n Tihert. Zedɣen-tt 25.366 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Damiette".
+Um Ddru Um Ddru
+
+Um Ddru (s tefrensist: "Oum Drou", "Oum ed Drou"), d taɣiwant n twilayt n Cclef, zedɣen-tt 17.314 n 
+yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Ponteba".
+Qayes Qayes
+
+Qayes (s tefrensist: "Kais"), d taɣiwant n twilayt n Txencelt, zedɣen-tt 28.724 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Edgard Quinet".
+Qenna Qenna
+
+Qenna d tamdint n Maṣer, tezga-d deg tlemmast n tmurt.
+Ṭanṭa Ṭanṭa
+
+Ṭanṭa d tamdint n ugafa (nord) n Maṣer yerna d tamaneɣt n tnebdadt (préfecture) n Ɣarbiyya. Zedɣen-tt 1.100.000 n yimezdaɣen.
+Taqahirt Taqahirt
+
+Taqahrit d tamaneɣt n Maṣer. D nettat ay d tamdint tameqrant akk deg Tefriqt. Zedɣen-tt 7,8 n yimelyunen n yimezdaɣen (17 n yimelyunen s ujemmal, mi ara d-nernu wid ay izedɣen deg yegmamen ay d-yezzin fell-as).
+Akjujt Akjujt
+
+Akjujt (s tefrensist "Akjoujt") d tamdint n utaram (lɣerb) n Muriṭanya. Deg temdint-a ay ilul uselway Muḥemmed Weld Ɛebdelɛaziz deg 1956.
+Imzuren Imzuren
+
+Imzuren d yiwet temdint n Merruk. Tezga-d deg tesga n Lḥusima deg Arrif af yiri n yilel deg tnebdadt n Taza-Lḥusima-Tawnat. 
+Imzuren d yiwen gar iɣerman n Wayt Waryaɣel, 
+
+Mechuren Imzuren acku yeḍra Ssuq n Ssebt anda mlalen-d medden seg Temsaman, At Tuzin d Ibeqquyen. 
+Fnideq Fnideq
+
+Fnideq (s taɛrabt : "الفنيدق"), "Castillejos" (s tespanyult) d tamdint i-d tezga di tmurt n Merruk. Tezga-d deg temnaḍt n Ṭanja-Tiṭṭawin. Deg useggas n 2004, ɣur-es ugar n 53,339 imezdaɣ. 
+Ɛebdellah II Ɛebdellah II
+
+Ɛebdellah II Ben al-Ḥusseyn (ilul deg 30 Yennayer 1962, deg Ɛemman) d agellid n Urdun. Yeqqel d agellid deg wass n 7 Furar 1999, sdeffir ma yemmut baba-s, agellid Lḥusin. Yemma-s d Tageldunt Muna Al-Ḥusseyn. Agellid Ɛebdellah seg twacult n Yihacimiyen. Deg 1993, yuɣ Tagellidt Rania.
+Rafiq Ḥariri Rafiq Ḥariri
+
+Rafiq Baha Eddin Al-Ḥariri (ilul deg 1 wamber 1944, deg Ṣayda – yemmut deg 14 Furar 2005, deg Birut), d argaz n yiweẓla (homme d'affaires). 
+
+Yeqdec d Aneɣlaf Amezwaru n Lubnan seg 1992 arma d 1998, sakkin yerna yeqdec d Aneɣlaf Amezwaru seg 2000 arma d 2004. Hariri yurar ddur d ameqran deg tsertit n Lubnan n deffir n wemgaru (ṭṭrad), am wakken ay yurar daɣen dduṛ deg uɛawed n lebni n tmurt ay yenḍerren seg 15 n yiseggasen n yimenɣi. 
+
+Ḥariri nɣan-t deg 2005, deg Birut, deg yiwet n tenṭagt (attentat) sdat n usensu n St. George. Ɣef ljal n tmettant-nnes, Iɣlanen Yeddukklen (Nations Unies) sbedden-d Tanefrut Tusligt (Tribunal Spécial) n Lubnan, d win ay yettuwekklen akken ad inadi deg temsat n tmenɣiwt n Ḥariri. 
+Kra n yidisan nnan-d tettekka Surya deg tmenɣiwt-nnes, am wakken ay llan wid ay icikken Ḥizbullah yettekka daɣen, d acu kan, llan yidisan niḍen ay yettwalin timenɣiwt n Ḥariri ttekkant deg-s kra n tmura tutrimin (tiɣerbiyin) ay yebɣan ad d-snekrent ccwal d ameqran deg Lubnan. Lḥaṣul, timenɣiwt n Ḥariri tegla-d s yibeddilen d imeqranen deg tsertit talubnanit. D tadyant-a ay yessawḍen ɣer tmeskanin n Tegrawla n Yengel akked tuffɣa n yiserdasen isuriyen seg Lubnan. 
+Memmi-s n Rafiq Ḥariri, Saɛd Ḥariri, yeqdec d Aneɣlaf Amezwaru n Lubnan gar 2009 ed 2011.
+Ṣayda Ṣayda
+
+Ṣayda d tamdint n Lubnan, tezga-d deg wenẓul n tmurt, zedɣen-tt 80.000 n yimezdaɣen (266.000 deg tama ay d-yezzin fell-as).
+
+Rafiq Ḥariri, argaz n tsertit n Lubnan d yiwen seg ay ilulen deg Ṣayda.
+At Snus At Snus
+
+At Snus d yiwet tɣiwant n ugezdu (twilaylt) n Tlemsan deg Dzayer tezga-d deg Idurar n Tlemsan, imzedaɣ-is d Imaziɣen ar ass-a. 
+Zikenni, aṭas seg imezdaɣen-ines ttemeslayen (ttsawlen) s tmaziɣt, ass-a mazal-iten sfuglen Yennayer s tumert (lfraḥ) iwumi qqaren-as Ayrad. 
+Di useggas n 2008, taɣiwant n Yat Snus ɣur-es 11,318 imzedaɣen, tamanaɣt-is d At Ḥammu (Lfahṣ). 
+
+At Winifen At Winifen
+
+At Winifen neɣ s teɛrabt Bni Wnif (s tefrensist: "Beni Ounif"), d taɣiwant n twilayt n Beccar. Zedɣen-tt 8.199 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Revoil".
+S tmaziɣt, qqaren imezdaɣen a At Winifen "Uwinifen" neɣ Ultwinifen". 
+Amcic Amcic
+
+Amcic (Assaɣ usnan: "Felis catus") d aɣersiw asuṭad amseksum yeṭṭafaren tawacult n tserɣuda, yessemgurd-it ufgan seg zik ɣef anect-a imusnawen ɣilen d akken yusa-d seg ubeṛṛay.
+
+Amcic d aɣersiw meẓẓiyen maca ɣas akken yettusismel deg yiwet n twacult umi qqaren "imcac imeqranen" akk d yizem, aɣilas d weksil, iɣersiwen-a yakk qqaren-asen Tiserɣuda. Llan yemcac izagiren akked yemcac imegruden.
+
+Azuk n wemcic d win yettilin gar n 4 ar 7 kg (tikwal yettawaṭ ar 10 kg), yezmer ad yidir gar 12 ar 15 iseggasen. Maca llan waṭas n yemcac yettiwden ar 20 n iseggasen.
+
+Amcic ila (yesɛa) accaren i yezmer ad ten-yesnejbad neɣ ad ten-id-yessuffeɣ melmi i yebɣa, tinli n tmeskiwt ɣer wemcic d tin yernan (iɣelben) s waṭas n tikkal.
+Bahamas Bahamas
+
+Bahamas d tamurt n Temrikt, tezga-d deg wenẓul-agmuḍan (sud-est) n Yiwunak Yeddukklen, gar Florida ed Kuba. Tajumma-nnes 13.878 km2 (yikilumitren imkuẓen). Zedɣen-tt 330.000 n yimezdaɣen (Ibahamasiyen). Tamaneɣt-nnes d Nassau.
+Lord Byron Lord Byron
+
+George Gordon Byron (ilul deg 22 yennayer 1788 deg Dover – yemmut 19 yebrir 1824 deg Messolonghi, Grig), d amedyaz abriṭani yerna d yiwen seg yimeqranen ay yessefran deg tallit n tṛumantit (romantisme). 
+
+Isefra-nnes iwezlanen She Walks in Beauty (Tetteddu s ccbaḥa), When We Two Parted (Mi akken nemsefraq) akked So, we'll go no more a roving, rran-t mechuṛ. Byron iga-d daɣen isefra aydeg texleḍ tesrit (prose) am Childe Harold's Pilgrimage akked Don Juan. Llan aṭas ay t-yettwalin d netta ay d amedyaz ameqran akk n Briṭanya Tameqrant. 
+
+Ɣas ma yella d ameṛkanti, Byron yella yettṣerrif aṭas n yedrimen am wakken ay yella yettwalas ḍḍlaba d tameqrant. Yella iḥemmel aṭas n tsednan, yerna iḥettem iman-nnes ad yedder d imennejli. Lady Caroline Lamb, d tamarut yerna d yiwet seg tmeddukal n Byron, tenna-d [Byron] "d ameslub, diri-t yerna tamussni-nnes tettawey s axeṣṣar". Asmi ay yenker wemgaru n uzarug (guerre d'indépendance) n Legrig (ay yebɣan ad tebḍu ɣef Umenkud Aɛetmani (Empire Ottoman)), Byron yedda ad yennaɣ ɣer yidis n Yegrigiyen. D acu kan, mi yella deg temdint n Messolonghi, teṭṭef-it tawla yerna tessaweḍ-it ɣer tmettant. Ass-a, Igrigiyen mazal ttarran-as tajmilt d tameqrant.
+Canberra Canberra
+
+Canberra d tamaneɣt n Ustralya, tezga-d deg wenẓul-agmuḍan (sud-est) n tmurt. Zedɣen-tt 345.000 n yimezdaɣen. D nettat ay d tamdint tameqrant akk deg Ustralya ur d-yezgin ɣef yiri n yilel.
+Sydney Sydney
+
+Sydney d tamdint n wenẓul-agmuḍan (sud-est) n Ustralya, tezga-d deg uwanak n Tmurt n Yigaliyen n Wenẓul. Zedɣen-tt 4.504.469 n yimezdaɣen. D nettat ay d tamdint tameqrant akk deg Ustralya.
+Tamurt n Yigaliyen n Wenẓul Tamurt n Yigaliyen n Wenẓul
+
+Tamurt n Yigaliyen n Wenẓul (s tanglizt: "New South Wales"; s tefrensist: "Nouvelle-Galles du Sud"), d awanak n wenẓul-agmuḍan (sud-est) n Ustralya. Tajumma-nnes 809.444 km2 (yikilumitren imkuẓen). Zedɣen-t 7.238.819 n yimezdaɣen. Tamaneɣt-nnes d Sydney.
+Tamesgida n Laqṣa Tamesgida n Laqṣa
+
+Tamesgida n Laqṣa (anamek s tmaziɣt: Tamesgida Ibeɛden/Tubɛidt), d amkan imqeddes n wesɣan n Lislam, yezga-d deg temdint n Lquds, deg Falesṭin (yellan ass-a ddaw tuṭṭfa tisrayilit). 
+
+Tamesgida-a d nettat ay d amkan imqeddes wis kraḍ deg Lislam, deffir Lkeɛba (deg Mekka) akk d Tmesgida n Umazun (deg Temdint). Deg wakal n Laqṣa tella tmesgida akk d Tqubbet n Weẓru. Seg wasmi ay yettwaṭṭef weḥric agmuḍan n temdint n Lquds, deg 1967, Israyiliyen bdan sseddayen ddiɛaya ay d-yennan tamesgida-a tettwabna deg wemkan aydeg yella, zik, ufakan (temple) n Sidna Sliman, yerna, deg yiseggasen n 1990 d 2000, bdan qeddcen akken ad kksen amkan-a i Yinselmen imi ay t-ttwalin d amkan imqeddes akk deg wesɣan (ddin) n Wudayen. 
+
+Maca deg Lislam, amkan-a d imqeddes imi Amazun (Nnbi) Muḥemmed yusa-d yerna yeẓẓul deg-s deg Yiḍ n Lisṛa. Nnig waya, d Tamesgida n Laqṣa tella d lqebla tamezwarut wuɣur llan ttẓallan Yinselmen, arma ay d asmi ay ten-yumeṛ Ṛebbi ad rren Lkeɛba d lqebla. Sakkin, asmi ay kecmen Yinselmen ɣer temdint n Laqṣa, Ɛumar ibn Xeṭṭab, axlif n Yinselmen, yebna tamesgida deg wemkan-nni.
+
+Umawiyen smeɣren tamesgida-nni, yerna fukken-tt deg useggas n 705. Deg 746, twet-d yiwet n tzenzelt ay tt-ihudden, dɣa ɛawden bnan-tt Yiɛebbasiyen deg 754. Deg 1033, thudd-itt tzenzelt niḍen, dɣa ɛawden bnan-tt Yifaṭimen deg wemkan aydeg mazal-itt ar ass-a. Deg 1099, Inmudag (croisés) imasiḥiyen ẓedmen-d ɣef temdint n Lquds, snegren imezdaɣen-nnes yerna rran tamesgida-nni d taklizt. Maca, asmi ay ten-yessuffeɣ Ṣlaḥeddin, Inselmen ɛawden rran tamesgida-nni d amjan n tẓallit. 
+
+Deffir ccwal ay inekren deg 2001 deg Falesṭin, Israyiliyen gedlen i wakk Inselmen n umaḍal akken ad ẓẓallen deg tmesgida-a, menɣir Aɛraben n Israyil. Nnig waya, Israyiliyen ttkemmilen leqdicat-nsen n ussekfel ddaw tmesgida-a, ula ma Inselmen ugin aya imi ay yezmer ad ihudd llsisan n tmesgida-nni. Ma d imedḍurfa israyiliyen, ttgallan ad hudden tamesgida-a akken ad bnun deg-s "Afakan".
+Baltimore Baltimore
+
+Baltimore d tamdint n wegmuḍ (ccerq) n Yiwunak Yeddukklen, tezga-d deg uwanak n Maryland. Zedɣen-tt 620.961 n yimezdaɣen (2.690.886 s yegmamen ay d-yezzin fell-as).
+
+Deg temdint n Baltimore, teḍra wemazrar (série TV) The Wire af yiɣallen n teɣlist (police)deg weɣrem-a agellil, af usgufsu (corruption) ed tinnɣi (criminalité) ay ihudden temdint n Baltimore. 
+Ḥasan wis 2 Ḥasan wis 2
+
+Ḥasan II (Ḥasan wis sin) 1929 - 1999, yella zik d agellid n Umerruk si 1961 ar 1999, aseggas deg yemmut. Mmi-s Muḥemmed wis 6 idwel d agllid awaren-is. Netta d aɛalawi.
+Muḥemmed wis 6 Muḥemmed wis 6
+
+Muḥemmed wis 6 d agllid n Umerruk si 1999 ar ass-a. Muḥemmed wis 6 ilul-d di 21 Ɣuct 1963 yuɣal d agellid n Umerruk di Yulyu 1999 awaren imi yemmut baba-s agellid Ḥasan wis 2.
+Ṭaher Ǧaɛut Ṭaher Ǧaɛut
+
+Ṭaher Ǧaɛut d amyaru ilul ass 11 yennayer 1954 di Ulxu (Iɣil Ibaḥriyen) zdat n Uẓeffun.
+
+Iwwetet rebreb ass 26 mayu 1993, sin yemmut ass n 2 yunyu 1993, di Zzayer.
+
+=Tameddurt=
+
+=Ayen yura=
+
+Mexluf Nurdin Mexluf Nurdin
+
+Mexluf Nuredin d aselway n tɣiwant n Raḥya (deg Um Lebwaɣi - deg 2007), seg ukabar n Wemsegraw Aɣelnaw Amegday. Ilul deg 1958 yerna yella iqeddec d anemhal n uɣerbaz.
+Ljazya Ljazya
+
+Ljazya (s tefrensist: "El Djazia"), d taɣiwant n Um Lebwaqi, zedɣen-tt 3.318 n yimezdaɣen.
+Awras Awras
+
+Awras d tama n yidurar i d-yezgan deg ugafa-agmuḍan (nord-est) n tmurt n Ldzayer (gar twilayin n Tbatent, Tixencelt, Um Lebwaqi, Suq Ahras, Tbesset ed Tbeskert. Adrar aɛlayan akk deg Wewras d taqacuct n Celyet ay yesɛan 2.326 n lmitrat. Idraren n Wewras kkan fell-asen yiɣezran d ilqayanen (am Iɣzer Amellal ed Iɣzer n Lɛebdi), am wakken ay llan deg-sen yicerfan d imeqranen am wid n Lqenṭra ay yellan seg zik d abrid gar ugafa (nord) ed uneẓruf (ṣṣeḥra) n Ldzayer.
+
+Imezdaɣ n Wewras d Icawiyen, d tagrawt n Yimaziɣen ay mazal ssawalen iles amaziɣ (tacawit). Zik, d taqbilt tamaziɣt n Yeẓnagen ay izedɣen idraren-a, yerna nnuɣen s teqseḥ akked Rruman akken ur ten-ttajjan ad d-kecmen akal-nsen. D acu kan, Ṛṛuman ssawḍen ad bnun snat temdinin timeqranin deg Wewras: Timgad ed Taẓult. 
+
+Deg tallit n Yiwendalen, Imaziɣen n Wewras nnuɣen daɣen akken ad ḥudden akal-nsen. Deg lqern wis 8, tagellidt tamaziɣt Dihya (ay yellan, ahat, tettḍafar asɣan uday), tennuɣ ed Yinselmen. Deg lqern wis 11, asmi ay d-uwḍen Waɛraben imessukal n Banu Hilal (ay yeddren ɣef tlisa n wenẓul [sud] n Wewras), snernan azraɛ n taɛrabt deg tama-a, dɣa d aya ay yejjan aṭas n Yimaziɣen ad walin iman-nsen ula d nitni d Aɛraben.
+
+Deg tallit n wemgaru n Ldzayer (1954-1962), tama n Wewras d tin aydeg d-yella yimenɣi d ameqran aṭas gar yemjuhad idzayriyen ed yiɣallen ifrensisen. 
+
+Tama n Wewras d tin aydeg terbeḥ tfellaḥt n yirden ed temẓin, yerna imesdurar n tama-a sfulluḥen daɣen isekla n yigumma (arbres fruitiers). Ma d timiwa n wenẓul n Wewras, d tikiwanin aṭas yerna imezdaɣen-nsent ddren s tkessawt n tɣeḍḍen ed wakraren.
+At Hamla At Hamla
+
+At Hamla (s tefrensist: "Ouled Hamla"), d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt 11.019 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Berteaux".
+
+Usunen i yellan deg tɣiwant n At Hamla llan : 
+Sigus Sigus
+
+Sigus (s tefṛensist: "Sigous"), d taɣiwant n twilayt n Um Lebwaqi. Zedɣen-tt 14.944 n yimezdaɣen.
+At Xlifa At Xlifa
+
+At Xlifa (FR:Aït Khlifa) d taddart deg tɣiwant n At Bu Yusef.
+Tacaɛbet Tacaɛbet
+
+Tacaɛbet (Fr: Chabet El Ameur) d yiwet n Tɣiwant di tmurt n leqvayel (Tamurt n Lezzayer) Tezga deg twilayt n Bumerdas. Tella ar 40 km deg unẓul-agmuḍ n Bumerdas.
+
+50 Cent 50 Cent
+
+50 Cent neɣ Fifty Cent Isem-is unṣib Curtis James Jackson, illu ass n 6 yulyu 1975 di temdint n New York, d anaẓur deg uɣanib n Rap.
+
+
+Anna Rita Del Piano Anna Rita Del Piano
+
+Anna Rita Del Piano, s isem-is n ṣṣaḥ Anna Rita Viapiano, taktrist taṭelyanit tlul ass n 26 yulyu 1966 g Cassano Delle Murge.
+Ɛezzddin At Judi Ɛezzddin At Judi
+
+Ɛezzddin At Judi, ilul ass 24 yennayer 1967 di Tbessa, yebda yetturar di takurt uḍar asmi yella 7 iseggasen di imezzyanen n jsk, almi yewwi-d 20 iseggasen iruḥ ad iɣar di Lezzayer ISTS.
+
+
+Rafael Nadal Rafael Nadal
+
+Rafael Nadal d amyurar n waddal n Tennis di tmurt n Spanya, ilul-d ass n 3 Yunyu 1986 deg temdint n Manacor.
+
+Yebda yetturar d terbaɛt tameqqṛant aseggas n 2001. Yeḥrez ar ass-a 57 izwilen, gar-asen 12 n Grand Chelems d 24 n Masters 1000.
+Serbya Serbya
+
+Tamurt n Serbya, tezga-d g umenzaw n Turuft. Tamanaɣt d Belgrad.
+
+Paramore Paramore
+
+Paramore d tarbaɛt tamarikanit n rock seg Franklin, Tennessee, tettwaxleq deg useggas n 2004.
+Belgrad Belgrad
+
+Tamdint n Belgrad d tamanaɣt n tmurt n Serbi.
+Benedicta Boccoli Benedicta Boccoli
+
+Benedicta Boccoli, taktrist taṭelyanit tlul ass n 11 wember 1966 g Milan.
+Farid Dms Debbaḥ Farid Dms Debbaḥ
+
+Farid Dms Debbaḥ, Ilul-d 19 di yulyu 1976 di Paris (Fransa), d Asegbar, d Amseḍru, Yettaru Isura, d Anfaras n Usarug azzayri d tfransist Yettwassen d amseknaw u daɣen d asertay.
+
+Farid Dms Debbaḥ ilul deg useggas n1976 di Paris (Fransa). Iɛac tazwara temẓi ines di l zzayer anda iwalef amḍal amizli dɣa mi yessaweḍ 14 n iseggassen yessufeɣ-d akke gma-s Yassine d weltma-s tamuqrant Hadia 45 nnubat.
+
+Iness amenzuMi yuɣal ar Paris, di lɛamr-is 16 iseggassen yeldi takubanit tamenzut- ines di tasenselkimt. D awnaf ,d anaɛmer di tviɛa-s , yeǧǧa tasenselkimt yuɣal d anfaras di lɛemr-s 18 iseggassen yakwed d amekfadu di tasgilt n umattaf. Arnou ɣer warmud agi, yiwi-d turagt n uɣemmas n uhanay ,di Paris d wayen id-as d yezzin aṭas n tmaɣriwin n uamaḍal amizli.
+
+seg wasmi yella tmecṭuḥ ,farid yeṭṭef akfawel n tmetti d Tasertit iḍferen imawlan-is.asmi yesɛa 20 di leɛmer-is yekcem tidukkla management n inaẓuren ilemẓiyen (AMJA)2013,seg umesɣaru-is amɛiwen les talents ifriren ladɣa timura yellan deg ubrid n taneflit. deg akatar n warmud asduklan,yesɛa 21 di leɛmer-is ,d netta akk id ilemzi id-yevran sɣur uneɣlef n tedyanin tiberayinin zdat n umineg aseqqamu timeḍrit n lzzayer akked leqdic di tesmilt aɣan n tawtilt des binationaux.yetekka ɣer watas n les colloques di lezzayer kra n wagguren akka di tfaska timeḍrit di Lisbonne,amaray amatu n tuddsa nations unies Koffi Annan,leccɣel ɣef tawtilt n ilemẓiyen deg ubrid n teneflit.di 2008 yslaled tadukkla snezwi aslali ameslaẓṛaw timziregt(ADCAI)axeddim n Tamsetla d la convivialité ger Tikerziyin d usniref n tenezwit akked w asmil n usnulfu n ssinima n umaḍal.
+Byilurusya Byilurusya
+
+Byelorusi ,neɣ Tagduda n Byelorusi,d tamurt tezga-d turuft. Zedɣen-tt 9.400.000 n yimezdaɣen (Ibyelorusiyen). Tamanaɣt-is d Minsk.
+Ursu Aberkan Ursu Aberkan
+
+Ursu Aberkan (Assaɣ ussnan: "Ursus americanus") d yiwet n telmest deg tewsit n Ursu yeṭṭafaren tawacult n iɣelɣalen yittidiren deg Marikan n Ugafa. Ɣas ma yella semman-as aberkan, tikkal nezmer ad naff ini-ynes yedda ɣer udemdam, aras neɣ Tikwal d aẓerwal. Ursu-a d ameẓyan deg tiddi ma nwala waytmaten-is niḍen (am wursu aras neɣ Ursu amellal), imi tiddi-ynes tettaweṭ ar 1,80 m deg teɣzi, ma d azuk azal n 70kg.
+Timseksumin Timseksumin
+
+Timseksumin (S Tlatint: "Carnivora") d yiwet n tfesna n temseffatin ilan (yesɛan) azal n 260 n telmas n Tuthiryin, Azgen ameqran n temseksumin tettent aksum kan, lant (sɛant) ugel d waskar d wallen isekkden s waṭas
+
+MO Bgayet MO Bgayet
+
+MO Bgayet tarbaɛt n ddabex uḍar n temdint n Bgayet
+Tawrirt Mimun Tawrirt Mimun
+
+Tawrirt n Mimun d taddart n Tmurt n Leqbayel, tezga-d deg tɣiwant n Wayt Yanni (tawilayt n Tizi Wezzu). Deg taddart-a ay ilul Mulud At Mɛemmer.
+Buɛednan Buɛednan
+
+Buɛednan d taddart n Tmurt n Leqbayel (taɣiwant n Yibudraren, ugzedu n Tizi Wezzu). Deg taddart-a ay ilul Ḥmed Uyeḥya (Aneɣlaf Amezwaru n Ldzayer).
+Queen Queen
+
+Queen d icennayen ingliziyen n rock. Zenzen ugar si 300 imelayn n yidisken.
+
+Justin Bieber Justin Bieber
+
+Justin Drew Bieber, ilul ass n 1994 di London Ontario, d-acennay, aceṭṭaḥ, amaru n tezlatin amarikani.
+Achères Achères
+
+Achères d tamdint n Fransa, tella deg ugezdu n Yvelines. Llan xilla iqbayliyen dinna.
+Cilmun Cilmun
+
+Amersin (Yettwassen s "Cilmun") d agummu i d-ittak yimɣi iwumi qqaren medden ariḥan. Imɣi ayi llan daɣen wid i yas-iqqaren tacilmunt.
+
+<br> 
+
+Cilmun, illa win rẓayen, illa win ẓiden. D aẓidan i tteɣẓaẓen imeksawen. Ur d-iwwi yara ad astuqqet yiwen deg učči ines, acku itbaddid (iḥettel), yerna isɣaray taɛebbuṭ.
+
+Imɣi ayyi n uriḥan iṭṭuqet deg tama n wagrakal (Mediterranean Sea) n wadda d tin n ufella. D ajeğğig-is mellulen, m'ara ad ilal i yettuɣalen berrik-it m'ara yaweṭ neɣ yew, iwumi qqaren medden cilmun. Taqbaylit tferreq yar uriḥan (imɣi) yakkid d cilmun (agummu). Ariḥan itekkar-ed, iman-is, deg teẓgi: Ur ad t-iteẓẓu bunadem ur ad t-ineqqc, ur ad isewway. 
+
+
+
+
+
+
+La Fouine La Fouine
+
+La Fouine ilul ass 25 Buǧember 1981 di Trappes di tmurt n Fransa, d yiwen ucennay deg uḥric n rap mucaɛen aṭas laṣel-is si tmurt n Merruk. 
+Toulouse Toulouse
+
+Toulouse d yiwet tɣiwant i d yezgan deg unẓul n tmurt n Fransa deg agezdu Midi-Pyrénées, s imezdaɣ (2010) d nettat d tis 4 deffir Paris, Lyon, Marseille.
+Bordeaux Bordeaux
+
+Bordeaux d taɣiwant id yezgan deg unẓul-ataram n tmurt n Fransa deg agezdu n Aquitaine, tesɛa imezdaɣ (2010).
+Lille Lille
+
+Lille d yiwet tɣiwant id yezgan deg ugafa n tmurt n Fransa teṭṭafar aẓiyen Hauts-de-France, zedɣen-tt (2010), tebɛed kan 20 km ɣef tmurt n Biljik.
+Montpellier Montpellier
+
+Montpellier d yiwet n tɣiwant id yezgan deg unẓul n Fransa deg aẓiyen Languedoc-Roussillon, teṭṭalay ɣef Illel Agrakal, tesɛa imezdaɣ aseggas n 2012.
+Houston Houston
+
+Houston d tamdint deg ugezdu Texas deg unẓul n tmurt Marikan,tekseb 2 099 451 imezdaɣ deg useggas 2010 (tis 4 di Marikan).
+2 dujamber 2 dujamber
+
+Ass 2 dujamber d ass wis 336 n useggas (wis 337 deg iseggasen "bisekstil"). Llan 29 wussan deffir-s ar taggara n useggas.
+1 dujamber - "2 dujamber" - 3 dujamber
+3 Dujamber 3 Dujamber
+
+Ass 3 dujamber d ass wis 337 n useggas (wis 338 deg iseggasen "bisekstil"). Llan 28 wussan deffir-Ɣs ar taggara n useggas.
+2 wamber - "3 dujamber" - 4 dujamber
+Ixerban (Friḥa) Ixerban (Friḥa)
+
+Ixerban, d yiwet n taddart i d-yezgan di tɣiwant n Friḥa deg ugzedu n Tizi Wezzu. 
+
+Ixerban llan deg lɛarc n At Jennad. Taddart-a teggug (tbɛed) yiwen 35 km seg weɣrem n Tizi Wezzu. 
+
+Llan aṭas n yederman di taddart-nni. Gar-asen a naf : 
+
+Imaɛtuqen (Taɣiwant) Imaɛtuqen (Taɣiwant)
+
+
+Nelson Mandela Nelson Mandela
+
+Nelson Rolihlahla Mandela (susru s xhosa ), ɣef ayed isem n tamadla-s « Madiba », ilul ass 18 yulyu 1918 di Mvezo (Tadukkli n Tafriqt n Unẓul). Yemmut ass 5 dujamber 2013 di Johannesburg, d-argaz n Uwanek n Tafriqt n Wenẓul ; yella deg iɣellaten imezrayen n Imenɣi mgal anagraw aserti n apartheid uqbel ad yuɣal aselway n Tagduda n Tefriqt n Wenẓul seg 1994 ar 1999, sakin des tifranin timezwura tiɣelnawin war beḍḍu n iri deg l'umezruy n tmurt agi.
+
+Nelson Mandela yekcem ar "Uswir Aɣelnaw Aferkan" (ANC) deg ussegwas 1944, iwakken ad i nnaɣ mgal aɣmar aserti n tadersi tamellalt dɣa abeṭṭu n iran i t-seṭṭef taneggarut agi. Yuɣal d-abugaṭu, i ttekki ar ubellen war takriḍt mgal isuḍaf n apartheid, id i yesexdem anabaḍ n Ukabar Aɣelnaw seg 1948. Deg useggwas 1960, ANC yuɣal d-amegdul ; daɣen, abellen Amelwi ur d-yettak ara igmaḍ yelḥan, Mandela yesnulfa-d ageṭṭum aserdas n ANC, "Umkhonto we Sizwe (Uzzal n uxtuc n uɣlan)", deg useggwas 1961. Xedmen timhalin n wesfata mgal isgulaf izuyaz d-iserdasen. Ass n 12 yulyu 1963, yetweḥbes sɣuṛ lbulis n Tafriqt n Unẓul s-timula n CIA (Tafullut Talemmast n Umel), daɣen ḥekmen-as i lḥebs d imuhal n tmara alamma d lmut deg uẓmaẓ n Rivunia. Imir, y-uɣal d-azamul n ubellen i tulut n iran dɣa yermes tadhelt tagraɣlant i temɣeren.
+
+Sakin 27 iseggwasen di lḥebs deg tiwtilin tiweɛṛanin, erran-as tilelli i Mandela ass n 11 fuṛaṛ 1990, sakin, aneggaru-agi yeḥuded amsuɣal d ustug s unabaḍ n uselway Frederik de Klerk. Di 1993, yermes (s de Klerk) arraz Nubel n talwit acku sseḥbesen (sin yidsen) deg talwitanhil n apartheid dɣa ssersen-d llsisan n Tafriqt n Wenẓul tamegdayt tamaynut. 
+
+Sakin tukkit i wɛeṛen anda de Klerk d-netta ssinefen ṭrad taɣarimt gar imuɣlen n apartheid, wid n ANC dɣa wid n Inkhata s-uneɣmar zulu, Nelson Mandela y-uɣal aselway aberkan amezwaru n Tafriqt n Wenẓul di 1994. Yenheṛ tasertit n umsuɣal aɣelnaw gar iberkanen d-imellalen ; yennaɣ mgal tirgaddiwin tudmisin, lamaɛna yestehzi amennuɣ mgal SIDA, yellan deg tallit n urnay deg Tafriqt n Wenẓul. Sakin lmanda awḥid, yekkes iman-is deg tameddurt tasertit turmidt, lamaɛna i kemmel arfad azayez i Uswir aɣelnaw aferkan maca i kemmel ad i ssiẓer tifuliwin-is.
+
+Yeddukel sakin deg aṭas tiddukliwin n ubellen mgal tileqqi nneɣ sida, yetwerfed ar usertatu n tigemmi tucrikt n talsa, Yeqqim d-yiwen udem deg umaḍal yetsmeḥsesen ɣef usentel n Izerfan n Wergaz dɣa yetwali am baba-s n Tafriqt n Wenẓul agetiri d amegday ummid, semman-as « aɣlan taslit n wenẓar », ɣas ma tamurt yesɛa weṛɛad igna n tirgaddiwin tudmisin, tussdiwin timettiyin dɣa tuqqla ɣer timɣiwan.
+At Wertiran At Wertiran
+
+At Wertiran (s tifinaɣ: ⴰⵜ ⵡⴻⵔⵜⵉⵔⴰⵏ) d yiwet n tɣiwant deg ugezdu n Sṭif id yezgan deg usamar n Tmurt n Iqbayliyen, Zedɣen-t wazal n 12,642 n yimezdaɣ (2008).
+
+At wertiran d tamenrut (tamanaɣt) n wasun n At wertiran id yezgan deg ugafa utrim n ugezdu n Sṭif teflal ɣef yilel gar n 400 m (Agradu) ar 1300 m (Azṛu yeflan) 
+
+Imezdaɣ n At wertiran d wid yettmeslayen Taqbaylit seg umeẓyan ar umeqran, Taqbaylit deg tamiwin-a d tin yakk i zeddigen ɣef tamiwin n iden s tagga n Mulud Mɛemmri
+
+At Wertiran d awal Aqbayli uddis seg sin n wawalen (Urti= champ), (iran= lions)
+
+Tagrest deg At wertiran d tin semmṭen s waṭas imi tiseddarin n wezɣal ttadren-t ar -10 (ar -15 deg udrar n Azṛu yeflan d tama n Akuf) akken daɣen id yetteɣlay wedfel s tuget gar n wayyur n nwembeṛ ar Meɣres yerna yezmer ad yut ula deg Yebrir d Mayu 
+
+Llan aṭas n tudrin deg At Wertilan, gar-asen ad naf : 
+Buslam Buslam
+
+Buselam d taɣiwant n ugafa n ugzedu n Sṭif deg tadayra n Buɛendas. 
+
+Llan deg ugafa taɣiwant n Kendira deg ugzedu n Bgayet, deg wenẓul llan At Cebana ed Tala Ifassen, deg wegmuḍ akked tiɣwanin n At Nawal Mezada ed Buɛendas deg utaram akked At Wartilan ed At Muḥli. Deg wakal n tɣiwant illa uqacuc (sommet) n Wedrar n Tqintuct
+
+Llan aṭas n tudrin gar-asen a naf : 
+
+Los Angeles Los Angeles
+
+Los Angeles d tamdint n utaram (lɣerb) n Yiwunak Yeddukklen, tezga-d deg wenẓul-utrim (sud-ouest) n California, ɣef yiri n Ugaraw Amelwi. Los Angeles d nettat ay d tamdint tameqrant tis snat deg Yiwunak Yeddukklen, zedɣen-tt 3.833.995 n yimezdaɣen deg tlemmast-nnes, maca zedɣen-tt 17.786.419 n yimezdaɣen (s yegmamen ay d-yezzin fell-as).
+Agaraw Amelwi Agaraw Amelwi
+
+Agaraw Amelwi d agaraw ameqran akk deg umaḍal, yezga-d gar tama tagmuḍant (tacerqit) n Asya ed Usṭralya akked tama tutrimt (taɣerbit) n Temrikt. Tajumma-nnes 165 n yimelyunen km2 (yikilumitren imkuẓen).
+Ilel Aberkan Ilel Aberkan
+
+Ilel Aberkan d ilel ay d-yezgan gar Ukrayin, Rrus, Jurjya, Ṭṭerk, Bulgarya ed Rumanya. Yeqqen ɣer Yilel Agrakal s wazza (détroit) n Dardanel. Tajumma-nnes 436.400 km2 (yikilumitren imkuẓen).
+Agaraw Ahendi Agaraw Ahendi
+
+Agaraw Ahendi d yiwen seg yigarawen n tegnit. Yezga-d gar 3 imenẓawen (Tefriqt ,Asya akked Usṭralya). Tajumma-ynes tesduri azal 73.556.000 km², S wakka ad yili d agaraw ameqran wis 3 deg tjumma
+Agaraw Arkti Agaraw Arkti
+
+Agaraw Arkti d yiwen seg semmus n yigarawen n umaḍal, yezga-d deg tama n ugafa (nord) n Tegnit, gar Temrikt n Ugafa (Kanada ed Alaska), Rrus ed Skandinavya. Tajumma-nnes 14.056.000 km2 (yikilumitren imkuẓen). Deg tegrest, amur ameqran seg ugaraw-a yeddal-it wegris. Tizgelt n ugafa (pôle Nord) tezga-d deg tlemmast n ugaraw-a.
+Salvador Dali Salvador Dali
+
+Salvador Dali ("Salvador Domènec Felip Jacint Dalí i Domènech", ilul deg Figueres deg 11 Mayyu 1904 - yemmut deg Figueres, deg 23 Yennayer 1989), d amekla (peintre) mechuṛen n Spenyul. Dali yella d imsuneɣ (dessinateur) igerrzen, d win ay iḍefren aɣanib aflalwaẓri (surréaliste). Iqeddicen-nnes sskanayen-d tugniwin (images) d tiɣwaliyin (bizarres) yerna ssewhament. Leqdic-nnes yettwassnen mliḥ d tafelwit (tableau) n La Persistencia de la memoria (Tiɣimit n Tkatut) ay d-iga deg 1931. Dali iger daɣen iman-nnes deg ssinima, deg tesreɣta (sculpture) akked usseknew (aṣewwer), d inurar aydeg yeqdec ɣer yidis n yinuẓar niḍen.
+
+Dali yella iḥemmel akk ayen yellan d imdehheb, am wakken ay iḥemmel iceṭṭiḍen igmuḍanen (icerqiyen), yerna yella yettwali lejdud-nnes d Imuriyen (d Inselmen n Spenyul). Leqdicat-nnes n teklut (peinture) uwyen-d daɣe cwiṭ seg teklut n tallit n Tsidert (Renaissance), yerna yella yesɛa tasugint (imagination) d tameqrant. 
+11 dujamber 11 dujamber
+
+Ass 11 dujamber d ass wis 345 n useggas (wis 346 deg iseggasen "bisekstil"). Llan 20 wussan deffir-s ar taggara n useggas.
+10 dujamber - "11 dujamber" - 12 dujamber
+12 dujamber 12 dujamber
+
+Ass 12 dujamber d ass wis 346 n useggas (wis 347 deg iseggasen "bisekstil"). Llan 19 wussan deffir-s ar taggara n useggas.
+11 wamber - "12 dujamber" - 13 dujamber
+
+
+
+Ras Lwad Ras Lwad
+
+Ras Lwad (s tefrensist: "Ras El Oued"), d taɣiwant n twilayt n Lburj Buɛririj, zedɣen-tt 42.345 n yimezdaɣen yerna tebɛed 30 n yikilumitren ɣef temdint n Lburj Buɛririj. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Tocqueville".
+At Mnaṣer At Mnaṣer
+
+At Mnaṣer (s tefresist: "Menaceur"), d taɣiwant n twilayt n Tipaza, zedɣen-tt 22.684 n yimezdaɣen (amur ameqqran seg-sen ssawalen s tmaziɣt). Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Marceau".
+
+Busmaɛil Busmaɛil
+
+Busmaɛil (s tefrensit: "Bou Ismail"), d taɣiwant n utaram (lɣerb) n Tipaza. Zedɣen-tt 38,445 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Castiglione".
+Ḥejjuṭ Ḥejjuṭ
+
+Ḥejjuṭ (s tefrensist: "Hadjout"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Tipaza, zedɣen-tt 44.065 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Marengo".
+Sidi Ɣilas Sidi Ɣilas
+
+Sidi Ɣilas(s tefrensist: "Sidi Ghiles"), d taɣiwant n twilayt n Tipaza, zedɣen-tt 12.731 n yimezdaɣen (i wumi qqaren Iɣilasen). Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Novi".
+
+Hewwari Bumedyen Hewwari Bumedyen
+
+Hewwari Bumedyen (ilul seg yisem n Muḥemmed Ben Brahim Buxerruba deg 23 Ɣuct 1932 deg Ɛin Ḥsayneyya, Galma - yemmut deg 27 Dujember 1978 deg temdint n Ldzayer tamaneɣt), d aserdas azzayri, d aselway wis sin n tmurt n Lezzayer (deffir uzarug), gar 1965 ed 1976, yerna yeqdec d aselway n Useqqamu n Tegrawla gar 1965 d 1976. 
+
+Deg tallit n Tegrawla n Ldzayer, yefka i yiman-nnes isem n Hewwari Bumedeyn yerna yuweḍ ɣer tfesna n weknaner. Deg 1959, yeqqel d Imḍebber Aɛlayan n Yigen n Weslelli Aɣelnaw. Asmi ay tuwey Ldzayer azarug-nnes deg 1962, Bumedyen yeqqel d aneɣlaf n temḥaddit ddaw uselway Ḥmed Ben Bella, am wakken ay yeṭṭef amkan n wenmazul n Uneɣlaf Amezwaru gar 1963 d 1965. Deg wass n 17 Yunyu 1965, Bumedyen yesseɣli Ben Bella seg udabu yerna yeqqel d netta d aselway n tegduda. Deg wass n 20 Yunyu n useggas-nni, yerna yeṭṭef ula d amkan n Uneɣlaf Amezwaru.
+13 dujamber 13 dujamber
+
+Ass 13 dujamber d ass wis 347 n useggas (wis 348 deg iseggasen "bisekstil"). Llan 18 wussan deffir-es ar taggara n useggas.
+12 wamber - "13 dujamber" - 14 dujamber
+
+
+
+
+
+
+Charles Dickens Charles Dickens
+
+Charles John Huffam Dickens (ilul deg 7 Furar 1812 – 9 Yunyu 1870), d netta ay d aneggal (romancier) mechuren akk deg Langliz deg tallit tavictoriant (tallit n Tgellidt Victoria). Aṭas seg wungalen-nnes llan ssawalen-d, ladɣa, ɣef lḥif ay terwa tmetti tanglizit deg tallit-nnes, yerna yella yessuffuɣ-iten-id deg tesɣunin. Tiḥkayin n Dickens ssawalent-d ɣef tɣawsiwin n tmeddurt swaswa kan akken llant deg tilawt, dɣa d aya ay yejjan kra n yimura d imeqranen n tallit-nnes ad t-id-cekren, am George Gissing, Leo Tolstoy ed G. K. Chesterton. 
+
+Dickens yettwassen, ladɣa, s sin n wungalen d imeqranen, Oliver Twist akked David Copperfield.
+
+14 dujamber 14 dujamber
+
+Ass 14 dujamber d ass wis 348 n useggas (wis 349 deg iseggasen "bisekstil"). Llan 17 wussan deffir-s ar taggara n useggas.
+13 dujamber - "14 dujamber" - 15 dujamber
+15 dujamber 15 dujamber
+
+Ass 15 dujamber d ass wis 349 n useggas (wis 350 deg iseggasen "bisekstil"). Llan 16 wussan deffir-s ar taggara n useggas.
+14 dujamber - "15 dujamber" - 16 dujamber
+Kirkuk Kirkuk
+
+Kirkuk d tamdint n ugafa (nord) n Lɛiraq, zedɣen-tt 850.787 n yimezdaɣen.
+Jedda Jedda
+
+Jedda d tamdint n utaram (lɣerb) n Tgelda Tasaɛudit, zedɣen-tt 3.430.697 n yimezdaɣen.
+Atlanta Atlanta
+
+Atlanta, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n Georgia. Zedɣen-tt 5.268.860 n yimezdaɣen.
+Salt Lake City Salt Lake City
+
+Salt Lake City d tamdint n Yiwunak Yeddukklen yerna d tamaneɣt n Utah. Zedɣen-tt 1.124.197 n yimezdaɣen.
+Denver Denver
+
+Denver, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n Colorado. Zedɣen-tt 2.552.195 n yimezdaɣen.
+Milano Milano
+
+Milano d tamdint n ugafa (nord) n Ṭṭalyan. Zedɣen-tt 1.314.745 n yimezdaɣen.
+
+Tamnaṭ n Milano zzinased waṭṭas n igelmimen zun Agelmim n Kum, Maǧur, atg.
+San Francisco San Francisco
+
+San Francisco d tamdint n utaram (lɣerb) n Yiwunak Yeddukklen, tezga-d deg utaram (lɣerb) n California, ɣef yiri n Ugaraw Amelwi. Zedɣen-tt 7.427.757 n yimezdaɣen.
+Ɛaden Ɛaden
+
+Ɛaden d tamdint tameqrant n Yamen, tezga-d deg wenẓul n tmurt, ɣef yiri n yilel. Zedɣen-tt 800.000 n yimezdaɣen.
+Santa Barbara Santa Barbara
+
+Santa Barbara d tamdint n wenẓul-utrim (sud-ouest) n Yiwunak Yeddukklen, tezga-d deg uwanak n California. Zedɣen-tt 86.353 n yimezdaɣen (201.058 s yegmamen ay d-yezzin fell-as).
+Ṣenɛa Ṣenɛa
+
+Ṣenɛa (s tanglizt: "Sanaa"), d tamaneɣt n Yamen, tezga-d deg utaram (lɣerb) n tmurt. Zedɣen-tt 1.747.627 n yimezdaɣen (2.167.961 s tmiwa ay d-yezzin fell-as).
+Ɛin Ṣaleḥ Ɛin Ṣaleḥ
+
+Ɛin Ṣaleḥ (s tefrensist: "In Salah"), d taɣiwant n utaram (lɣerb) n twilayt n Tmenɣest. Zedɣen-tt 28.022 n yimezdaɣen. Tamdint-a tezga-d deg yiwet seg tmiwa yesɛan aṭas akk n upitrul deg Ledzayer.
+Nagasaki Nagasaki
+
+Nagasaki d tamdint n Japun, tezga-d deg utaram (lɣerb) n tegzirt n Kyucu (deg wenẓul n tmurt). Zedɣen-tt 446.007 n yimezdaɣen. Deg 1945, Imarikanen wwten tamdint n Nagasaki s tleffuɣt tabelkamit (bombe atomique), d ayen ay yenɣan 73.884 n yemdanen, yerna yejreḥ 74.909 niḍen. D igiman (luluf) n medden niḍen ay yernan uḍnen yerna mmuten seg uxeṣṣar ay d-tessegra tleffuɣt-nni.
+Ajdabiya Ajdabiya
+
+Ajdabiya d tamdint n ugafa-agmuḍan (nord-est) n Libya, tezga-d deg wenẓul n Benɣazi, ɣef yiri n yilel. Zedɣen-tt 76,968 n yimezdaɣen.
+Perth Perth
+
+Perth d tamdint n wenẓul-utrim (sud-ouest) n Usṭralya, tezga-d ɣef yiri n Ugaraw Ahendi, yerna d tamaneɣt n uwanak n Usṭralya Tutrimt. Zedɣen-tt 1.658.992 n yimezdaɣen.
+Baniyas Baniyas
+
+Baniyas (neɣ "Banias") d tamdint n utaram (lɣerb) n Surya, tezga-d ɣef yiri n Yilel Agrakal, zedɣen-tt 42.128 n yimezdaɣen.
+Brisbane Brisbane
+
+Brisbane d tamdint n wegmuḍ (ccerq) n Usṭralya, yerna d tamaneɣt n uwanak n Queensland. Zedɣen-tt 2.004.262 n yimezdaɣen.
+Queensland Queensland
+
+Queensland d awanak (Etat) n Usṭralya, yezga-d deg ugafa-agmuḍan (nord-est) n tmurt. D netta ay d awanak ameqran akk n Usṭralya seg yidis n wakal. Tajumma-nnes 1.852.642 km2 (yikilumitren imkuẓen). Zedɣen-t 4.516.361 n yimezdaɣen. Tamaneɣt-nnes d Brisbane.
+16 dujamber 16 dujamber
+
+Ass 16 dujamber d ass wis 350 n useggas (wis 351 deg iseggasen "bisekstil"). Llan 15 wussan deffir-s ar taggara n useggas.
+15 dujamber - "16 dujamber" - 17 dujamber
+17 dujamber 17 dujamber
+
+Ass 17 dujamber d ass wis 351 n useggas (wis 352 deg iseggasen "bisekstil"). Llan 14 wussan deffir-s ar taggara n useggas.
+16 dujamber - "17 dujamber" - 18 dujamber
+
+18 dujamber 18 dujamber
+
+Ass 18 dujamber d ass wis 352 n useggas (wis 353 deg iseggasen "bisekstil"). Llan 13 wussan deffir-s ar taggara n useggas.
+17 wamber - "18 dujamber" - 19 dujamber
+
+
+19 ctember 19 ctember
+
+Ass 19 ctember d ass wis 262 n useggas (wis 263 deg iseggasen "bisekstil"). Llan 103 wussan deffir-s ar taggara n useggas.
+
+
+At Aggwaca At Aggwaca
+
+At Aggwaca d taɣiwant n Tmurt Leqbayel, tezga deg tawilayt n Tizi Uzzu. Teqqen ar taqbilt n At Yiraten. 
+Taɣiwant n At Aggwaca tella deg ulemmas n tawilayt n Tizi Uzzu.
+
+Taɣiwant n At Aggwaca tesɛa 11 tudrin :
+Taddart ugaren tiyeḍ nniḍen deg temɣer d tixxutert d taddart n Lmiser. Deg tajumma am umezdaɣ. Anamek n isem n "Lmiser" d-anegzum n tafyirt "Mmi yesser", s-tṛmumit : "Mon fils est protégé".
+
+Draɛ Lmizan Draɛ Lmizan
+
+Tacentirt d yiwet taɣiwant n twilayt n Tizi Uzzu di Tmurt Taqbaylit, tella ar deg unẓul-amalu Tizi Uzzu dɣa ar deg unẓul-agmuḍ n Zzayer.
+
+Taɣiwant n Tacentirt tella deg unẓul-amalu n twilayt n Tizi Uzzu.
+
+Taɣiwant n Tacentirt tesɛa 19 tudrin :
+
+Tiɣiwanin n twilayt n Tizi Wezzu Tiɣiwanin n twilayt n Tizi Wezzu
+
+Tawilayt n Tizi Wezzu deg Tmurt Leqbayel tesɛa 67 tiɣiwanin. 
+
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n twilayt n Tizi Wezzu, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+
+Talalit (Nuwel) Talalit (Nuwel)
+
+Talalit neɣ Amasilul d tagaska tis snat ilan azal yakk deg tmasiḥt seld n tnekra id yesskanayen asmekti n tlallit n Yisus, Tafaska ayyi tebeddu deg yiṭ n 24 dujember d wass n 25 dujember deg teswast tagrigurt d teswast tayulyant maca s usrag n umgarad n snat n teswasin-a s 13 n wussan tettili-d tfaska n tlalit deg tmezdayin yeṭṭafaren taswast tayulyant deg yiṭ n 6 yennayer d wass n 7 yennayer ɣas akken ibibel ur d-ibdir ara ass neɣ azmez n tlallit n Yissu maca ibabaten n tmezdayt ssidgen-d azmez-a d akken-t d asihar-is (ttiɛad-is) seg useggas n 325. Akken daɣen yettusismel unasay n tmezdayt s umeggez-ines deg tlemmast n yiṭ. Yerna yettwabdar-d deg "injil n tegrudt n Yakuf" deg tsut tis kṛad anelfuy-a (aneḍruy-a) yella-d deg tlemmast n yiṭ, d akken ababat Pius PP. XI deg tmezdayt takatulikt yessentem (iwekked) deg 1921 d akken anelfuy-a yella-d deg tlemmast n yiṭ s talɣa tamaddudt akken id yebder daɣen d akken send n tmasiḥt ass n 25 dujember yella-d tafaska tinnedmemt i wsemɣer n tfuktAt Waggag At Waggag
+
+At Waggag d taddart taqbaylit deg tɣiwant n Ḥraza (Berǧ Bu Ɛririǧ). 
+
+Deg-s illa lebni-ines d aqbur , aṭas n yexxamen i mazal bedden akken ttwabnan zik. Ass-agi tuget n At Waggag fɣen, ttidiren deg temdinin am Ledzayer neɣ Berǧ Bu Ɛrariǧ neɣ Sṭif ; wid yeqqimen deg taddart amzun ttwattun imi allalen n tudert ur ten-wwiḍen ara.
+
+Taddart-agi Iwaggagen tezga-d lewhi n 10 Km akin i At Sidi Brahim i d-yezgan deg webrid yettawin ar Sṭif, qbel Lemhir iwumi qqaren zik Imaẓiten. Taddart n At Sidi Brahim daɣen d taqburt u tesɛa amezruy meqqren yagi deg Tegrawla n 54, dinna i llant Tiggura n Wuzzal ("Portes de fer").
+
+Tezga-d di tama n Yimaẓiten. Ur teggug ara, tamdint n Tamsilt ed tiɣiwanin n Herraza dd Ben Dawed. At Fḍala anida tella Tɣiwant i-ɣer cudden At Waggag. 
+
+At Waggag fkan azal ameqqran s yiɣallen deg tegrawla n 54, aṭas deg yimezdaɣen-ines mmuten mi ttnaɣen mgal irumiyen i yexlan daɣen aṭas n yexxawen iqburen.
+Kra n tuddar ittexlanen acku, imezdaɣ-is akk fɣen rewlen seg rrebrab deg iseggwasen 1990. 
+19 dujamber 19 dujamber
+
+Ass 19 dujamber d ass wis 353 n useggas (wis 354 deg iseggasen "bisekstil"). Llan 12 wussan deffir-s ar taggara n useggas.
+18 wamber - "19 dujamber" - 20 dujamber
+20 dujamber 20 dujamber
+
+Ass 20 dujamber d ass wis 354 n useggas (wis 355 deg iseggasen "bisekstil"). Llan 11 wussan deffir-s ar taggara n useggas.
+19 dujamber - "20 dujamber" - 21 dujamber
+21 dujamber 21 dujamber
+
+Ass 21 dujamber d ass wis 355 n useggas (wis 356 deg iseggasen "bisekstil"). Llan 10 wussan deffir-s ar taggara n useggas.
+20 dujamber - "21 dujamber" - 22 dujamber
+22 dujamber 22 dujamber
+
+Ass 22 dujamber d ass wis 356 n useggas (wis 357 deg iseggasen "bisekstil"). Llan 9 wussan deffir-s ar taggara n useggas.
+21 dujamber - "22 dujamber" - 23 dujamber
+23 dujamber 23 dujamber
+
+Ass 23 dujamber d ass wis 357 n useggas (wis 358 deg iseggasen "bisekstil"). Llan 8 wussan deffir-s ar taggara n useggas.
+22 dujamber - "23 dujamber" - 24 dujamber
+24 dujamber 24 dujamber
+
+Ass 24 dujamber d ass wis 358 n useggas (wis 359 deg iseggasen "bisekstil"). Llan 7 wussan deffir-s ar taggara n useggas.
+23 dujamber - "24 dujamber" - 25 dujamber
+25 dujamber 25 dujamber
+
+Ass 25 dujamber d ass wis 359 n useggas (wis 360 deg iseggasen "bisekstil"). Llan 6 wussan deffir-s ar taggara n useggas.
+24 dujamber - "25 dujamber" - 26 dujamber
+26 dujamber 26 dujamber
+
+Ass 26 dujamber d ass wis 360 n useggas (wis 361 deg iseggasen "bisekstil"). Llan 5 wussan deffir-s ar taggara n useggas.
+25 dujamber - "26 dujamber" - 27 dujamber
+27 dujamber 27 dujamber
+
+Ass 27 dujamber d ass wis 361 n useggas (wis 362 deg iseggasen "bisekstil"). Llan 4 wussan deffir-s ar taggara n useggas.
+26 wamber - "27 dujamber" - 28 dujamber
+
+28 dujamber 28 dujamber
+
+Ass 28 dujamber d ass wis 362 n useggas (wis 363 deg iseggasen "bisekstil"). Llan 3 wussan deffir-s ar taggara n useggas.
+27 dujamber - "28 dujamber" - 29 dujamber
+
+29 dujamber 29 dujamber
+
+Ass 29 dujamber d ass wis 363 n useggas (wis 364 deg iseggasen "bisekstil"). Llan 2 wussan deffir-s ar taggara n useggas.
+28 dujamber - "29 dujamber" - 30 dujamber
+30 dujamber 30 dujamber
+
+Ass 30 dujamber d ass wis 364 n useggas (wis 365 deg iseggasen "bisekstil"). Yella 1 wass deffir-s ar taggara n useggas.
+29 dujamber - "30 dujamber" - 31 dujamber
+31 dujamber 31 dujamber
+
+Ass 31 dujamber d ass wis 365 n useggas (wis 366 deg iseggasen "bisekstil"). D ass aneggaru n useggas.
+30 wamber - "31 dujamber" - 1 yennayer
+Tazermemmuyt Tazermemmuyt
+
+Tazermemmuyt (asget: tizermemmuyin), (isem usnan: "Lacertilia") d adu-tfesna n temraradin yeṭṭafaren asmil n tizermemmuyin timeskebrin, Tizermemmuyin d Timraradin yudsen seg uẓar ɣer izerman, Ar ass-a imusnawen ukzen-d (ɛeqlen-d) azal n 3750 n telmas yemgaraden n tzermemmuyin yettidiren deg umur ameqran n tegnit.
+Izerzer Izerzer
+
+Izerzer (Assaɣ ussnan: "Cervidae") d aɣersiw asuṭad yeṭṭafaren adu-telmest n tmesluffaẓ seg tfesna n tsenfednin. Izerzren d iɣersiwen imyiwnen ilan (yesɛan) iɣsan deg iqerruyen-nsen dɣa iɣsan-a gan d acciwen
+
+Llan-t wazal n 60 n telmas n tzerzrin deg umadal am izerzer amaziɣ (izerzer amyiwen yettidiren deg Tafriqt), Amezzirez d tizerzert d waṭas n telmas n iden
+
+Llan-t telmas yettidiren deg yidgan semṭen d tilmas yettidiren deg yidgan yemnummsen deg tẓegwa neɣ deg izaɣaren yeldin
+
+Izerzren d iɣersiwen yemgaraden s waṭas deg ubleɣ maca d nutni yakk i d iɣersiwen izagiren iy meqqren yakk deg Uruppa d Tamrikt n Ugafa, Amezzirez n Temrikt n ugafa imeqqren yakk acku addud-is yettawaṭ ar 2,3 m ma d azuk-is yettawaṭ ar 820 kg
+Ilef Ilef
+
+Ilef (Assaɣ usnan: "Sus") d aɣersiw asuṭṭad yeṭṭafaren tawsit n telfatin yettidir deg Tefrikt Uruppa d Asya , Dɣa llan-t telmas d timegrudin (tturebban-t deg wexxam) iw faras n weksum d tmugri n weglim
+
+Ilef d aɣersiw amufay azuran yerna yuddes, ila (yesɛa) uglan meẓẓiyen ffɣen-d seg yimi-s yerna ɣɣaren-asen timeɣlin. Iɣef-is d ameqran, udem-is d aɣezfan yerna yesseqdac-it akken ad yessekfel yis ayen yeffren ddaw wakal, Amur ameqran n telmas n yilfan ttidiren-t g tẓegwa
+
+Ilef d aɣersiw aramma (yettett kra yellan: aksum, iburɣas, imɣan)
+
+Ursu amellal Ursu amellal
+
+Ursu amellal neɣ Ursu asafaylu, (Assaɣ ussnan: "Ursus maritimus") d talmest n ursunen yeṭṭafaren asmil n temsutad seg twacult n iɣelɣalen, Yettidir deg tamiwin tigersanin id yezzin ɣef Ugaraw Arktan (deg ugafa n Kanada, Rusia akk d Skundinavya). Ursu amellal d yiwen seg yiɣersiwen yeṭṭafaren tafesna n temseksumin timeqranin yakk deg tiggi n tegnit imi tiddi-ynes tezmer ad tiawed ɣer 2,5m deg teflel (mara ad ibedd ɣef yiḍarren-nnis udfiren), Ma d azuk-is yla azal n 7 n yiqenṭaren. 
+
+Tafekka n wursu-a d tamellalt s umata, yerna anect-a yettalel-it ad yessedreg iman-nnes deg temlel-nni n wedfel d wegris aydeg yettiddir. Seg tama niḍen, aglim-is d azuran yerna d win ay yettarran fell-as asemmiḍ. Ursu amellal ireddeb deg waman isemmaḍen n Ugaraw Arkti, am wakken ay yezmer ad yazzel s tɣawla d tameqrant ɣef wegris. Yesɛa anzad ula ddaw yiḍarren-nnes i wakken ur ittecceḍ deg wedfel, yerna yettṣeyyid iselman ed yidemriyen
+Abanɣu Abanɣu
+
+Abanɣu neɣ Azamur (Assaɣ ussnan: "Hippopotamus amphibius") d aɣersiw amestugan meqqren s waṭas, yettiddir deg Tefriqt. S umata, Abanɣu d yiwet n telmest gar snat n telmas id yegran deg tewsit n ubanɣu (talmest n iden d abanɣu agezlan) 
+Abanɣu d aɣersiw yeggunin ɣef waman deg tudert-is s waṭas anda amur ameqran n wakuden-is yettili-ten s agensu (daxel) n isafen d igelmimen yellan deg unẓul n uneẓruf ameqran Ula d amercel-is yakk d tarrawt-is tettili-d s agensu n waman, Zik nni yella yettidir ula deg wasif n Nnil alamma d Asif n Urdun, Abanɣu yettidir deg tegrawin anda yal tagrawt tezmer ad tt-awi azal n 40 n ibanɣuten,Mi ara ad yas wakud n udnunnes w ad adrent tseddarin n wezɣal itteffeɣ-d seg waman i wakken ad iksu maca ttilin d isufen s tmegla n wass mi ara ad ilin deg waman 
+
+Abanɣu d yiwen gar temsuṭad i zeddiɣ (mazal) llan ttidiren deg tegnit yerna iga d yiwen gar iɣersiwen icafcalen ur nengir ara, Azuk agaman n uwtem n ubanɣu amawaṭ d win yettawṭen gar n 1500 kg ar 1600 kgma d iwetmen iwessura yezmer ad yaweṭ wazuk-nsen ar 3200 kg, tiwetmin ttilin-t meẓẓiy-it cwi ɣef iwetmen s wazuk igan gar 1300 kg ar 1500 kg, Ammas n teɣzi n uqerruy-is 3,5 m. Ma d addud ynes ar tuyat 1,5 m ayen yegdan addud n uzara amellal dɣa anect-a yesnulfa-d amray (lewɛara) ɣer imusnawen deg usideg n anwa i d asuṭad ameqran wis sin seld n yilew 
+Asirem n tudert ɣer ubanɣu d win yessawaṭen seg 40 ar 50 n iseggasen. Maca abanɣu yettusismlen yakk meqqer idder deg Lalman d tawtemt isem-is "Tanga" yemmuten deg useggas n 1995 s waddar n 61 n iseggasen 
+
+Alday n wanzaren d wallen d imeẓẓaɣ n ubanɣu zgan-d deg yixef n uqecrur ayen yettaǧǧan ad yessekcem yakk tafekka-ynes deg waman d waluṭ n twennaṭ tasbegsant izeɣlen i wakken ad yeffer ɣef twaqqsa n tfukt
+
+Yettwassen ubanɣu s tafekka-ynes tawlellayt ur nli (ur nesɛi) azar d yiṭarren-is meẓẓiyen d ubleɣ-it acafcal, ɣas akken s ila isefka ayi akk ara ad tyeǧǧen d azayan d agezlan maca yezmer ad yazzel ugar n wemdan, Anda tazzla-ynes tettaweṭ ar 50 km/ts
+
+Asismel 
+Abanɣu d yiwen gar snat n telmas id yegran deg twacult n izamuren, Dɣa tawacult-a n izamuren tettwasismel (yakk d tid tfenza) deg tafesna d tsenfednin dgi llan iɣersiwen imestuga n iden am ulɣem d tfunasin d izerzer d yilfan, ɣas akken abanɣu ur yettwaqqen ara s wassaɣ yuddsen (ijehden) ar telmas-a 
+
+Tamhazt n telmest-a 
+Tizrawin titrarin ɣef uẓar n twacult n Tizamurin ssknen-t-d d akken abanɣu yezdi yakk d tizemkiyin deg yiwen n uẓar imezdi akelman 
+
+Tilmas inegren'
+
+Azger Azger
+
+Azger d aɣersiw asuṭad yeṭṭafaren tawacult n tfunasiyin deg tfesna n tsenfednin, Azger d aɣersiw alsaffaẓ. Ila (yesɛa) acciwenUsama Ben Laden Usama Ben Laden
+
+Usama Ben Laden neɣ Usama bin Muḥammed bin Awad bin Laden (ilul deg 10 Meɣres 1957 - yemmut deg 2 Mayyu 2011 Abbottabad, Pakistan), d aserdas aqbur n Tgelda Tasaɛudit yerna d argaz n yiweẓla (homme d'affaires) seg twacult tameṛkantit n Ben Laden ay yesɛan aṭas n yiseftiyen (investissements) deg Yiwunak Yeddukklen. 
+
+Deg yiseggasen n 1980, Ben Laden yella iqeddec (ɣer yidis n Yimarikaniyen) akken ad iɛawen Afɣanen ad ssuffɣen iɣallen isuvyatiyen seg tmurt-nsen. D netta ay d-yesbedden tuddsa timselleḥt n Lqaɛida ay yettekkan deg tenṭagin 11 Ctembeṛ 2001 deg Yiwunak Yeddukklen akked waṭas n tenṭagin niḍen ay d-yellan yimukan niḍen n umaḍal yerna glant s tmeddurin n waṭas n medden. Seg wasmi ay yettekka deg tenṭagin ay iḥuzan tinmuhal (ambassades) timarikaniyin deg Kenya ed Tanzanya (deg 1998), FBI yessers Ben Laden gar 10 n yemdanen imeqranen akk ayɣef yettnadi. Deg 1 Mayyu 2011, iɣallen imsellḥen imarikaniyen ssawḍen ad nɣen Ben Laden deg yiwen n wexxam deg temdint n Abbottabad, deg Pakistan.
+1998 1998
+
+Buzerriɛa Buzerriɛa
+
+Buzerriɛa d taɣiwant n ugezdu n Dzayer Tamanaɣt, tezga-d tama tutrimt n tesegrwat n Dzayer. 
+Deg useggwas n 2008, ɣur-es azal n 83 797 imezdaɣen. 
+At Muḥli At Muḥli
+
+At Muḥli d taɣiwant n ugafa n twilayt n Sṭif di tmurt n Leqbayel. Deg useggwas n 2008, ɣur-es azal n 8.521 imzedaɣ. Tcudd af twilayt n Bgayet. 
+At Cebana At Cebana
+
+At Cebana d taɣiwant n ugafa n twilayt n Sṭif di Tmurt n Leqbayel deg tdayra n At Wartilan. Tajumma-nnes d 1.060 km² (ikilumeṭren imkuẓen). Deg useggas n 2008, ɣur-s azal n 13 174 imezdaɣen. 
+
+At Cebana teggug azal n 250 km si Dzayer Tamanaɣt i 90 km seg temdint n Sṭif. 
+
+Masqaṭ Masqaṭ
+
+Masqaṭ d tamaneɣt n tmurt n Ɛuman. Tezga-d deg ugafa-agmuḍan (nord-est) n tmurt. Zedɣen-tt 1.090.797 n yimezdaɣen.
+Ɛemman Ɛemman
+
+Ɛemman d tamaneɣt n tmurt n Urdun, tezga-d deg ugafa-utrim (nord-ouest) n tmurt. Zedɣen-tt 2.800.000 n yimezdaɣen.
+Birmanya Birmanya
+
+Birmanya d tamurt n wenẓul-agmuḍan (sud-est) n Asya. Tajumma-nnes 676.578 km2 (yikilumitren imkuẓen). Zedɣen-tt 59 n yimelyunen n yimezdaɣen. Tamaneɣt-nnes d Naypyidaw.
+Naypyidaw Naypyidaw
+
+Naypyidaw d tamaneɣt tamaynut n Birmanya (seg useggas n 2005, deg wemkan n Yangun). Tamdint-a zedɣen-tt 925.000 n yimezdaɣen.
+Azerbijan Azerbijan
+
+Azerbijan, d tamurt n wenẓul-utrim (sud-ouest) n Asya, tezga-d deg tama n yedraren n Quqaz. Tesɛa tilisa d Iran, Tturk, Jurjya d Arminya. Tajumma-nnes 86.600 km2 (yikilumitren imkuẓen). Zedɣen-tt 9.165.000 n yimezdaɣen (Aziriyen). Tamaneɣt-nnes d Baku.
+Baku Baku
+
+Baku (azéri: Bakı) d tamaneɣt n tmurt n Azerbijan. Zedɣen-tt 2 n yimelyunen n yimezdaɣen.
+Brunei Brunei
+
+Brunei d tamurt tamecṭuḥt n Asya n Wenẓul Agmuḍan, tezga-d deg tegzirt n Burnewu. Tajumma-nnes 5.765 km2. Zedɣen-tt 401.890 n yimezdaɣen. Tamaneɣt-nnes d Bandar Seri Begawan.
+Bandar Seri Begawan Bandar Seri Begawan
+
+Bandar Seri Begawan d tamaneɣt n tmurt n Brunei. Zedɣen-tt 140.000 n yimezdaɣen.
+Asmara Asmara
+
+Asmara d tamaneɣt n Iritirya. Zedɣen-tt 600.000 n yimezdaɣen.
+Namibya Namibya
+
+Namibya d tamurt n Tefriqt Tanẓulant. Tajumma-nnes 825.418 km2 (ikilumitren imkuẓen). Zedɣen-tt 2.113.077 n yimezdaɣen (2011). Tamaneɣt-nnes d Windhoek.
+Windhoek Windhoek
+
+Windhoek d tamaneɣt n Namibya. Zedɣen-tt 233.529 n yimezdaɣen.
+Maputo Maputo
+
+Maputo d tamaneɣt n Muzambik. Zedɣen-tt 1.244.227 n yimezdaɣen.
+Niqusya Niqusya
+
+Niqusya (s tefrensist: "Nicosie"; s tegrigt: "Lefkosia"), d tamaneɣt n tmurt n Cipr. Zedɣen-tt 313.400 n yimezdaɣen. Tamaneɣt-a tebḍa ɣef sin yeḥricen: win n wenẓul (sud) d tamaneɣt n tmurt n Qubrus, ma d win n ugafa d tamaneɣt n Tegduda Taṭerkit n Qubrus n Ugafa (d tamurt yemsebḍan ed Qubrus, ala Ṭṭurk ay yesteɛrfen yes-s).
+Anggun Anggun
+
+Anggun Cipta Sasmi, tlul ass n 1974 di Jakarta, d tacennayt, d taceṭṭaḥt, d tamarut n tezlatin Indonesia.
+Misipsa Misipsa
+
+Misipsa (? - 118 uq. S.-Ɛ.) neɣ Mekwesen, d mmi-s d usemmezray n Masnsen, yella d agellid n Numidya. Yekkused sɣuṛ akersi n Numidya deg 148 uq. S.-Ɛ. dɣa yeḥkem deg qrib kraḍt n tmerwin n iseggwasen.
+
+Misipsa d baba-s n Hiempsal I d Aḍerbal. Yerna, yeṛbad Yugerten (mmi-s n gma-s Mastanabal) wagi daɣen ad d-yuɣal, di nnuba-s, agellid n Numidya.
+Cirra Cirra
+
+Cirra d aẓru yesɛan timeẓri n tifarkitin dɣa yetwegzem s tafilin tirqaqin neɣ « tifarkitin n uẓru ». Yezmer ad yili d-aẓru n talaɣt, neɣ yezmer ad yilli d-aẓru yetbeddelen timeẓri-s ddaw aẓɣal neɣ adad.
+
+Deg timiḍi wis 15 di tmurt n Ṭṭalyan, Cirra n talaɣt, yetsseqdec am ufanim yetaken ajeṛṛiḍ s ini yetṛuḥun seg aberkan ar udemdam i ussuneɣ n ilsanen.Austin Austin
+
+Austin d tamdint deg tmurt n Yiwunak Yedduklen, d tamanaɣt n uwanek n Texas tezga-d rrif n wasif n Colorado, diɣ ssawalen-as Silicon Hills ,zedɣen-tt 790 390 n imezdaɣen.
+Agni n Yesɛed Agni n Yesɛed
+
+Agni n Yesɛed (FR:Agouni Issad) d taddart deg tɣiwant n At Yeḥya. 
+At Aḥmed At Aḥmed
+
+At Aḥmed (FR:Aït Ahmed) d taddart deg tɣiwant n At Yeḥya. 
+At Ɛenṭar At Ɛenṭar
+
+At Ɛenṭar (FR:Aït Anteur) d taddart deg tɣiwant n At Yeḥya.
+At Buteččur At Buteččur
+
+At Buteččur (FR:Aït Bouchtchour) d taddart deg tɣiwant n At Yeḥya.
+At Bufares At Bufares
+
+At Bufares (FR:Aït Boufarès) d taddart deg tɣiwant n At Yeḥya.
+At Crif At Crif
+
+At Crif (FR:Aït Cherif) d taddart deg tɣiwant n At Yeḥya.
+At Jbara At Jbara
+
+At Jbara (FR:Aït Djebara) d taddart deg tɣiwant n At Yeḥya.
+At Lḥaǧ At Lḥaǧ
+
+At Lḥaǧ (FR:Aït El Hadj) d taddart deg tɣiwant n At Yeḥya. 
+At Ḥamaduc At Ḥamaduc
+
+At Ḥamaduc (FR:Aït Hamadouche) d taddart deg tɣiwant n At-Yeḥya. 
+At Hala At Hala
+
+At Hala (FR:Aït Hela) d taddart deg tɣiwant n At Yeḥya.
+At Hicem At Hicem
+
+At Hicem (FR:Ait Hichem) d taddart deg tɣiwant n At Yeḥya. 
+At Mlal At Mlal
+
+At Mlal (FR:Aït Mellal) d taddart deg tɣiwant n At Yeḥya. 
+At Mendil At Mendil
+
+At Mendil (FR:Aït Mendil) d taddart deg tɣiwant n At Yeḥya.
+At Si Ɛmaṛa At Si Ɛmaṛa
+
+At Si Ɛmaṛa (FR:Aït Si Amara) d taddart deg tɣiwant n At Yeḥya.
+At Ziri At Ziri
+
+At Ziri (FR:Aït Ziri) d taddart deg tɣiwant n At Yeḥya. 
+Iḥemmacen Iḥemmacen
+
+Iḥemmacen (FR:Ihamachène) d taddart deg tɣiwant n At Yeḥya.
+Iṣendlen Iṣendlen
+
+Iṣendlen (FR:Issendlene) d taddart deg tɣiwant n At Yeḥya. 
+Tafrawt Tafrawt
+
+Tafrawt (FR:Tafraout) d taddart deg tɣiwant n At-Yeḥya
+Takemmart n twaffra Takemmart n twaffra
+
+"'Takemmart n twaffra" (s tṛumit : fromage de garde) d agisi i zemren ad tmɣur aṭas iseggwasen deg uderbuz ugar a teqqim, ugar ad tuɣal d-tamellayt. D takemmart yetwaxeddmen s urekti yetttwaderen.
+Taxliǧt Taxliǧt
+
+Taxliǧt (FR:Takhelidjt) d taddart deg Tɣiwant n At Bu Yusef.
+Taẓṛutt Taẓṛutt
+
+Taẓṛutt (FR:Tazerouts) d taddart deg Tɣiwant n At Bu Yusef.
+At Ɛdella At Ɛdella
+
+At Ɛdella (FR:Aït Adella) d taddart deg tɣiwant n At Bu Yusef. 
+Tifeṛḍud Tifeṛḍud
+
+Tifeṛḍud (S Tefransist:Tiferdoud) d yiwet n taddart id yezgan di tɣiwant n At Bu Yusef di twilayt n Tizi Wezzu di Tamurt Taqbaylit.
+
+Ttezga-d taddart n tiferdud deg ubrid aɣennaw uṭṭun wis 15 ,tebɛed ɣef tiɣremt n micli azal n 3k ,zzit-as d tuddar :
+seg ugafa igures d wat mlal 
+seg ugmuḍ tazrutt akked wahḍuc
+seg unẓul taxliǧt d wat ṣellan
+seg umalu tawrirt ɛemran 
+
+Tettwaɛeq taddat ɣef yilel s (1097m) , d nettat i taddart tunnigt merra di Tmurt n Leqbayel , d tis snat di tmurt n Dzayer deffir taddart n Ǧaɛfṛa (1460m).
+Tesɛa taddart azal n 1515 imezdaɣ deg usemḍen aneggaru, tugett d wid yeffɣen ɣer lɣerba, llan 930 iɣriben yetttidiren di tmurt n Fransa ideg sɛan tiddukla s yisem « association Tiferdoud ».
+Taddart ɣur-es yiwen uɣeṛbaz amenzu , azebriz ilmezyen ,tazeqqa tmeɣra ,tamkarḍit akked tamezgida. Tettufern-d taddart tazdgant tamezwarut di twilayt n Tizi Wezzu deg useggas n 2017 diɣen at temmager tafaska n "Raconte Art" i ussegas n 2018.
+Werja Werja
+
+Werja (FR:Ouerdja) d taddart deg tɣiwant n At Bu Yusef.
+Tizi Umalu Tizi Umalu
+
+Tizi Umalu (FR:Tizi Oumalou) d taddart deg tɣiwant n At Bu Yusef. 
+Icelliben Icelliben
+
+Icelliben (FR:Icheliven) d taddart deg Taɣiwant n At Bu Yusef.
+Tabuḥsent Tabuḥsent
+
+Tabuḥsent (FR:Tabouhcent) d taddart deg Taɣiwant n At Bu Yusef.
+Michael Ballack Michael Ballack
+
+Michael Ballack (ilul ass 26 Cuṭember 1976 deg Görlitz, Lalman) d amarir agreɣlan alalmani n tkurt n uḍar, yurar di teɣlamin:
+
+Torsten Frings Torsten Frings
+
+Torsten Frings (ilul ass 22 Wamber 1976 deg Würselen, Lalman) d amarir agreɣlan alalmani n tkurt n uḍar, yurar di teɣlamin n (Alemania 1994-1997), (Werder Bremen 1997-2002), (Borussia Dortmund 2002-2004), (Bayern Munich 2002-2005), (Werder Bremen 2005-2011),(Toronto FC 2011-2013). 
+Tala Ifassen Tala Ifassen
+
+Tala Ifassen d yiwet taɣiwant n twilayt n Sṭif i d-yezgan di Tmurt Leqbayel. 
+
+Ajjiwen Ajjiwen
+
+Ajjiwen d taddart n Tmurt Leqbayel deg tɣiwant n Draɛ Lqayed deg twilayt n Bgayet. Ɣer-s tamudi azal n 3,000 imezdaɣ. 
+
+Ajjiwen llan deg wegmuḍ n twilayt n Bgayet, teggug ɣer 35 km seg weɣrem. 
+
+Llan deg wammas n taddart i wumi qqaren Lqenṭra neɣ Tiqenṭert zdat tinezduɣin i wumi qqaren-as ass-agi "La Cité" seg iseggwasen 1970. 
+Diɣenni, llan daɣen iderman niḍen am Tala n Meryem, Lmizab, Igudam, At Ɛebbas, Iɛyyaḍen d Tikerbes. 
+At Fuda At Fuda
+
+At Fuda d yiwet taɣiwant di twilayt n Sṭif, di Tmurt Leqbayel, zedɣen-tt azal n 17,667 imezdaɣ deg useggas n 2008. 
+
+Ṣaḥariǧ Ṣaḥariǧ
+
+Ṣaḥariǧ neɣ lemṣara (s tefransist : Saharidj, s taɛrabt : صحاريج), d yiwet n tɣiwant n tmurt n Leqbayel i d-yezgan deg twilayt n Tubiret. Tezga-d ar ugmuḍ n Tubiret s 50.3 Km, 73.1 Km seg unẓul n Tizi Wezzu, 104 Km seg umalu n Bgayet akked 153 Km seg Lezzayer Tamanaɣt , tlul-d deg unegzum adeblan n 1984. 
+
+Taɣiwant n Ṣaḥariǧ tettwassen s yimjahden-is i yewwten uzzal ɣef uzarug n Lezzayer, tettwassen daɣen s uzbu-ines mgal taṛemɣa taneslamt (terrorisme islamique) deg umrawsegwas aberkan n 1990 ar 2000, d ayen i t-yeǧǧan tella seg tɣiwanin timezwura i yessutren imrigen (Armes) i udabu akken ad ḥudden taɣiwant-nsen seg yiṛemmaɣen.
+
+=Tarakalt =
+
+Ṣaḥariǧ tezga-d deg yirebbi n wedrar n Ǧerǧer, anda tella tqacuct tunnigt Yemma Xliǧa (Tamguṭ) (2308 m), imezdaɣ n Ṣaḥariǧ qqaren-as Tamguṭ kan.
+Tagnawt deg tɣiwant-agi d tin yeḥman deg unebdu, d tasemmaḍt s waṭas n ugeffur deg tegrest.
+
+=Amesni (Transport)=
+Taɣiwant n Ṣaḥariǧ yezger seg-s ubrid aɣelnaw U°30 i yeqnen Imceddalen ɣer Tizi Wezzu akked ubrid amecṭuḥ U°9 i yeqnen Ṣaḥariǧ ɣer taddart n Sellum deg taɣiwant n Aɣbalu.
+
+=Amezruy=
+Ixef-agi d ilem ...
+
+=Tadamsa=
+Ixef-agi d ilem ...
+
+=Tamerrit (Tourisme)=
+Taɣiwant n Ṣaḥariǧ tezga-d deg yirebbi n wedrar n Ǧerǧer, dacu i tt-yeǧǧan tesɛa aṭas n yimuḍaq n tmerrit. Gar-asen nezmer ad nadder :
+
+Deg yiseggasen-agi ineggura, ama d tagrest neɣ d anebdu, aṭas n yemdanen d twaculin i d-yettasen seg yal tama ɣer tɣiwant n Ṣaḥariǧ akken ad zṛen imuḍaq-agi n tmerrit, ladɣa widak iḥemlen tawennaṭ d tulin n yidurar.
+
+=Muqel daɣen=
+
+= Tizmilin d temselɣa =
+At Menṣur At Menṣur
+
+At Menṣur (zikenni ɣɣaren-as daɣen "Tawrirt") d yiwet taɣiwant n Tmurt Leqbayel deg twilayt n Tubiret. Tezga-d ar 46 km seg weɣrem n Tubiret ed 101 km seg weɣrem n Bgayet. 
+
+At Menṣur d taɣiwant icudden ɣer tɣiwant n Ccerfa, Imceddalen, Aḥnif d Raffur (Iwaquṛen). Ur teggug ara daɣen seg tiɣwanin tiqbayliyin n Burǧ Bu Aɛririǧ d twilayt n Bgayet.
+
+Llan 4 tuddar deg At Menṣur : 
+
+
+Ager (tafellaḥt) igerrez deg wakal n At Menṣur. Llan daɣen aṭas n azara (minérais) i seqdacen. 
+At Sidi Sɛid At Sidi Sɛid
+
+At Sidi Sɛid (FR:Aït Sidi Saïd) d taddart deg Asqif n Ṭmana.
+Waɣzen (taddart) Waɣzen (taddart)
+
+Waɣzen (FR:Ouarzen) d taddart deg Asqif n Ṭmana.
+Tamejjuṭ Tamejjuṭ
+
+Tamejjuṭ (FR:Tamedjout) d taddart deg Asqif n Ṭmana.
+Waytslid Waytslid
+
+Waytslid (FR:Outslid) d taddart deg Asqif n Ṭmana.
+Tawrirt At Mengellat Tawrirt At Mengellat
+
+Tawrirt At Mengellat (FR:Taourirt Menguellet) d taddart deg Asqif n Ṭmana.
+At Ɛilem At Ɛilem
+
+At Ɛilem (FR:Aït Ailem) d taddart deg Asqif n Ṭmana. 
+Tililit Tililit
+
+Tililit (FR:Tililit) d taddart deg Asqif n Ṭmana.
+Iɣil n Wegni Iɣil n Wegni
+
+Iɣil n Wegni (FR:Ighil Bougueni) d taddart deg Asqif n Ṭmana.
+Tasga Mellul Tasga Mellul
+
+Tasga Mellul (FR:Tasga Melloul) d taddart deg Asqif n Ṭmana.
+Lqern (Aṣqif n Ṭmana) Lqern (Aṣqif n Ṭmana)
+
+Lqern (FR:El Korne) d taddart deg Asqif n Ṭmana.
+Taskenfut Taskenfut
+
+Taskenfut (FR:Taskenfout) d taddart deg Aṣqif n Ṭmana. 
+Aẓru Uqellal Aẓru Uqellal
+
+Azru Uqellal (FR:Azrou Kollal) d taddart deg Asqif n Ṭmana.
+Ixef Usammar Ixef Usammar
+
+Ixef Usammar (FR:Ikhef Oussamer) d taddart deg Asqif n Ṭmana.
+Tagensa Tagensa
+
+Tagensa (FR:Tagounsa) d taddart deg Asqif n Ṭmana.
+Budafal Budafal
+
+Budafal (FR:Boudafal) d taddart deg Asqif n Ṭmana.
+Tawrirt Ɛemran Tawrirt Ɛemran
+
+Tawrirt Ɛemran (FR:Taourirt Amrane) d taddart deg Asqif n Ṭmana.
+Agni n Teslent Agni n Teslent
+
+Agni n Teslent (FR:Agouni N'Teslent) d taddart deg Asqif n Ṭmana.
+At Sidi Ḥmed At Sidi Ḥmed
+
+At Sidi Ḥmed (FR:Aït Sidi Ahmed) d taddart deg Asqif n Ṭmana.
+Ṣumal Ṣumal
+
+Ṣumal d tamurt n Tefriqt Tagmuḍant. Tajumma-nnes 637.657 km2 (ikilumitren imkuẓen). Zedɣen-tt 9.359.000 n yimezdaɣen. Tamaneɣt-nnes d Mugadiccu.
+Yennayer 2014 Yennayer 2014
+
+
+Numidya Numidya
+
+Numidya (202 uqbel Ɛisa. – 46 uqbel Ɛisa.) tella, deg tazwara, d tagelda tamaziɣt yezgan deg ugafa n Lezzayer tamirant dɣa tettṛuḥu armi d tsiga n umalu n Tmurt n Tunes tamirant d ugmuḍ n Tmurt n Umerruk tamirant armi d Asif n Melwit. 
+
+Numidya tella tamaneɣt-is d Sirṭa (Qsenṭina tamirant, anda id ufan aẓekka n Masnsen). 
+
+Numidya taṛumanit tella tezga ɣef iri agafa n Lezzayer d umalu n Tmurt n Tunes tamirant, s talast ar tamnaḍt taṛumanit n Muriṭanya (Lezzayer d Merruk deg ussan nneɣ) ar umalu, tamnaḍt taṛumanit n Tafriqt (agmuḍ n Tunes d Tatripulitant tamirant) ar ugmuḍ, Ilel Agrakal ɣer ugafa, d Uneẓruf ɣer unẓul. Imezdaɣen-is d Inumidyanen.
+
+Numidya tella tesɛa aṭas igelliden, wid imulanen ugar wiy wiyaḍ nniḍen d Gaya, Masnsen, Misibsa, Yugurten, Yuba I, Yuba II d Ptulimi. Imaziɣen urkiden nneɣ azin-imsukal, Inumidiyen ferqen s leɛṛac imeẓliyen. Leɛṛac n uḥric agmuḍan n Numidya sɛan isem n Masyles (seg "Mis" d "Iles", "Iles" d isem n deffir-jeddi-s n Masnsen) d wid n uḥric utrim win (isem) n Masaesyles.
+Urugway Urugway
+
+Tagduda Tutrimt n Urugway d awanak n Temrikt n Wenẓul (Taspenyulit: "República Oriental del Uruguay") af yiri Ugaraw Aṭlasi deg wegmuḍ ed Terjentint ar wenẓul n Rio de la Plata. Zedeɣen-tt azal n 3.3 n yimelyan n imezdaɣen. Tamanaɣt-is d Montevideo
+Tamdikt Tamdikt
+
+Tamdikt (Asget: Timdkin) neɣ Taseklut (AsgetTisekla) d imɣi yettusisemlen d anasɣaṛ deg tsurtit acku addud-is yezga ddaw n 6 m deg wakud dgi addud n usekli d win yugaren 10 m
+
+
+
+
+
+Zzit n uzemmur Zzit n uzemmur
+
+Zzit n uzemmur (isem-is s tmaziɣt tafuṣḥit: "Tayla n uzemmur") d afares n weẓmay n taqqayin n uzemmur id tettak tzemmurt, afares n uzemmur yettili-d aladɣa di tmura yejban i yil agrakal
+
+Tayla n uzemmur ttwasxdem deg waṭas n tɣula am usewwi, tasnajya d usiɣi n isfuyla neɣ timsezɣal
+
+
+Wlad Ɛṭeya Wlad Ɛṭeya
+
+Wlad Ɛṭeya neɣ At Weɛṭeya d taɣiwant n twilayt n Tasikda. Ɣur-es deg useggwas n 2008 azal n 10.851 imezdaɣ.
+Bucṭaṭa Bucṭaṭa
+
+Bucṭaṭa d taɣiwant n twilayt n Taskida, ɣur-s deg useggas n 2008 azal n 9.219 imezdaɣ.
+Jendel Jendel
+
+Jendel (s tefrensist: "Djendel"), d taɣiwant n twilayt n Ɛin Ddefla, zedɣen-tt 26.849 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Lavigerie".
+Abalessa Abalessa
+
+Abalessa d taɣiwant n twilayt n Tmenɣest. Zedɣen-tt 6.484 n yimezdaɣen. Deg tɣiwant-a ay d-yezga uẓekka n Tin Hinan.
+Anwar Benmalek Anwar Benmalek
+
+Anwar Benmalek (ilul deg 16 Yennayer 1956 deg Tgemmi Tamellalt - Merruk), d amaru adzayri yettarun s tefrensist. Benmalek yeɣra tusnakt yerna iqeddec d aselmad deg Tesdawit n Tensafart (Pharmacie) n Paris XI (Fransa). Yura-d aṭas n wungalen, gar-asen Ô Maria (A Meryem, deg 2006) ed Le Rapt (Axḍaf, deg 2009).
+Tibibelt Tibibelt
+
+Tibibelt (s tefrensist: "La Bible"), d adlis imqeddes n Yimasiḥiyen. Adlis-a yella deg-s weḥric umi ɣɣaren Lɛahed Aqbur (d win ay d-iḥekkun amek ay d-yexleq Rebbi amaḍal akked umezruy n Wudayen), akked Lɛahed Amaynut (d win ay d-iḥekkun tameddurt n Ɛisa).
+Lexḍareyya Lexḍareyya
+
+Lexḍareyya (s tefrensist: "Lakhdaria"), d taɣiwant n twilayt n Tubiret, zedɣen-tt 52.723 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Palestro".
+
+Tala Tagurayt Tala Tagurayt
+
+Ɛin Tagurayt (s tefrensist: "Ain Tagourait"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Tipaza. Zedɣen-tt 9.075 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Bérard".
+
+At Leqṣer At Leqṣer
+
+At Leqṣer (s tefrensist: "Ahl El Ksar"), d taɣiwant n Tubiret, zedɣen-tt 12.315 n yimezdaɣen.
+
+Lɛebbadeyya Lɛebbadeyya
+
+Lɛebbadeyya (s tefrensist: "El Abadia"), d taɣiwant n Ldzayer, tezga-d deg twilayt n Ɛin n Ddefla. Zedɣen-tt 33.221 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ttinin-as Carnot.
+Ziralda Ziralda
+
+Ziralda (isem aneṣli: "Zradla"; s tefrensist: "Zéralda"), d taɣiwant n utaram (lɣerb) n twilayt n Ldzayer, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 33.047 n yimezdaɣen.
+Wad Nnja Wad Nnja
+
+Wad Nnja d taɣiwant n twilayt n Mila, zedɣen-tt 16.802 n yimezdaɣen.
+Ɛrib Ɛrib
+
+Ɛrib (s tefrensist: "Arib"), d taɣiwant n Ɛin Ddefla, zedɣen-tt 20.782 n yimezdaɣen.
+Ɛin Ttin Ɛin Ttin
+
+Ɛin Ttin (s tefrensist: "Ain Tine"), d taɣiwant n twilayt n Mila, zedɣen-tt 6.653 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ttinin-as "Belfort".
+Remḍan Ǧamal Remḍan Ǧamal
+
+Remḍan Ǧamal d taɣiwant n twilayt n Teskida, zedɣen-tt 23.482 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Saint-Charles".
+Ɛin Lecyax Ɛin Lecyax
+
+Ɛin Lecyax (s tmaziɣt: Tala Imɣaren, isem amaziɣ aneṣli n zik : Talbant), d taɣiwant n Ɛin Ddefla. Zedɣen-tt 4.677 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Vesoul Benian".
+Ɛin Lbeyya Ɛin Lbeyya
+
+Ɛin Lbeyya (s tefrensist: "Ain Biya"), d taɣiwant n Wehran, zedɣen-tt 26.253 n yimezdaɣen.
+Ǧbabra Ǧbabra
+
+Ǧbabra d taɣiwant n tewilayt n Leblida, deg useggwas n 2008 ɣur-es azal n 3.403 imezdaɣ deg tdayra n Meftaḥ. 
+
+Ǧbabra tezga-d af tama agafay-agmuḍan si weɣrem n Blida gar Mettijet ed yidurar n Weṭlas Ablidi, teggug ar 48 km si Dzayer tamanɣt ed 50 km si Leblida. Tḥudd-it tewilayt n Bumerdas. 
+Bwinan Bwinan
+
+Bwinan d yiwet tɣiwant n twilayt n Leblida deg uzaɣar n Mettijet. Teggug ar 16 km si weɣrem n Blida ed 34 km ar wenẓul si Dzayer Tamanaɣt. Deg useggwas n 2008, ɣur-es azal n 31.070 imezdaɣ.
+Buda Buda
+
+Buda d yiwet tɣiwant n twilayt n Wedrar, deg useggwas n 2008 ɣur-es azal n 9.938 imezdaɣ. 
+Erevan Erevan
+
+Erevan (arménien: Երևան, azéri: İrəvan, tarusit: Ереван), d tamaneɣt n tmurt n Arminya. Zedɣen-tt 1.111.000 n yimezdaɣen.
+Kopenhagen Kopenhagen
+
+Kopenhagen, d tamaneɣt n Danmark yerna d nettat ay d tamdint tameqrant akk n tmurt-a. 
+
+Kopenhagen tezga-d deg wegmuḍ (ccerq) n Danmark. Zedɣen-tt 464.566 n yimezdaɣen. Tesɛa asagen (lmerṣa) ameqran n tnezzut (ttjaṛa), tamguri (industrie) akked ṣṣyada n yiselman.
+Sarajevo Sarajevo
+
+Sarajevo d tamaneɣt n Busnya ed Hirzigubina, tezga-d deg tlemmast n tmurt. 
+
+Zedɣen-tt 310.605 n yimezdaɣen (436.572 s yegmamen ay d-yezzin fell-as). D Iṭerkiyen Iɛetmanen ay d-yesbedden Sarajevo deg tamida tis 15. Deg 1984, Uraren Ulimpiyen n Tegrest llant deg Sarajevo. 
+
+Tamdint-a tenḍerr aṭas seg wemgaru-nni (ṭṭrad) ay inekren deg Busnya ed Hirziguvina gar 1992 ed 1995, yerna aṭas seg lbenyanat-nnes ay ihudden imir-nni, maca ass-a, ttɛawaden bennun-tt.
+Kalifurnya Kalifurnya
+
+Kalifurnya d yiwen seg Yiwunak Yeddukklen, yezga-d deg utaram (lɣerb) n tmurt, ɣef Ugaraw Amelw. Tajumma-nnes 423.970 km2 (yikilumitren imkuẓen). Zedɣen-t 37.253.956 n yimezdaɣen. Tamaneɣt-nnes d Sacramento.
+Minnesota Minnesota
+
+Minnesota d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa (nord) n tmurt, ɣef tlisa n Kanada. Tajumma-nnes 225.181 km2 (yikilumitren imkuẓen). Zedɣen-t 5.303.925 n yimezdaɣen. Tamaneɣt-nnes d Saint Paul.
+Oklahoma Oklahoma
+
+Oklahoma d yiwen seg Yiwunak Yeddukklen, yezga-d deg tlemmast n tmurt. Tajumma-nnes 181.195 km2 (yikilumitren imkuẓen). Zedɣen-t 3.751.351 n yimezdaɣen. Tamaneɣt-nnes d Oklahoma City.
+Oregon Oregon
+
+Oregon d yiwen seg Yiwunak Yeddukklen. Tajumma-nnes 255.026 km2. Zedɣen-t 2.241.841 n yimezdaɣen. Tamaneɣt-nnes d Salem.
+Maryland Maryland
+
+Maryland d yiwen seg Yiwunak Yeddukklen. Yezga-d deg ugafa-agmuḍan (nord-est) n tmurt. Tajumma-nnes 32.133 km2 (yikilumitren imkuẓen). Zedɣen-t 5.773.552 n yimezdaɣen (deg 2010). Tamaneɣt-nnes d Annapolis.
+Tennessee Tennessee
+
+Tennessee d yiwen seg Yiwunak Yeddukklen, yezga-d deg tlemmast tagmuḍant (centre-est) n tmurt. Tajumma-nnes 109.247 km2 (yikilumitren imkuẓen). Zedɣen-t 6.214.888 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Nashville.
+Kansas Kansas
+
+Kansas d awanak n tlemmast n Yiwunak Yeddukklen. Tajumma-nnes 213.096 km² (yikilumitren imkuẓen). Zedɣen-t 2.853.116 n yimezdaɣen. Tamaneɣt-nnes d Topeka.
+Mississippi Mississippi
+
+Mississippi d awanak n wenẓul-agmuḍan (sud-est) n Yiwunak Yeddukklen, yezga-d ɣef yiri n Ubagu n Miksik. Tajumma-nnes 125.443 km2 (yikilumitren imkuẓen). Zedɣen-t 2.938.618 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Jackson.
+Arizona Arizona
+
+Arizona d yiwen seg Yiwunak Yeddukklen, yezga-d deg wenẓul-utrim (sud-ouest) n tmurt. Tajumma-nnes 295.254 km2 (yikilumitren imkuẓen). Zedɣen-t 6.392.017 yimezdaɣen. Tamaneɣt-nnes d Phoenix.
+Ohio Ohio
+
+Ohio d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa (nord) n tmurt, ɣef yiri n Yigelmimen Imeqranen. Tajumma-nnes 116.096 km2 (yikilumitren imkuẓen). Zedɣen-t 11.536.504 n yimezdaɣen. Tamaneɣt-nnes d Columbus.
+Virginia Virginia
+
+Virginia d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 110.785 km2 (yikilumitren imkuẓen). Zedɣen-t 8.001.024 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Richmond.
+Maine Maine
+
+Maine d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa-agmuḍan (nord-est) n tmurt, ɣef yiri n Ugaraw Aṭlasi. Tajumma-nnes 91.646 km2 (yikilumitren imkuẓen). Zedɣen-t 1.328.361 n yimezdaɣen. Tamaneɣt-nnes d Augusta.
+Pennsylvania Pennsylvania
+
+Pennsylvania d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa-agmuḍan (nord-est) n tmurt. Tajumma-nnes 119.283 km2 (yikilumitren imkuẓen). Zedɣen-t 12.702.379 n yimezdaɣen (2010). Tamaneɣt-nnes d Harrisburg.
+Wisconsin Wisconsin
+
+Wisconsin d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa (nord) n tmurt, ɣef yiri n Yigelmimen Imeqranen (ɣef tlisa akked Kanada). Tajumma-nnes 169.639 km2 (yikilumitren imkuẓen). Zedɣen-t 5.686.986 n yimezdaɣen. Tamaneɣt-nnes d Madison.
+Illinois Illinois
+
+Illinois (yettwanṭaq s tanglizt: [ilinoys]), d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa (nord) n tmurt, ɣef yiri n ugelmim n Michigan. Tajumma-nnes 149.949 km2 (yikilumitren imkuẓen). Zedɣen-t 12.830.632 n yimezdaɣen. Tamaneɣt-nnes d Springfield, ma d tamdint-nnes tameqrant d Chicago.
+Chicago Chicago
+
+Chicago d tamdint tameqrant n Yiwunak Yeddukklen, tezga-d deg ugafa n tmurt, deg uwanak n Illinois. Zedɣen-tt 9.785.747 n yimezdaɣen.
+Michigan Michigan
+
+Michigan d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa n tmurt, ɣef yiri n Yigelmimen Imeqranen. Tajumma-nnes 253.793 km2 (yikilumitren imkuẓen). Zedɣen-t 9.883.640 n yimezdaɣen. Tamaneɣt-nnes d Lansing.
+Hawaii Hawaii
+
+Tigzirin n Hawaii d yiwen seg Yiwunak Yeddukklen. Tigzirin-a zgant-d deg tlemmast n Ugaraw Amelwi (Pacifique). Tajumma-nsent 28.311 km2 (yikilumitren imkuẓen). Zedɣen-tent 1.360.301 n yimezdaɣen. Tamaneɣt-nsent d Honolulu.
+Washington (Awanak) Washington (Awanak)
+
+Washington d awanak n ugafa-utrim n Yiwunak Yeddukklen. Tajumma-nnes 71.300 km2 (ikilumitren imkuẓen). Zedɣen-t 6.830.038 n yimezdaɣen. Tamaneɣt-nnes d Olympia.
+Barbados Barbados
+
+Barbados d tigzirt yerna d tamurt ay d-yezgan deg Tegzirin n Antillen (deg Temrikt). Tajumma-nnes 431 km2 (yikilumitren imkuẓen). Zedɣen-tt 284.589 n yimezdaɣen. Tamaneɣt-nnes d Bridgetown.
+Kabul Kabul
+
+Kabul d tamaneɣt n Afɣanistan, tezga-d deg ugafa-agmuḍan (nord-est) n tmurt. Zedɣen-tt 2.850.000 n yimezdaɣen. Deg useggas n 1774 ay teqqel temdint-a d tamaneɣt n tmurt. Ass-a, Kabul d nettat ay d ammas n tdamsa, n tnezzut (ttjaṛa) akked yedles n Afɣanistan, yerna ɛlayet 1800 n lmitrat. Aṭas n yimenɣiyen ed yemgura (ṭṭradat) ay yekkan ɣef Kabul deg lqern wis 19 ed wis 20. Deg yiseggasen n 1980, asmi ay tt-ṭṭfen Yisuvyatiyen, akked yiseggasen n 1990, asmi ay yenker wemgaru gar Wafɣanen, aṭas n yimukan ay ihudden seg temdint-a.
+New York (Awanak) New York (Awanak)
+
+New York d yiwen seg Yiwunak Yeddukklen (tella daɣen temdint n New York ay d-yezgan deg-s). Awanak n New York yezga-d deg ugafa-agmuḍan (nord-est) n tmurt. Tajumma-nnes 128.403 km2 (yikilumitren imkuẓen). Zedɣen-t 19.378.102 n yimezdaɣen (deg 2010). Tamaneɣt-nnes d Albany.
+Ḥemmam Melwan Ḥemmam Melwan
+
+Ḥammam Melwan d yiwet taɣiwant n twilayt n Leblida deg yidurar n Waṭlas Ablidi deg tdayra n Bugerra, tezga-d 30 km ar wegmuḍ af Leblida ed 40 km si Dzayer Tamanaɣt. Deg useggwas n 2008, ɣur-es azal n 6076 imezdaɣ. 
+Meɣneyya Meɣneyya
+
+Meɣneyya d yiwet taɣiwant n twilayt n Tlemsan f tilisa akwd Merruk. Ɣur-es azal n 114.634 imezdaɣ deg useggwas n 2008. 
+
+Meɣneyya tezga-d deg tama agafay-utrim (nord-ouest) n twilayt n Tlemsan. Teggug azal n 580 km si Dzayer Tamanaɣt, 137 km si Wehran ed 30 km af wenẓul si Ɣazawat ed 20 km af wegmuḍ si weɣrem n Wejdet. 
+Tagwaranit Tagwaranit
+
+Tagwaranit d tutlayt i sawalen di kuẓ n tmura timarikaniyin am Paraguay, Tarjentint, Bulibya, Brazil, daɣ d tutlayt tunṣibt n yiwen n uwanak n Temrikt n unẓul.
+D tutlayt n takat Tatupit-tagwaranit, ilan ddeqs n tantaliwin maca llant tegziwin gar-asent. 
+Amḍan uɣrid : ad ilin azal n 5.114.000. n yemsawalen.
+
+Tagwaranit d tutlayt tunṣibt di tmurt n Paragway, ɣer tama n Tespenyult seg useggas n 1992. Seg waggur n nwamber 2006 tuɣal d tutlayt tunṣibt n Merkusur, ɣer tama n tespenyult d Tpurtugit.
+Di tmurt n Bulibya ur telli tutlayt tunṣibt, maca Taspenyult tufrar (d tutlayt n tedbelt, n wannan d wallalen n usiweḍ).
+Di tmurt n Brazil tutlayt tunṣibt d Tapurtugit. Yella yiwen n usaḍuf ɣef tutlayin tiḍnin yerzan annan d uɣerbaz amenzu d amsinwal d agerdelsan (ger iderma yellan d iserwan n tmurt), di tilawt drus n iselmaden i yellan d imsinwalen yerna ffɣen-d deg iɣerbazen.
+Di tmurt n Terjentint ur telli tutlayt tunṣibt, maca tutlayt Taspenyult tufrar-d ger tiyaḍ (d tutlayt n tedbelt d wannan d wallalen n usiweḍ). Seg useggas 1993 tamurt-a tesuddes-d ahil n wannan d amsinwal (s snat n tutlayin) i yegduden iserwan n tmurt, maca iswi n wahil-a ur yelli d tasmelt n tutlayt tasrewt n tmurt, iswi ines d asidef n yegduden di tmetti (neɣ deg idles aɣelnaw) s ugmey d useɣri s tutlayt n tyemmat.
+
+Font
+MELIÀ, B. (1992) La lengua guaraní del Paraguay. Historia, sociedad y literatura, Mapfre, Madrid.
+MELIÀ, B. (2002) «Usos y normas en el guaraní paraguayo», Congreso Mundial sobre Políticas Lingüísticas, Institut Linguapax, Barcelona, 16-20 ḍabril de 2002. Pàgina web de Linguapax.
+SILVA, R. i ZARRATEA, T. (2006) Intervenció al «IV Fòrum de les Llengües Ameríndies. Llengües ḍAmèrica: ús i normalització», Casa Amèrica, Barcelona, 23-24 de novembre de 2006.
+
+Di taggayt n tantaliwin n Tegwaranit llant :
+
+
+
+
+
+
+
+
+Deg useggas n 1992, Tagduda n Paragway tessers tutlayt Tagwaranit d tutlayt tunṣibt n Uwanak ɣer tama n Tespenyult di tmendawt, amagrad 140. Anagar tutlayt-a ger tutlayin tihendiyin-timarikaniyin i ilan aẓayer unṣib. Ɣas akken tutlayt Tagwaranit teqqim d tutlayt n ger yemdanen neɣ d tutlayt n ubrid, d ayen i d-ibeggnen tutlayt Taspenyult d tutlayt n usiweḍ d tunṣibt. Tagwaranit ɣur-s azal d adday zdat Tespenyult d tutlayt n tmetti yufraren di yal tamurt n Marikan n unẓul. Paragway d tamurt mm-idelsan d tamsinwalt, maca Taspenyult tufrar-d ɣef tutlayin nniḍen.
+
+Di tmurt n Paragway 88% n yemdanen sawalen Tagwaranit : 39,2% gar-asen sawalen anagar Tagwaranit, 48,9% gar-asen d imsinwalen, sawalen Tagwaranit d Tespenyulit, 6% deg ugdud sawalen anagar Taspenyult. Di tilawt imsawalen n Tegwaranit ad awḍen ɣer 95% yerna udduden ur d-sedduyen deg umḍan imsinwalen yessawalen tutlayt tis snat nnig Tespenyult. Asaka n tutlayt-a d asaka ur nelli di tmura n Marikan s timmad-is.
+Tigti n yemsawalen n tutlayt Tagwaranit di tmurt n Paragway d imellalen neɣ d iɣewwalen (métis). Igduden iserwanen yessawalen tutlayt Tagwaranit n Paragway - ɣef isalan n Udduden ɣef Ugdud d Tmezduɣin n 1992 – tutlayin yellan : Tapayt-tabytera : 8.026, Tambyat : 4.744, taba-katut : 6.918, tagwarayt : 1.254, Tapyitit : 1.827; Tacit : 639.
+Tutlayt Tagwaranit ass-a ttwalin-tt d tutlayt tagmaḍant iwmi fkan imawlan-is ugar n 35 n yismawen : s tespenyulit Yupara (tarwayt), Tripara (Tagwaranit-taspenyulit-tapurtugit), Tagwaranit tamagnut, Tagwaranit n tisreṭ, Tagwaranit n uɣerbaz, Tagwaranit teeti, Tagwaranit ymagwari, gwaranyiti, gwarani-gwarani, nyee indyu, gwaranyul, atg…
+Tella Tegwaranit tamagnut n yal ass i d-yufraren ɣef Tespenyult ama di tmawalt ama di temṣukt maca tella deg-s terwayt n wawalen n snat tutlayin-a. Ɣef ayen i d-yenna Melia, tutlayt Tagwaranit imira tettuɣal d tapijint neɣ d takriyult di tmurt n Paragway.
+Deg useggas n 1994, tekcem tutlayt Tagwaranit s aɣerbaz, maca aselmed di tigwti yeqqim s Tespenyult. Tagwaranit tusa-d d tallalt i ulmad n Tespenyult imi d tutlayt n uselmed n kraḍ iseggasen imezwura deg uɣerbaz amenzu. Taspenyult teqqim d tutlayt n uselmed n tɣuri d tira. Ɣer taggara anagar 55% n inelmaden ssawaḍen ɣer taggara n ulmad amenzu.
+Tutlayt Tagwaranit d tutlayt yellan di rradyu n tmurt n Paragway ddeqs n iseggasen aya akken tella di kra n wahilen n Tilibizyu. Ugar n tmida ur tli Tegwaranit iɣmisen ar almi d yebrir n 2006 i d-yeffeɣ uɣmis amenzu 'Ara' (ad d-iteffeɣ s waggur di tazwara…).
+Iɣlifen n yidles n Merkusur qeblen ass n 23 di nwamber n useggas 2006, asuter n tmurt n Paragway i usidef n tutlayt Tagwaranit d tutlayt tunṣibt ɣer tama n tutlayin Taspenyult d Tpurtugit. 
+Di tmura nniḍen anida sawalen Tagwaranit am tmurt n Arjantina, tamurt n Bulibya, d tmurt n Brazil, tutlayt-a ur tli aẓayer unṣib. Di tmurt n Arjantina tella deg wallalen n usiweḍ : llan wahilen s Tegwaranit di rradyu d tilibizyu.
+Surt Surt
+
+Surt (Taɛrabt : سرت, Surt neɣ Sert) d tamdint di tmurt n Libya af yiri n Yilel Agrakal, deg Ubagu n Surt.
+Mɛemmer Lqeddafi ilul-d deg Surt yerna yemmut deg temnaṭ n Surt. Deg usseggas n 2011 ɣur-es 75.000 imezdaɣ. Tura yeṭṭef-itt tarbaɛt n Uwanak Islami
+Mettijet Mettijet
+
+Mettijet neɣ Mettict (Taɛrabt: متيجة) d yiwen uzaɣar n tmurt Ledzayer, di tama n Dzayer Tamanaɣt. Isseket 100 km s teɣwzi yerna de 5 ar 20 km s tehri.
+
+Deg wegmuḍ tilisa-s llan af wasif Budwaw, deg utaram af Yiɣzer n Nnaḍur deg twilayt n Tipaza. Llan sin yidurar gar uzaɣar n Mettijet : Aṭlas Ablidi ed Ssaḥel n Dzayer. 
+Azaɣar-nni yezga-d af wakalen n twilayin n Tipaza, tin n Dzayer Tamanaɣt ed tin n Bumerdas.
+
+Akalen-is yelhan aṭas i wager (tafellḥt) : medden kerrezen ččina, mandarin, ifeqqusen, talegguẓt (ddellaɛ), atg. 
+Tella kra n temugri deg temdinin n Bufarik ed Leblida maca drus-itent i yimezdaɣen i wakken ad tenger tacumart. 
+Troyes Troyes
+
+Troyes d tamdint n Fransa. D tamaneɣt n agezdu (département) n Aube. Zedɣen-tt n yimezdaɣen.
+Nanterre Nanterre
+
+Nanterre d tamdint n Fransa yerna d tamaneɣt n agezdu n Hauts-de-Seine. Zedɣen-tt n yimezdaɣen.
+Michel Polnareff Michel Polnareff
+
+Michel Polnareff (ilul deg 3 yulyu 1944 deg Nérac) d acennay afrensis yettwassnen s waṭas deg tallit gar n yiseggasen n 1960 alammi d tazwara n temrawt n 1980. Ula ma ass-a tigrawin-is (CD) ur ttnuznun ara am zik, maca mazal-it icennu yerna mazal 
+
+Michel Polnareff yekker-d deg yiwet n twacult n inaẓuren. yemma-s d Simone Lane. tella d tamsiyist (taceḍḍaḥt), ma d baba-s Leib Polnareff (neɣ Léo Poll) yella iqeddec ɣer yidis n tcennayt Edith Piaf. Polnareff yelmed apyanu asmi iy la (yesɛa) semmus (5) n yiseggasen, yerna yella d anelmad iẓewren deg uẓawan. Naqal yebda yekkat agiṭar deg isuka. sin akin yebda-d akala igerrzen deg uẓawan n rock.
+Tahungarit Tahungarit
+
+Tahugarit d tutlayt i yettmeslayen si 12.185.000 ar 14.370.000 n yimdanen deg Hungari, Rumanya, Kruwatya, atg. 
+
+Hungarya (10.000.000); Rumanya (gar 1.000.000 ar 3.000.000); Anẓul n Sluvakya (gar 550.000 ar 700.000); Agafa n Serbya d Muntenegru (431.000); Ataram n Ukrayin (gar160.000 ar 187.000); Agmuḍ n Tutrict (gar 17.000 ar 22.000); Agmuḍ n Kruwatya (19.000); Agafagmuḍ n Sluvenya (10.000).
+
+Adlis amezwaru i yuran s thungarit, iqqimen iddar, itedwal ar lqern 12 neɣ amezwaru n lqern 13. Di lqern 18 s ixf-ines, ibda unhizzi, ḥuma iles asmagnu n id'a ad isseɣser, adeg irekkez di wezgen amezwaru n lqern 19. Di lqern-a, tahungarit traḥ tferreḍ ixef-ines am tutlayt tunṣibt n tmurt.
+
+Asmi tellul Tagelda Tahungarit deg useggwas n 1868, tutlayt-nni tuɣal d tunṣibt i lebda. Seg wakud-a, tanbaṭ tahungarit tebda yiwen n usmajyak n wakk iɣerfan illan s walliɣ n ufus n Hungarya, maca imezdaɣ d islaven d irumanen- ur xisen ara ula d talimantt issnen aṭas d ihungariyen, terẓa tizemmar-a.
+
+Amenkud Ustruhungari deg umgarru amdalan amezwaru, iww-id aweddar n tgeldunt d umzireg n Hungarya i lebda, Hungarya tufa ixef-ines tettwaɣleb, uca teqbel, aseggaws n 1920, taxessart n marra tifuɣalin anda ihungariyen ur cmixen. Manaya issefham maghar, llant aṭas n tgemmumin n ihungariyen di marra iwunak icudden i Hungarya.
+
+Tahungarit tella deg-s 8 n wawalen: utrim, Aghirin-Ddanub, agafataram, anẓulan, agafaugmid´, win n Tisza, n Tetrasilvant d win n Szekely.
+Marcel Proust Marcel Proust
+
+Valentin Louis Georges Eugène Marcel Proust (ilul deg 10 Yulyu 1871 deg Auteuil - yemmut deg 18 Nwember 1922 deg Paris), d aneggal (romancier) afṛensis ay yettwassnen ladɣa s wungal-nnes "A la recherche du temps perdu" (Anadi n wakud iṛuḥen), d win ay d-yeffɣen gar 1913 ed 1927 deg 7 yeḥricen.
+Robert Mugabe Robert Mugabe
+
+Robert Gabriel Mugabe d aselway n Zimbabwe seg 1987-2017. Ilul deg 21 fuṛaṛ 1924 deg ugezdu n Zvimba, deg ugafa-utrim n Harare.
+Zimbabwe Zimbabwe
+
+Zimbabwe d tamurt n Tefriqt Tanẓulant. Tajumma-nnes 390.757 km2. Zedɣen-tt 12.521.000 n yimezdaɣen (Izimbabwiyen). Tamaneɣt-nnes d Harare.
+Aselway-ines d Robert Mugabe seg 1987-2017.
+Harare Harare
+
+Harare d tamaneɣt n Zimbabwe. Zedɣen-tt 1.600.000 n yimezdaɣen.
+Hauts-de-Seine Hauts-de-Seine
+
+Hauts-de-Seine d agezdu (département) n Fransa, yezga-d deg tama n Ile-de-France, deg utaram (lɣerb) n Paris. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen. Tamaneɣt-nnes d Nanterre.
+Laon Laon
+
+Laon d tamdint n Fransa. D tamaneɣt n agezdu (département) n Aisne. Zedɣen-tt n yimezdaɣen.
+Bobigny Bobigny
+
+Bobigny d taɣiwant n Fransa yerna d tamaneɣt n agezdu n Seine-Saint-Denis (deg ugafa [nord] n Paris). Zedɣen-tt n yimezdaɣen.
+Seine-Saint-Denis Seine-Saint-Denis
+
+Seine-Saint-Denis d agezdu n Fransa, yezga-d deg ugafa n temdint n Paris (deg tama n Ile-de-France). Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Bobigny.
+Suresnes Suresnes
+
+Suresnes d taɣiwant tafrensist, tezga-d deg utaram (lɣerb) n Paris, deg agezdu n Hauts-de-Seine. Zedɣen-tt n yimezdaɣen.
+Bouches-du-Rhône Bouches-du-Rhône
+
+Bouches-du-Rhône d agezdu (département) n Fransa, yezga-d deg wenẓul-agmuḍan (sud-est) n tmurt, ɣef yiri n Yilel Agrakal. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Marseille.
+Somme Somme
+
+Somme d agezdu n Fransa, yezga-d deg ugafa n tmurt deg temnaḍt n Picardie. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Ammas-nnes udbil d tamdint n Amiens.
+Morbihan Morbihan
+
+Morbihan d agezdu (département) n ugafa-utrim (nord-ouest) n Fransa (deg temnaḍt n Bretagne). Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Vannes.
+Bretagne Bretagne
+
+Bretagne d tama n ugafa-utrim (nord-ouest) n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen (Ibretoniyen). Tamaneɣt-nnes d Rennes.
+Ille-et-Vilaine Ille-et-Vilaine
+
+Ille-et-Villane d agezdu (département) n ugara-utrim (nord-ouest) n Fransa, yezga-d deg tama n Bretagne. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d tamdint n Rennes.
+Marlene Dietrich Marlene Dietrich
+
+Marlene Dietrich (tlul s yisem n Maria Magdalene Dietrich, deg 27 Dujamber 1901 deg Schöneberg, Lalman - temmut deg 6 Mayyu 1992 deg Paris, Fransa), d tasegbart yerna d tacennayt talmanit. 
+
+Dietrich tebda-d amecwar-nnes deg yiseggasen n 1920, deg Berlin, ama deg umezgun, ama deg ssinima. Deg 1930, turar-d deg usaru n The Blue Angel (Aneglus Aẓerwal) ay d-yesseḍra Josef von Sternberg, yerna d aya ay tt-yerran mechuret deg umaḍal. Aya yeldey-as abrid akken ad testenyi leɛqed akked termist n Paramount Pictures deg Yiwunak Yeddukklen, yerna s waya ay teqqel tetturar-d deg yisura imarikaniyen.
+
+Deg 1932, turar-d deg Shanghai Express, deg 1936, turar-d deg Desire, ay d-yesseḍra Frank Borzage. Sin-a n yisura snernan tamelt (célébrité) n Dietrich yerna sbegnen-d ccbaḥa-nnes deg wurar. D aya ay tt-yejjan ad teqqel d yiwet seg tsegbarin ay yettaɣen aṭas akk n yedrimen deg tallit-nnes. Deg 1939, Dietrich tuwey taɣlent (nationalité) tamarikanit, yerna tkemmel tetturar-d deg yisura deg tallit n Wemgaru Amaḍlan (Guerre Mondiale) Wis Sin. Sdeffir Wemgaru, Dietrich terna kan turar-d deg cwiṭ n yisura, yerna tekka amur ameqran seg yiseggasen n 1950 ed 1970, tetturar-d deg yihanayen (spectales) s lexlaṣ d ameqran.
+Loiret Loiret
+
+Loiret d agezdu n tlemmast n Fransa, yezga-d deg tama n Centre. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Orleans.
+Centre-Val de Loire Centre-Val de Loire
+
+Centre d tama tudbilt n tlemmast n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen. Tamaneɣt-nnes d tamdint n Orléans.
+Orléans Orléans
+
+Orléans d tamdint n tlemmast n Fransa (deg wenẓul [sud] n Paris) yerna d tamaneɣt n agezdu n Loiret akked tama n Centre. Zedɣen-tt n yimezdaɣen ( s yegmamen ay d-yezzin fell-as).
+Poitou-Charentes Poitou-Charentes
+
+Poitou-Charentes d tama n utaram (lɣerb) n Fransa, tezga-d ɣef yiri n Ugaraw Atlantik. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen. Tamaneɣt-nnes d tamdint n Poitiers.
+Ségolène Royal Ségolène Royal
+
+Marie-Ségolène Royal (tlul deg 22 ctamber 1953 deg Dakar, Senegal), d tameṭṭut n tsertit tafreisist. 
+
+D nettat ay d taselwayt n Useqqamu n Tama n Poitou-Charentes, yerna teqdec d tamazant (députée) deg Wegraw Aɣelnaw n Fransa am wakken ay teqdec d taneɣlaft. Royal seg Ukabar Anemlay n Fransa (Parti Socialiste). D nettat ay d tameṭṭut tamezwarut n Ukabar Anemlay ay yettekkan deg tefranin n tselwit n 2007, maca d Nicolas Sarkozy ay tent-irebḥen.
+Dakar Dakar
+
+Dakar d tamaneɣt n Senegal. Zedɣen-tt 1.030.594 n yimezdaɣen.
+Sinigal Sinigal
+
+Senegal d tamurt n Tefriqt Tutrimt. Tajumma-nnes 196.723 km2 (ikilumitren imkuẓen). Zedɣen-tt 15.411.614 n yimezdaɣen (Isenegaliyen) (2016). Tamaneɣt-nnes d Dakar.
+La Courneuve La Courneuve
+
+La Courneuve d taɣiwant n Fransa, tezga-d deg ugafa (nord) n Paris, deg agezdu n Seine-Saint-Denis. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen.
+Haute-Normandie Haute-Normandie
+
+Haute-Normandie neɣ Normandie n Ufella, d tama n ugafa-utrim (nord-ouest) n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-tt n yimezdaɣen. Tamaneɣt-nnes d Rouen.
+Seine-Maritime Seine-Maritime
+
+Seine-Maritime d agezdu n ugafa-utrim (nord-ouest) n Fransa, yezga-d deg tama n Haute-Normandie. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d tamdint n Rouen.
+Eure (Agezdu) Eure (Agezdu)
+
+Eure d agezdu n ugafa-utrim (nord-ouest) n Fransa, deg tama n Haute-Normandie. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Evreux.
+Evreux Evreux
+
+Evreux d tamdint n ugafa-utrim (nord-ouest) n Fransa yerna d tamaneɣt n agezdu n Eure (deg Haute-Normandie). Zedɣen-tt n yimezdaɣen.
+Jules Verne Jules Verne
+
+Jules Verne (ilul deg wass n 8 Furar 1828 deg Nantes, yemmut deg 24 Meɣres 1905 deg Amiens - Fransa) d amaru afrensis, amur ameqran seg wungalen-is ḥekkun-d ɣef tlufa ay iḍerrun deg tmura tubɛidin neɣ d tiḥkayin n tussna n ussugen (science-fiction) ay d-yessawalen ɣef wayen ara d-yennulfun deg yimal.
+
+Deg 1863, Jules Verne yessuffeɣ-d ungal-is amezwaru "Xemsa n Ledwaṛ deg Ubalun", d win ay yeqqlen dindin mechuṛ ama deg Fransa, ama deg tmura niḍen. Jules Verne yeqqim yettaru azal n 40 n yiseggasen, yerna yessuffeɣ-d 64 n wungalen, gar-asen Arraw n Uqebṭan Grant (1868), Tuzzya ɣef Umaḍal deg 80 n wussan (1873), Michel Strogoff (1876), Itri n Wenẓul (1884), Seg Tegnit ɣer Wayyur (1865), 20.000 Yifersxen ddaw Yilel (1870), Robur ameslak (1886), atg.
+
+Idlisen n Jules Verne ttwassnen deg umaḍal akken ma yella, yerna ɣerna d netta ay d amaru afṛensis ay d-yettussuqqlen aṭas akk deg umaḍal.
+Karim Benzema Karim Benzema
+
+Karim Benzema (ilul deg 19 dujamber 1987 deg Lyon, Fransa), d amarir n ddabex uḍar afrensis, laṣel-nnes d azzayri seg At Jlil. 
+
+Ass-a, Benzema yetturar d amenṭag (attaquant) deg Real Madrid yerna yetturar deg teɣlamt taɣelnawt tafrensist. Benzema yeffeɣ-d seg tkadimit n yilemẓiyen n Lyon. Deg 2008, yettekka deg telɣuɣa (championnat) n UEFA Euro 2008. Deg tsemhuyt (saison) n 2007-2008, d netta ay d amarir afrensis ay yeskecmen aṭas n yeswan (buts), yerna d aya ay t-yejjan ad d-yerbeḥ aṭas n warrazen. Deg Yulyu n 2009, Benzema yestenya leɛqed n 6 n yiseggasen akked Real Madrid yerna ass-a yeqqel d netta ay d amarir n tkurt n uḍar ay yettuxellaṣen aṭas akk deg Fransa.
+Paul Cézanne Paul Cézanne
+
+Paul Cézanne d amekla (peintre) afrensis (ilul deg Aix-en-Provence deg 1839, yemmut deg temdint-a deg 1906). 
+Cézanne yella d amekla ay yeddan deg uɣanib n temsemzunt (impressionnisme) aydeg anaẓur yesɛa tilelli akken ad d-yefk tugna n wayen yettwali war ma yettwaqqen s yilugan n tmeskadimit. Cézanne iga-d tifelwiyin n wudmawen (Imariren n tkarḍa, [les Joueurs de cartes), n ugama yemmuten akked yimeẓriyen (paysages) (am tfelwiyin n Sainte-Victoire). Anaẓur-a yurar dduṛ deg tlalit n yiɣunab imeqranen n teklut (peinture) deg lqern wis 20 (tamsewrast, tamesgasast, tadwant).
+Aix-en-Provence Aix-en-Provence
+
+Aix-en-Provence d tamdint n Fransa, tezga-d deg wenẓul n tmurt, deg agezdu n Bouches-du-Rhône. Zedɣen-tt n yimezdaɣen. 
+
+Tamdint-a tella deg-s tesdawit. Tettili-d deg-s tfaska n uẓawan (lmuziga) mechurent. Aix-en-Provence tesɛa daɣen aḥemmam, am wakken ay llant deg-s lluzinat n yifarisen n tuccit. Takatidṛalt n Saint-Sauveur ay d-yezgan deg-s, tettwabna deg lqern wis 11. Tamdint-a tesɛa isensa d iqburen, ttwabnan gar lqern wis 17 ed wis 18, am wakken ay llan deg-s yisalayen. D Irruman ay d-yesbedden tamdint-a deg useggas n 123 qbel Ɛisa, yerna llan ɣɣaren-as "Aquae Sextiae". Deg useggas n 102 qbel Sidna Ɛisa, yella-d, deg tama n temdint-a, yessaweḍ ujiniral aruman Marius, ad yernu Ituṭunen ay d-iẓedmen ɣef Gall.
+Moulins Moulins
+
+Moulins d tamdint n Fransa. D tamaneɣt n agezdu (département) n Allier. Zedɣen-tt n yimezdaɣen.
+Charleville-Mézières Charleville-Mézières
+
+Charleville-Mézières d tamdint n Fransa. D tamaneɣt n agezdu (département) n Ardennes. Zedɣen-tt n yimezdaɣen.
+Privas Privas
+
+Privas d tamdint n Fransa. D tamaneɣt n agezdu (département) n Ardèche. Zedɣen-tt n yimezdaɣen.
+Espinosa de los Monteros Espinosa de los Monteros
+
+Espinosa de los Monteros d tamdint n ugafa n Spenyul (deg temnaḍt n Burgos, Castilla Leon). Zedɣen-tt 2.100 n yimezdaɣen.
+Katalunya Katalunya
+
+Katalunya d timetti tafulmant (communauté autonome) n Spenyul, tezga-d deg ugafa-agmuḍan (nord-est) n tmurt, ɣef yiri n Yilel Agrakal. Tajumma-nnes 32.114 km2. Zedɣen-tt 7.504.881 n yimezdaɣen (Ikatalaniyen). Tamaneɣt-nnes d Barseluna.
+Barseluna Barseluna
+
+Barseluna d tamdint tameqrant n ugafa-agmuḍan (nord-est) n Spenyul, d tamaneɣt n Katalunya. Zedɣen-tt 3.218.071 n yimezdaɣen.
+Pyrenees Pyrenees
+
+Pyrenees, d azrar n yedraren ay d-yezgan gar Fransa ed Spenyul. Taqacuct taɛlayant akk deg yedraren n Pyrenees d Adrar n Aneto (3404 n imitren).
+Anden Anden
+
+Idurar n Anden neɣ Andes (s Tespanyult: "Cordillera de los Andes") d azrar n idurar ɣeziffen, Yeččuṛen d ifarnuyen, yezga-d deg umalu n Temrikt n Wenẓul, azal n teɣezi-ynes yessaweṭ ar 8000 n yikilumtren seg Venezuela arma d tigzirt n Wakal n Tmes. D tehri n 500 km, Akken daɣen illan-t tqacucin ugarent 5000 m di teflel
+
+Adrar iflalen (iɛlayen) akk deg wezrar n Anden d taqacuct n Aconcagua s teflel n 6.959 n imitren
+
+Azal ameqran n wid yettidiren deg idurar n Anden d Imezdaɣ iẓaṛanen n Marikan, ddren deg yegnan iflalen ay d-yezgan gar idurar-nni seg tkerrazt (tfellaḥt) yerna ssajjawen kra seg yifarisen-nsen am Tneɣlust, am akken ay ddren daɣen seg tkessawt. 
+
+Akal n idurar-a n Anden ur ylullesn ara, Maca yeččuṛ d imɣuzen yerna llan waṭas n telmas n yemɣuzen am iɣir, uzzal akk d Afitṛul 
+Akal n Tmes Akal n Tmes
+
+Akal n Tmes (s tespenyulit: "Tierra del Fuego"), d tigzirt ay d-yezgan deg wenẓul (sud) n Temrikt n Wenẓul. 
+Aḥric-nnes utrim (aɣerbi) d aḥric seg wakal n Cili, ma d aḥric-nnes agmuḍan (acerqi) yeqqen ɣer Terjentint. Tajumma-nnes 73.746 km2 (yikilumitren imkuẓen), yerna zedɣen-tt wazal n 137.000 n yimezdaɣen (seg yidis arjentinu, 130.000 n yimezdaɣen, ma seg yidis acili, azal n 7000 n yimezdaɣen).
+Butan Butan
+
+Butan d tamurt n wenẓul (sud) n Asya, tezga-d deg yedraren n Himalaya, gar Lhend ed Ccinwa. Tajumma-nnes 38.394 km2 (yikilumitren imkuẓen). Zedɣen-tt 691.141 n yimezdaɣen (Ibutaniyen). Tamaneɣt-nnes d Timfu.
+Jean-Marie Bigard Jean-Marie Bigard
+
+Jean-Marie Bigard (ilul deg 17 mayyu 1954 deg Troyes) d azeffan (comédien) yerna d asegbar aṛumi, d win ay iqeddcen deg wenrar n usseḍsi. Itteg ihanayen (spectacles) n taḍsa deg waṭas n yimukan mechuren deg Fransa, gar-asen Leqṣer n waddalen (Palais omnisports) n Paris-Bercy akked Usarir n Fransa (Stade de France). Bigard d ameddakel uqrib n uselway afrensis n zik Nicolas Sarkozy.
+Albany Albany
+
+Albany d tamaneɣt n uwanak amarikani n New York. Zedɣen-tt 857.592 n yimezdaɣen (s yegmamen ay d-yezzin fell-as).
+Asudu n Franklin Asudu n Franklin
+
+Asudu n Franklin (s Tanglizit: "Franklin Institute"), d asalay (musée) n temdint n Philadelphia (Pennsylvania, Iwunak Yeddukklen), semman-as ɣef Benjamin Franklin ay yellan d amassan yerna d argaz n tsertit amarikani. Asudu n Franklin sbedden-t-id deg 1824, yerna d yiwen seg wammasen n tussna iqburen akk deg Yiwunak Yeddukklen.
+Philadelphia Philadelphia
+
+Philadelphia d tamdint n ugafa-agmuḍan (nord-est) n Yiwunak Yeddukklen, tezga-d deg uwanak n Pennsylvania. Zedɣen-tt 1.556.396 n yimezdaɣen.
+Minneapolis Minneapolis
+
+Minneapolis d tamdint n Yiwunak Yeddukklen, tezga-d deg uwanak n Minnesota. Zedɣen-tt 385.378 n yimezdaɣen.
+Morteau Morteau
+
+Morteau d taɣiwant n Fransa, tezga-d deg agezdu n Doubs (tama n Franche-Comté). Zedɣen-tt n yimezdaɣen.
+Marine Le Pen Marine Le Pen
+
+Marine Le Pen (tlul s yisem n Marion Anne Perrine Le Pen deg wass n 5 Ɣuct 1968 deg Neuilly-sur-Seine), d tameṭṭut n tsertit tafrensist yerna d tabugaṭut. D yelli-s n Jean-Marie Le Pen, aselway aqbur n ukabar n afrensis n Front National (FN - Tirni Taɣelnawt) yerna d nettat ay d-ixelfen baba-s deg wemkan-a deg Yennayer n 2011. 
+
+Marine Le Pen tekcem ɣer ukabar n Front National deg 1986. Deg 2000, teqqel d tamaslaḍt (membre) deg Useqqamu n Usselkem (Conseil exécutif) n ukabar-a, sakkin, gar 2003 ed 2011, teqqel d tanmazult n uselway (vice-présidente) n ukabar. Marine Le Pen teqdec daɣen d tamaslaḍt deg yegrawen n tmiwa n Fransa: gar 1998 ed 2004, tettekka deg Useqqamu Awaẓi (Conseil régional) n Nord-Pas-de-Calais, gar 2004 ed 2010, tettekka deg Useqqamu Awaẓi n Île-de-France, sakkin, deg 2010, tɛawed tettwafren d tamaslaḍt deg Useqqamu n Nord-Pas-de-Calais. Le Pen tettekka daɣen deg useqqamu n tɣiwant n Hénin-Beaumont (deg agezdu n Pas-de-Calais) gar 2008 ed 2011.
+Griffith (Ustralya) Griffith (Ustralya)
+
+Griffith d tamdint n Ustralya, tezga-d deg uwanak n Tmurt n Yigaliyen n Wenẓul. Zedɣen-tt 16.182 n yimezdaɣen.
+Brian De Palma Brian De Palma
+
+Brian Russell De Palma (ilul deg 11 Ctember, 1940 deg Newark, awanak n New Jersey), d imseḍru (réalisateur) yerna d amaru amarikani. Yeqdec deg ssinima ugar n 40 n yiseggasen yerna yettwassen mliḥ s yisura n tmenɣiwt ed ususpens. 
+
+Gar yisura-nnes yella Carrie, Dressed to Kill, Scarface, The Untouchables akked Mission Impossible. Deg yiseggasen n 1970 ed 1980, De Palma yeqdec acḥal d tikkelt akked yisegbaren (acteurs) Jennifer Salt, Amy Irving, Nancy Allen (ay yellan d tameṭṭut-nnes gar 1979 ed 1983), Gary Sinise, John Lithgow, William Finley, Charles Durning ed Gerrit Graham. 
+Yeqdec daɣen akked yemsuddes (compositeur) n uẓawan n yisura, Bernard Herrmann. De Palma yessaweḍ daɣen ad yerr aṭas n yisegbaren ttwassnen, gar-asen Robert De Niro, Jill Clayburgh ed John C. Reilly.
+Lhend Lhend
+
+Lhend d tamurt n wenẓul n Asya. Tajumma-nnes 3.287.263 km2 (yikilumitren imkuẓen). Zedɣen-tt 1.028.610.328 n yimezdaɣen (Ihendiyen). Tamaneɣt-nnes d New Delhi.
+Mariah Carey Mariah Carey
+
+Mariah Carey (tlul deg 27 Meɣres 1970 deg Huntington, awanak n New York), d tacennayt tamarikanit ay icennun s uɣanib (style) n R&B, yerna d tasegbart (actrice). 
+
+Tebda amecwar-nnes n ccna deg 1990 s tellalit (uɛawen) n Tommy Mottola ay iqeddcen deg termist n Columbia Records, yerna tejwej yid-s deg 1993. Dindin kan, Carey tuwey cciɛa d tameqqrant yerna d teqqel d nettat ay d tacennayt yettnuzun aṭas akk ɣer termist n Columbia Records. Deg 1997, temsefraq ed Mottola, dɣa tebda tessekcam kra n ṣṣifat n uɣanib (style) n Hip-Hop deg uẓawan-nnes, d acu kan, asmi ay teḥbes aqeddic-nnes akked termist n Columbia Records, deg 2001, tenqes cciɛa-nnes. 
+
+D aya ay tt-yejjan ad testenyi leɛqed n 80 n yimelyunen n yidularen akked Virgin Records. Deg useggas-nni daɣen tga-d yiwen n usaru, Glitter, yerna d nettat ay d-yecnan tizlatin-nnes, maca asaru-a ur d-yessekcem aṭas n yedrimen yerna Mariah Carey tekka ɣef yiwet n tallit n leḥzen d taweɛrant ussan-nni. Deg 2002, testenya yiwen n leɛqed akked Island Records. Ɣas ma yella ur tessaweḍ ad d-tessekcem aṭas n yedrimen deg yiseggasen imezwura ay d-iḍefren, Mariah Carey tessuffeɣ-d album-nnes The Emancipation of Mimi deg 2005, d win ay as-d-yerran cciɛa-nnes tameqrant. Carey tuwey-d amecwar n wugar n 20 n yiseggasen deg uẓawan yerna tessenz ugar n 200 n yimelyunen n walbumen, iḍebsiyen n usinglen akked yeklipen (gar-asen 63 n yimelyunen n walbumen kan). Deg yiseggasen n 1990, d nettat ay d tacennayt ay yessenzen aṭas akk n yiḍebsiyen deg umaḍal. Carey terbeḥ-d daɣen semmus (5) warrazen n Grammy Award.
+Enya Enya
+
+Enya (tlul s yisem n Eithne Patricia Ní Bhraonáin deg wass n 17 Mayyu 1961 deg Gweedore), d tacennayt tirlandit. 
+
+Enya tebda tcennu deg yiseggasen n 1980, asmi ay tettekka deg tegrawt n ccna n twacult-nnes, "Clannad", sakkin, tejja tagrawt-nni yerna tebda tcennu i yiman-nnes. Deg useggas n 1986, tecna deg umazrar n BBC "The Celts" yerna d aya ay tt-yerran mechurt. Deg 1988, album-nnes "Watermark", yerra-tt mechuret deg umaḍal, yerna teqqel tettwassen s taɣect-nnes tawḥidt. Deg yiseggasen n 1990 ed 2000, tkemmel tettnerni cciɛa-nnes. Deg useggas n 2000, tessuffeɣ-d album n ""A Day Without Rain"" yerna nzant seg-s 15 n yimelyunen n tsukan. Deg 2001, Enya terbeḥ cciɛa n tmeṭṭut tacennayt ay yessenzen aṭas akk n walbumen. Deg 2009, Enya tessaweḍ ad tessenz, s ujemmal, 70 n yimelyunen n walbumen (gar-asen 26 n yimelyunen nzan deg Yiwunak Yeddukklen). Terbeḥ-d, s leqdic-nnes, 4 n warrazen n Grammy Award, yerna tizlatin-nnes ttwacnant s 10 n yilsawen.
+Gweedore Gweedore
+
+Gweedore (s tirlandit: "Gaoth Dobhair") d agezdu ay d-yezgan deg ugafa-utrim (nord-ouest) n Irland, deg ukunti n Donegal. Zedɣen-t 4065 n yimezdaɣen yerna ssawalen deg-s s tirlandit. Enya (tacennayt tirlandit) tlul deg Gweedore.
+Rihanna Rihanna
+
+Robyn Rihanna Fenty (tlul deg 20 Furar 1988 deg Saint Michael), tettwassen s yisem-nnes n tnaẓurt, Rihanna (yettwanṭaq [rihena]), d tacennayt n tmurt n Barbados, tcennu yerna tettaru tizlatin n uẓawan (lmuziga) n R&B. 
+
+Rihanna tedda ɣer Yiwunak Yeddukklen asmi ay tesɛa 16 n yiseggasen yerna tebda-d amecwaṛ-nnes n ccna s uɛawen n wenfaras (producteur) Evan Rogers, dɣa testenya leɛqed akked teṛmist n Def Jam Recordings. Deg 2005, tessuffeɣ-d album-nnes amezwaru, "Music of the Sun" (Aẓawan n Tfukt), sakkin, deg 2006, terna-d album-nnes wis sin, "A Girl Like Me" (Taqcict am nekk), d win ay yuwyen cciɛa d tameqrant ugar. Deg 2007, terna-d album wis kraḍ, "Good Girl Gone Bad" (Taqcict yelhan yeqqlen diri-tt), d win aydeg d-ddant aṭas n tezlatin ay yuwyen cciɛa d tameqrant, yiwet seg-sent d tizlit n "Umbrella" (Tasiwant) ay d-tecna akked ucennay n rap Jay-Z, yerna tuwey fell-as arraz n Grammy Award. Deg Wamber n 2010, tessuffeɣ-d album-nnes wis semmus, "Loud", d win ay yuwyen cciɛa ama deg Yiwunak Yeddukklen, ama deg Briṭanya Tameqrant. Rihanna tessenz, s ujemmal, ugar n 25 n yimelyunen n walbumen akked 45 n yimelyunen n yiḍebsiyen n usingle deg umaḍal. Rihanna tuwey aṭas n warrazen imeqranen n uẓawan, gar-asen arraz n World Music Awards i tmeṭṭut tanaẓurt tamawayt (timxeyyert) akk deg umaḍal deg 2007, akked warraz n American Music Award i useggas n 2008. Nnig waya, Rihanna teqqel d tanmahalt tadelsant (ambassadrice culturelle) n tmurt n Barbados.
+Lady Gaga Lady Gaga
+
+Stefani Joanne Angelina Germanotta (tlul deg 28 meɣres 1986 deg temdint n New York), d tin yettwassnen s yisem-nnes n tnaẓurt Lady Gaga, d tacennayt tamarikanit ay icennun aẓawan n pop. 
+
+Tebda tekkat aẓawan n rock deg 2003, sakkin tekcem ɣer Uɣerbaz n Tẓuri n Tisch deg Tesdawit n New York. Deg tallit-nni, testenya leɛqed akked termist n Streamline Records ay yeqqnen ɣer Interscope Records. Naqal, tebda kan tettaru tizlatin i yicennayen niḍen, maca dindin gren-as tamawt tesɛa taɣect yelhan i ccna yerna testenya leɛqed niḍen akked termist n Kon Live Distribution akken ad tebdu ccna. Deg 2008, Lady Gaga tessuffeɣ-d album-nnes amezwaru, "The Fame" yerna teqqel mechuṛet yes-s imi ay d-yessekcem aṭas n yedrimen. Sakkin, asmi ay d-tessuffeɣ iḍebsiyen-nnes n usingle "Just Dance" akked "Poker Face", teqqel tettwassen deg wakk timiwa n umaḍal. Deg 2009, terna tessuffeɣ-d album n "The Fame Monster" (d akemmel n umezwaru-nni), yerna terna-d yid-s snat tezlatin, "Bad Romance" akked "Telephone". D aya ay yejjan cciɛa-nnes ad tennerni ugar yerna d aya ay as-igan abrid akken ad teg yiwet n tuzzya n yibarazen (concerts). Lady Gaga tuwey-d kra seg yicennayen n rock am David Bowie, Elton John akked Queen, am wakken ay d-tuwey kra daɣen seg yicennayen n pop am Madonna, Michael Jackson ed Amy Winehouse. 
+D acu kan, Lady Gaga tesɛa yiwet n lḥeṭṭa d taɣwalit (bizarre) aydeg tettlusu iceṭṭiḍen yessewhamen (tikkal amur ameqran seg tfekka-nnes d aɛeryan), am wakken ay d-tettawey yiwet n tikli d taɣwalit ama deg ccna-nnes sdat lɣaci, ama deg yeklipen-nnes. Tuwey semmus warrazen n Grammy Awards, tessenz 15 n yimelyunen n walbumen ed 51 n yimelyunen n yiḍebsiyen n usingle.
+Sophocles Sophocles
+
+Sophocles, s tefrensist: "Sophocle", (ilul gar 497 ed 496 qbel Ɛisa - temmut gar 406 ed 405 qbel Sidna Ɛisa), d amaru agrigi n tmezgunin, yerna d yiwen seg yimura n tkesniwin (tragédies) ay d-yuran iqeddicen ay d-yeqqimen ar ass-a. 
+Ɣef leḥsab n Suda (d tasedkalt [encyclopédie]) n lqern wis 10, Sophocles yura-d 123 n tmezgunin, maca ala 7 seg-sent ay d-yeqqimen ar ass-a: Ajjaks, Antigun, Tisednan Tiṭraciyin, Oedipus the King (Oedipus Agellid), Elektra akked Philoctetes ed Oedipus deg Colonus. Sophocles yettekka deg tfaskiwin timasɣanin (festivals religieux) n Atena aydeg d-yettili wemsizwer n umezgun, yerna, gar 30-nni n yemsizewren aydeg yettekka, yerbeḥ deg 24 deg-sen. Aeschylus yella yettekkay deg yemsizewren-nni yerna yerbeḥ kan 14 seg-sent, ma d Euripides yerbeḥ kan 4. Timezgunin n Sophocles d tid ay yesnernan aṭas tamuggit (drame), yerna tadyant n tmezgunin-nnes ur tḍerru gar sin kan yemdanen, wanag ikeccem-d gar-asen wemdan wis kraḍ.
+Atina Atina
+
+Atina d tamaneɣt n tmurt n Legrig, zedɣen-tt 3.130.841 n yimezdaɣen (4.013.368 s yegmamen ay d-yezzin fell-as).
+Akabar Asduklan Azzayri Akabar Asduklan Azzayri
+
+Akabar Asduklan Azzayri (s tefrensist: "Parti Communiste Algérien"), d akabar asduklan ay d-sbedden yimeɣnasen ifrensisen n Lezzayer (iḍarren iberkanen) akked yineṣliyen izzayriyen. 
+
+Akabar-a ilul-d deg 1920 yerna yella d afurk n Ukabar Asduklan Afrensis. Maca deg 1936, yeqqel d akabar i yiman-nnes (s uttekki n Maurice Laban), yerna amaru-nnes amatu d ameɣnas azzayri Lbacir Ḥaǧ Aɛli. 
+
+Deg tezwara n 1955, Akabar Asduklan Azzayri yugi imenɣi imselleḥ n Yizzayriyen i lmend n uzarug (indépendance) n tmurt-nsen, maca deg Yunyu n useggas-nni, akabar-a yeqbel imenɣi-a yerna iga ifadden i yimeɣnasen-nnes akken ad ttekkin deg yimenɣi ɣer yidis n Yizzayriyen, d aya ay yejjan Fransa ad t-tegdel. Imeɣnasen n ukabar-a ttekkan deg kra n tiytiwin deg wemgaru n Lezzayer, gar-asent tadyant ay d-yellan deg 1956, aydeg Henri Maillot, yiwen seg yimeɣnasen-nnes, yesserwel yiwen n ukamyun n yemrigen (leslaḥat) i yemjuhad. 
+
+Deg 1962, asmi ay tuwey Lezzayer azarug-nnes, anabaḍ (lḥukuma) azzayri yesteɛref s Ukabar Asduklan Azzayri, maca deg 1964, yegdel-it yerna yefsex-it. D aya ay yejjan amur ameqran seg yesduklanen izzayriyen ad ɛawden ad msegrawen ed ad d-sbedden Akabar n Tnezwart Tanemlayt (PAGS).
+Henri Maillot Henri Maillot
+
+Henri Francois Maillot (ilul deg 1928 deg temdint n Dzayer, yemmut deg 1956 deg tama n Lkarimeyya, Cclef), d ameɣnas asduklan (communiste) afrensis (seg yiḍarren iberkanen ay ilulen deg Dzayer) yerna yettekka deg Tegrawla n Ldzayer. 
+
+Deg 1956, Maillot yella d aserdas afrensis yerna yesserwel akamyun n yemrigen (leslaḥat) i yemjuhad ay yellan ttnaɣen i uzarug (indépendance) n tmurt Ldzayer. Maillot yella d amaru amatu n Tdukli Yilemẓiyen Imegdayen Idzayriyen (Union de la Jeunesse Démocratique Algérienne) ay yellan d tagrawt tasduklant, yerna yella iqeddec d amessiḍan (comptable) deg weɣmis azelmaḍ n Alger Républicain (aydeg ttekkan ula d Idzayriyen). Maillot yella daɣen yessawal s yisem n Ldzayer deg temliliyin n yilemẓiyen ay d-yellan deg tallit-nni deg Prag akked Warsu. 
+Asmi ay yella deg yiserdasen ifrensisen, Maillot yettuwekkel (deg 4 Yebrir 1956) ad yawey yiwen ikamyunen iserdasiyen seg Tmelyant (deg twilayt n Tiṭ Ulili, ass-a) ɣer temdint n Ledzayer. Mi ḥebsen deg yiwen n wemkan akken ad sgunfun deg-s yiserdasen, Maillot yumer anehhar n ukamyun-nni ay d-ibubben imrigen akken ad yeqleɛ, sakkin ddan ɣer teẓgi n Baynam (deg utaram n temdint n Ldzayer), anda ay d-usan yemjuhad ay yuwyen imrigen-nni. Sdeffir tedyant-a, aɣmis asduklan n Liberté (ay yellan itteffeɣ-d s tuffra), iga ifadden i medden akken ad ɛawnen Tagrawla Tadzayrit s yemrigen i wakken ad tawey Ldzayer azarug-nnes (indépendance). 
+
+Axxam n ccreɛ afrensis icureɛ Maillot (s uɣabi) yerna yeḥkem-as s tmettant deg wass n 22 Mayyu 1956. Deg 5 Yunyu 1956, iɣallen ifrensisen mmɣen ɣef yiwet n tegrawt n yemjuhad deg tama n "Lamartine" (Lkarimeyya (deg twilayt n Cclef), dɣa nɣan sa (sebɛa) seg-sen, gar-asen sin n yiḍarren iberkanen (Ifrensisen n Ldzayer): yiwen seg-sen d Maillot, ma d wayeḍ d Maurice Laban, yiwen seg yimeɣnasen ay yettekkan deg ussebded n Ukabar Asduklan Adzayri. Henri Maillot rran-as tajmilt deg Ldzayer imi ay fkan isem-nnes i yiwen n wesbiṭar deg Bab Lwad (tamdint n Ldzayer). Deg 2002, gan-as daɣen timenzit (stèle) deg Ldzayer.
+Maurice Laban Maurice Laban
+
+Maurice Laban (ilul deg 1914 deg Tbeskert - yemmut deg 5 Yunyu 1956 deg Lkarimeyya, tawilayt n Cclef, d ameɣnas asduklan (communiste). 
+
+Imawlan-nnes llan qeddcen d iselmaden deg yiɣerbazen aydeg lemmden Yidzayriyen. Asmi ay d-yuwey lbak, Laban yedda ad iɣer deg uɣerbaz n yijenyuren n Marseille, maca yekka kan kuẓ (rebɛa) wayyuren deg Fransa, sakkin yeqqel-d ɣer Dzayer, anda ay yettekka deg ussebded n Ukabar Asduklan Adzayri deg 1936. Cwiṭ kan sakkin, Laban yedda ɣer Spenyul akken ad yettekki deg wemgaru aɣarim (guerre civile) ɣer yidis n wid ay yebɣan ad sbedden tagduda deg tmurt-a. Deg wemgaru-nni, Laban yettwajreḥ yerna yenḍerr snat tikkal. Mi d-yeqqel ɣer Ldzayer, deg 1940, Laban yennuɣ, s tuffra, mgal udabu n Vichy ay yeddan akked Yinaziyen, d acu kan, yettwaṭṭef yerna ccreɛ aserdasi n temdint n Ldzayer yeḥkem fell-as s lḥebs s teɣzef n tmeddurt. 
+Deg wass n 15 Meɣres 1943 (kuẓ wayyuren sdeffir ma kecmen-d Yimarikaniyen ɣer Ldzayer), Laban bran-as-d seg lḥebs, yerna yeqqel ɣer Tbeskert anda ay yeqdec i lmend n ussejhed n Ukabar Asduklan Adzayri deg tama tagmuḍant (tacerqit) n Ldzayer. Deg tefranin n tɣiwant n Tbeskert n Tuber 1947, Laban yettwafren tikkelt niḍen d amaslaḍ (membre) deg useqqamu n tɣiwant. 
+
+Akken kan ay yenker wemgaru (ṭṭrad) n Ldzayer, deg 1954, Maurice Laban (ay yellan yagi d ameddakel n umjahed Mustafa U Bulɛid), yella yessewjad-d lbarud i yemjuhad. Deg tezwara n 1955, Akabar Asduklan Adzayri iwet-d deg tnekra timselleḥt tadzayrit, d aya ay ixeyyben Maurice Laban, maca deg 20 Yunyu 1955, aseqqamu alemmas n ukabar-a yemlal s tuffra deg Bab Lwad yerna yeɛzem ad yebded ɣer yidis n yimenɣi imselleḥ adzayri. 
+
+D aya ay yejjan Maurice Laban ad yaley s adrar. D acu kan, deg wass n 5 Yunyu 1956, iɣallen imsellḥen ifṛensisen nɣan Laban ɣer yidis n Henri Maillot ed 5 n yemjuhad idzayriyen niḍen deg tama n Lkarimeyya (deg twilayt n Cclef).
+Manuel Neuer Manuel Neuer
+
+Manuel Neuer (ilul ass 27 meɣres 1986 di Gelsenkirchen, Lalman) d aɛessas ucebbak agreɣlan alalmani n tkurt n uḍar,yurar di teɣlamt n (Schalke 04 2006-2011) uqbel ad taɣ Bayern Munich s 25 imelyan n euro. yettuṣenef aɛessas amezwaru deg umaḍal aseggas 2013.
+Mats Hummels Mats Hummels
+
+Mats Hummels (ilul ass 16 buǧember 1988 deg Bergisch Gladbach, Lalman) d amḥadi agreɣlan alalmani n tkurt uḍar.
+Mesut Özil Mesut Özil
+
+Mesut Özil (ilul ass 15 tuber 1988 di Gelsenkirchen, Lalman) d amarir agreɣlan alalmani yurar di teɣlamin:
+Lynda Thalie Lynda Thalie
+
+Lynda Thalie tlul deg 25 June 1978 di Wehran Tanaẓurt di Tamurt n Kanada. tawacult ines tinig ar lKanada seg useggas 1994.
+
+Tracklist
+
+Tracklist
+
+Tracklist
+
+Tracklist
+
+
+==Akon Akon
+
+Akon isem-is unṣib Alaune Thiam, ilul ass n 16 yebrir 1973 di Saint-Louis deg uwanek n Missouri di Marikan , d anaẓur deg uɣanib R&B.
+
+
+Booba Booba
+
+Booba isem-is unṣib Élie Yaffa, ilul ass n 9 Buǧember 1976 deg Boulogne-Billancourt di tmurt n Fransa (maca yesɛa aẓar ɣer tmurt n Senegal), D yiwen unaẓur deg uɣanib n Rap Afransis mucaɛen nezzeh di tmurt n Fransa.
+
+
+Tala Ɛetman Tala Ɛetman
+
+Tala Ɛetman, d taddart ger tudrin n Tamurt n Iqbayliyen, d tin i d-yezgan 15 n ikilumitren ar usamar n tɣiwant n Tizi Wezzu. Angal n Tnazzant-ines (Code Postal) 15144. 
+
+
+
+
+
+Deg iseggasen n 30, Tala Ɛetman tella d taddart d tamecṭuḥt, tesɛa drus n imezdaɣ, Iɣil n Ufella, Tadukart d Lexmis llan d iɛeṛqyab, kera deg-sen tteẓẓun-ten ma d wiyiḍ kssen deg-sen lmal. 3(Kṛaḍ) n tisutwin(Générations) ɣer deffir, at taddart zedɣen ixxamen yebnan s walim d waluḍ, am ixxamen urkel n Tamurt n Iqbayliyen, di lweqt-nni win yesɛan axxam d lɛali-t d win yebnan s weblaḍ akked uqeṛmud n leqbayel. Tudert ussan-nni tella qssiḥet mačči d kra.
+
+Lawan n tegrawla, tella-d yiwet n temlilit di Makuda, i g-llan s ddaw n laɛnaya n lyuṭnu Amer Bessalaḥ, i wumi qqaṛen "El Bass", igensasen(Représentants) n temnaḍin n At Wagnun d Makuda llan deg temlilit-agi. Tala Ɛetman tceggeɛ Mass Mula Ali(Ali Wamer) akked Mass Benziyan Muḥemmed(Ṛebbaṭ). Ssin-agi ttewakelfen ad jemɛen isurdiyen d isufar nniḍen i Tirni Tesllullit Taɣennawt(FLN). Mass Aṛezqi Kaceṛ rran-t d aqeṛṛu ɣef umussu-agi, imir yefren(Yextaṛ) wid ara yilin deg umussu-agi : Gawa Ḥend, Benziyan Muḥemmed(Ṛebbaṭ), Ǧemɛa Akli, Amer Xeyaṛ, Certuḥa Aṛezqi, Geṭṭab Ali. Wigi ttewakelfen ad jemɛen tadrimt akked leslaḥ(Ibeckiḍen, Timeẓyanin...), amussu-agi yeḍmen isufar n wučči d teɣellist(Sécurité) n imenɣan(Imjuhad) ma ara mlilen, neɣ ma ara bedllen amekkan. Di tazwara n useggas 1955, Tala Ɛetman teṭṭef amekkan axatar(Important) deg Lwilaya tis 3, i d-yefkkan aṭṭas i waken ad d-tawi temurt n Lezzayer timunent-is(Independence).
+
+Akken kan tefra tegrawla, Lezzayer tewwi-d timunent-is, imezdaɣ bdan tteɛawaden lebni n taddart-nsen, ayen iwumi qqaren Abraḥ(Tala) yettwaxdem deg useggas n 1963. Leǧameɛ, d lebni i g-sɛan azal d ameqran di taddart, yettwabna ger 1979 d 1982 di tlemast n taddart, isem-is : Atman Ibn Ɛaffan.
+
+Di tuber 2011, tella-d yiwwet n temlilit deg uɣerbaz amenzu i waken ad fernen tajmaɛt(Comité) tamynut i taddart. Tajmaɛt-agi tettewakellef i wakken ad d-tawi aṭṭas n isenfaren(Projets) i taddart, ger-asen : asufeɣ n waman ur nzeddig ara, asiweḍ n trisiti i ixxamen iḍeṛffen(Isolés), agudṛuni n iberdan, aɛiwed n tregwa...
+
+Tala Ɛetman tesɛa yiwwet n tidukla n waddal (Association Sportive) i wumi ssawalen USTA "Union Sportive de Tala Athmane", i g-sɛan deg teqecwalt-isaṭṭas n waddalen : Dabex n uḍar, Lekarati akked Lkik-buksing.
+Acenyal amaziɣ Acenyal amaziɣ
+
+Acenyal amaziɣ neɣ Asenǧaq amaziɣ yettwanulfa-d deg iseggasen isamrawen (i70en) sɣur Agraw Imaziɣen (l'Académie berbère). Deg 1998, s ifassen n Agraw Amaḍlan Amaziɣ (GMM) i igan agraw-nsen amenzu deg Tigzirin Tiknariyin deg Tmurt n Spenyul, asenǧaq agi yuɣal d asenǧaq unṣib n Imaziɣen akken ma ttilin ani ttidiren deg umaḍal. 
+
+Ɣur-s krad (3) n yiniten (iklan / "couleurs"): aẓerwal ("blue"), azegzaw ("vert"), awraɣ ("jaune"). Deg tlemmas ines yettwars usekkil s yini (aklu, "couleur") azeggwaɣ (« ⵣ », aza neɣ yaz) s Tifinaɣ. 
+
+Injil s Tmaziɣt Injil s Tmaziɣt
+
+Ttwagent aṭas n tsuqilin n Yinjil (adlis uɣris n Tmasiḥit) s tutlayt Tamaziɣt, s tintaliwin am Tamaziɣt Tarifit, Tamaziɣt Tacelḥit, d Tamaziɣt Taqbaylit.
+
+Tasuqilt n Yinjil s Tmaziɣt Taqbaylit tella da:
+
+Injil s Tefṛansist - Tamaziɣt Taqbaylit.
+
+Llant tsuqilin Timaziɣin n:
+
+- Arkawal Azayku ("Ancien Testament").
+
+- Arkawal Amaynu ("Nouveau Testament").
+
+- Izlan n Dawud (Psalms)...
+
+
+
+
+
+
+Tinduf Tinduf
+
+Tinduf (isem amaziɣ aḥeqqani : Tin Ḍuf, anamek-is d "Taɛeṣast") d yiwet n temdint deg tama wenẓul-utrim n Dzayer deg Uneẓruf Ameqqran. Ɣur-es azal n 45.266 imezdaɣ deg useggwas n 2008. 
+Teqbreb ɣer laɛzib n Garet Jebilet ar 70 km si weɣrem-nni ed win n Icenancen ar wegmuḍ. D akal n At Tejakant ed Rgibat (neɣ At Rgib), d tiqbilin timaziɣin tiẓnagin i yedewwaren iles-nsen di tmuḍi wis 18 et 19 : Ajakan aneggaru i yettmeslay Tmaziɣt yemmut deg useggwas n 1864. 
+Jim Morrison Jim Morrison
+
+James Douglas Morrison, ilul ass n 8 dujamber 1943 di Melbourne Florida, yemmut ass n 3 Yulyu 1971 di Paris (Fransa), d acennay, aceṭṭaḥ, amaru n tezlatin amarikani.
+Sarah Bernhardt Sarah Bernhardt
+
+Sarah Bernhardt (tlul s yisem n Rosine Bernhardt deg 22 Tuber 1844, deg Paris - temmut deg 26 Meɣres 1923), d tasegbart (actrice) tafrensist ay yellan tetturar-d ama deg umezgun, ama deg yisura imezwura n lqern wis 20. 
+
+Sarah tebda-d amecwar-nnes deg umezgun deg Fransa, deg yiseggasen n 1870, yerna dindin kan teqqel mechuret ula deg tmura n Turuft ed Temrikt. Tella tesɛa "taɣect n wureɣ", am wakken ay tella tessen ad turar ledwar ay yessewliwilen ul n yemferrjen. Sarah Bernhardt temmut deg Paris, deg 1923.
+Le Quotidien d'Oran Le Quotidien d'Oran
+
+Le Quotidien d'Oran d aɣmis ayalas (quotidien) imzireg (indépendant) azzayri, yessebded-it-id Muḥemmed Ɛebdu Benɛebbu deg 1994.
+Horizons Horizons
+
+Horizons d aɣmis ayallas n uwanak (ddula) adzayri ay d-itteffɣen s tefrensist. Anemhal n weɣmis d Lɛarbi Timizar.
+Lɛarbi Timizar Lɛarbi Timizar
+
+Lɛarbi Timizar d anemhal amatu n weɣmis ayallas n Horizons. Timizar yella naqal d anemhal n tirawt n weɣmis n El Moudjahid. Deg Yebrir n 2011, yeqqel d anemhal n Horizons deg wemkan n Naɛma Ɛabbes.
+Alger Républicain Alger Républicain
+
+"Alger Républicain" d aɣmis ayallas i yesbedd Pascal Pia akked Paul Schmitt deg Lezzayer deg useggas n 1938.
+
+Aɣmis-a n uzelmaḍ, llan qedcen deg-s aṭas n Yezzayriyen. Gar Tuber 1939 d Fuṛar 1943, yettwagdel (yettwamneɛ) deg tmurt, sakkin, asmi i d-yuɣal ɣer tuffɣa, yuɣal d aɣmis asduklan (communiste).
+
+Deg Ctember 1955, imi i bedd ɣer yidis n Yezzayriyen i yellan ttnaɣen ɣef uzarug (indépendance) n tmurt-nsen, aɣmis-a yettwagdel tikkelt nniḍen, yerna aṭas seg wid i iqedcen deg-s ttwaṭṭfen (am unemhal-ines, Henri Alleg), neɣ ttwanɣan, am Henri Maillot, Georges Rafini, Ɛemar Xaluf, Ɛabd Lqader Ben Ɛmara, Muṛad At Saɛda d Ɛebd Lqader Cuxal. Deg 17 Yulyu 1962 (s deffir ma tewwi Lezzayer azarug-ines), "Alger Républicain" yuɣal-d ɣer tuffɣa, yerna yuɣal d netta i d aɣmis Azzayri i d-yessuffuɣen amḍan ameqṛan akk n tsukan (exemplaires) (75.000 yal ass).
+
+S waya, "Alger Républicain" yella yugar aɣmis n "Le Peuple" (n Terni n Weslelli Aɣelnaw). Deg 1964, imḍebbren n "Alger Républicain" qeblen ad rren aɣmis-nsen d win n Terni n Weslelli Aɣelnaw, sakkin, deg 1965, s deffir ma tella-d tuttya-nni taserdasit i deg Hewwari Bumedyen yesseɣli Ḥmed Ben Bella, anabaḍ Azzayri yesddukkel iɣmisen n "Alger Républicain" d "Le Peuple" yerna yerra-ten d yiwen weɣmis umi isemma "El Moudjahid". S deffir n tedyanin n Tuber 1988, "Alger Républicain" yuɣal-d ɣer tuffɣa, maca ɣef ljal n wuguren i d-yemlal, yeḥbes deg 1994. Seg yimir-nni, yuɣal itteffeɣ-d seg-a ɣer da, tikkal yal dduṛt, tikkal yal ayyur, xas akken mazal yesɛa uguren. Albert Camus d Kateb Yasin seg wid i d-yuran imagraden deg weɣmis-a.
+Molière Molière
+
+Jean-Baptiste Poquelin yettwassnen s yisem-nnes n unaẓur n Molière (ilul deg 15 Yennayer 1622 deg Paris - yemmut deg 17 Furar 1673 deg temdint-nni), d amaru n tmezgunin yerna d asegbar (acteur) n umezgun, d yiwen seg wuẓwiren imeqranen n tmellaɣt (comédie) deg tmura tutrimin. 
+
+Gar tmezgunin yettwassnen n Molière llant: 
+
+
+Moilère yenker-d deg yiwet n twacult d tamerkantit yerna d aya ay as-igan ifadden akken ad yekcem ɣer umezgun. Yeqdec 13 n yiseggasen d asegbar (acteur) ay itteddun seg wemkan ɣer wayeḍ akken ad yurar timezgunin, yerna aya iɛawen-it akken ad igerrez tamussni-nnes deg usseḍsi n medden asmi ay yebda yettaru.
+
+Imi ay yella yessen kra n warisṭuqraṭen, iṣaḥ-it-id ad d-yurar timezgunin sdat ugellid n Fransa, Louis wis 14 deg leqṣer n Louvre. D aya ay yejjan agellid ad as-yefk yiwet n tzeɣɣa deg Louvre akken ad yetturar deg-s timezgunin. Sakkin, agellid iɛemmed-as i Molière ad yurar timezgunin ula deg Leqṣer Ageldan (Palais-Royal), dɣa d aya ay yejjan Molière ad yeqqel mechur mliḥ gar yimezdaɣen n Paris s tmezgunin-nnes yesseḍsayen, yerna tagrawt n Molière qqlen ɣɣaren-as "Tagrawt n Ugellid [Troupe du Roi]". 
+Maca, ɣas ma yella Molière yella yesseḍsay, llan kra ay yebdan kkaten-d deg tmezgunin-nnes yerna ttwalin-tent xulfent imenzayen akked ddin (gar-asen imḍebbren n Taklizt Takaṭulikt). 
+Tamezgunt n Tartuffe ou L'Imposteur (Tartuffe Axeddaɛ) iga-tt Molière akken ad d-iwet deg yergazen n wesɣan (ddin) ay ixeddɛen medden, dɣa d aya ay yesserfan taklizt. Seg tama niḍen, Molière yella iqeddec aṭas yerna aya yesseɛya tazmert-nnes, dɣa ɣef waya ay yeḥbes leqdic deg 1667 akken ad yesgunfu. Deg wass aydeg ara yemmet, deg 1671, Molière yella yetturar-d tamezgunt-nnes taneggarut, Le Malade Imaginaire (Amuḍin asugnan), dɣa teṭṭef-it yiwet n tusut d tameqrant (imi ay yella yuḍen tideggirt (tuberculose). Ɣas ma yella ikemmel urar arma ay tfuk tmezgunt-nni, Molière yemmut kra kan n tsaɛtin sakkin.
+Amugay n waman Amugay n waman
+
+Amugay n waman (Assaɣ ussnan: "Bubalus bulalis") d talmest yeṭṭafaren adu-twacult n tfunasin seg tfesna n tmestuga, Talmest-a tettidir deg kra n tmura n Tefriqt d Asya am: Miẓra d Lhend.
+Belize Belize
+
+Belize d tamurt n Temrikt Talemmast. Tajumma-nnes 22.966 km2 (yikilumitren imkuẓen). Zedɣen-tt 387,879 n yimezdaɣen (2017). Tamaneɣt-nnes d Belmopan.
+Belmopan Belmopan
+
+Belmopan d tamaneɣt n tmurt n Belize. Zedɣen-tt 20.000 n yimezdaɣen.
+Ikidni Ikidni
+
+Ikidni (asget: ikidniyen) d aɣersiw asuṭṭaḍ yettarwen timellalin, yedder deg Ustralya ed Ginya Tamaynut. Tafekka-nnes dlen-tt yisennanen, yesɛa aqamum d aquran, yeɣɣaz imerjan yerna ittett ibeɛɛac. Ikidni seg terbaɛt n yiɣersiwen umi ɣɣaren imunutrimen. Yezmer ad yaweḍ 25 n yisantimitren deg teɣzef.
+Antraktika Antraktika
+
+Antractikad y amenẓaw id yezgan deg tama n wneẓul n tegnit. Tajumma-nnes 14.000.000 km2 (yikilumitren imkuẓen). Ur llin yimezdaɣen urkiden deg umenẓaw-a, maca llan wazal n 1000 n yimezdaɣen imaranen, amur ameqran seg-sen d imusnawen seg tmura yemgerraden n umaḍal.
+Amaḍal Amaḍal
+
+Amaḍal (asget : imaḍalen), deg tarakalt (géographie) netta d Tagnit (lqaɛa) ayɣef nedder s lekmal-nnes. Neɣɣar-as daɣen « ddunit ».
+
+Amaḍal deg-s 6 n yigarawen : Agaraw Amelwi (Pacifique), Agaraw Aṭlasi, Agaraw Ahendi, Agaraw Arkti, Agaraw Antarktik. Deg-s daɣen 6 n yimenẓawen : Asya, Tamrikt, Tafriqt, Turuft, Tukyanust ed Tantarktit.
+
+Igarawen ed waman dlen 70,8% seg tjumma (superficie) n umaḍal. Tajumma-nnes 510.072.000 km2 (yikilumitren imkuẓen). Gar-asen 148.940.000 km2 d akal (28,8%) ed 361.132.000 km2 n waman. Amaḍal zedɣen-t 6,8 n yimelyaṛen n yemdanen.
+
+Llant deg umaḍal 194 n tmura timzirgin (indépendantes).
+Kosovo Kosovo
+
+Kosovo d akal ay d-yezgan deg wenẓul (sud) n Serbya. Ugar n 88% seg yimezdaṣen n Kosovo d Albaniyen inselmen, ma d 7% seg-sen d Iserben. 
+
+Deg 1999, nnuɣen ed Yiserben akken ad awin timunnent-nsen (indépendance), d aya ay yejjan iɣallen n Temsisit Taṭlasit (Alliance Atlantique) akked Yeɣlanen Yeddukklen ad d-gren iman-nsen. Deg 2008, anabaḍ (lḥukuma) n Kosovo tesseɣret-d (déclarer) timunnent, maca aṭas n tmura deg umaḍal ur steɛṛfent yes-s yerna Serbya mazal-itt tettwali-t d aḥric seg wakal-nnes yellan ddaw udabu n Yeɣlanen Yeddukklen. Tajumma-nnes 10.908 km2 (yikilumitren imkuẓen). Zedɣen-t 1.804.838 n yimezdaɣen. Tamaneɣt-nnes d Pristina.
+
+Aselway: Atifete Jahjaga (2011).
+
+Aneɣlaf Amezwaru: Isa Mustafa (2014).
+Pristina Pristina
+
+Pristina d tamaneɣt n Kosovo, tezga-d deg tlemmast tagmuḍant (centre-est) n tmurt, zedɣen-tt 550.000 n yimezdaɣen.
+Bolivia Bolivia
+
+Bolivia d tamurt n Temrikt n Wenẓul. Tajumma-nnes 1.098.581 km2 (yikilumitren imkuẓen). Zedɣen-tt 10.907.778 n yimezdaɣen (Iboliviyen). Timunaɣ-nnes d La Paz akked Sucre.
+La Paz La Paz
+
+La Paz d tamaneɣt n tedbelt (administration) n tmurt n Bolivia. Zedɣen-tt 877.363 n yimezdaɣen.
+Sucre Sucre
+
+Sucre, d tamaneɣt n Bolivia (deg tmenḍawt [Constitution]). Zedɣen-tt 225.000 n yimezdaɣen.
+Kingston (Jamaica) Kingston (Jamaica)
+
+Kingston d tamaneɣt n Jamaica. Tezga-d deg wenẓul-agmuḍan (sud-est) n tmurt yerna zedɣen-tt 651.880 n yimezdaɣen.
+Addis Abeba Addis Abeba
+
+Addis Abeba d tamaneɣt n Ityupya. Zedɣen-tt 3.384.569 n yimezdaɣen.
+Xerṭum Xerṭum
+
+Xerṭum d tamaneɣt n Sudan. Zedɣen-tt 639.598 n yimezdaɣen (5.274.321 s tmiwa ay d-yezzin fell-as).
+Iɣef Azegzaw Iɣef Azegzaw
+
+Iɣef Azegzaw d tamurt n tegzirin ay d-yezgan deg utaram n Tefriqt (deg Ugaraw Aṭlaṣi) tajumma-nnes 4.033 km2. Zedɣen-tt 567.000 n yimezdaɣen. Tamaneɣt-nnes d Praia.
+Praia Praia
+
+Praia d tamaneɣt n tmurt n Yiɣef Azegzaw. Tezga-d deg tegzirt n Santiago. Zedɣen-tt 127.832 n yimezdaɣen.
+Cardiff Cardiff
+
+Cardiff (Tagalict : Caerdydd) d tamdint n Briṭanya Tameqrant, d tamaneɣt n Tmurt n Yigaliyen. Zedɣen-tt 324.800 n yimezdaɣen (amelyun n yimezdaɣen s yegmamen [neighbourhoods] ay d-yezzin fell-as).
+Tamurt n Yigaliyen Tamurt n Yigaliyen
+
+Tamurt n Yigaliyen (s tgalict: Cymru; s tanglizit: Wales; s tefrensist: "Pays de Galles"), d aḥric n Tgelda Yeddukklen, yezga-d deg utaram (lɣerb) n Langliz. Tajumma-nnes 20.779 km2 (yikilumitren imkuẓen). Tamurt n Yigaliyen zedɣen-tt 2.999.300 n yimezdaɣen (Igaliyen). Tamaneɣt-nnes d Cardiff.
+Tirana Tirana
+
+Tirana d tamaneɣt n tmurt n Albanya, tezga-d deg utaram n tmurt, ɣef yiri n Yilel Aderyati. Zedɣen-tt 811.649 n yimezdaɣen (2016). Tamdint-a teqqel d tamaneɣt n tmurt di 1920.
+Tayemmat Tayemmat
+
+tayemmat d tinn i yettawin mis-s deg uɛebbuḍ-is 9 n lechur, maca tettrebbi-t akken ilaq, tessahfaḍ-as ayen yelhan, ayen ara t-inefɛ ɣer sdat, di ddunnit-is...
+maca tayemma tesɛa amur ameqqran di ddunnit-ik.
+
+ɣef waya i ilaq ad nettqadar tiyemmatin nneɣ, maca ma temmut, ad as-nessawad dduɛat n lxir anda ma tella akken diɣ ad tt-yerḥem Rebbi AmeɛzuzTabulgart Tabulgart
+
+Tabulgart (s Tebulgart : "Bălgarski") d tutlayt i meslayen di Bulgarya, anẓul n Ukrayin, anẓul n Muldavya, anẓulagmuḍ n Serbya, agafagmuḍan n Legrig, Ṭṭerk, anẓul d utaram n Rumanya, Hungarya, Masidunya. Yerna d iles unṣib n tmurt n Bulgarya anida tettwaḥsab d tadersi taɣerfant.
+
+Meslayen azal n 8.500.000 yemdanen di Bulgarya (8.100.000); anẓul n Ukraynana (seg 165.000 ar 275.000); anẓul n Muldavya (seg 65.000 ar 100.000); anẓulagmuḍ n Serbya (31.000); agafagmuḍan n Legrig (30.000); Ṭṭerk (27.000); anẓul d utaram n Rumanya (10.000); Hungarya (3.000) ed Masidunya (2.000).
+
+Iles atrar, illa ibdan itban deg idlisen n lqern 17 d 18, iṭṭef ixef-nnes seg uzgen n lqern 19. 
+
+Tabulgart meslayen-tt di Bulgarya d tmura niḍen ( ), kkes kan tifuɣalin n Ifumaken. Di Bulgarya, tella iman-is d tutlayt tunṣibt, maca di tmura niḍen, sqqaren yis-s yiwet tutlayt n tsekla, ak uɣezdis n tutlayin tiyaḍ.
+Tadanict Tadanict
+
+Tadanict (isem aneṣli : "Dansk") d yiwet tutlayt tagermanikt i meslayen di tmura n Danmark, ugafa n Lalman ed wenẓul n Sswid ed tegzirt n Grönland. Meslayen-tt azal n 5.200.000 n yemdanen deg Danmark (5.100.000), Lalman (50.000) ed Sswid. D tutlayt tunṣibt n tgelda n Danmark ed tama ugafa n Lalman (deg uland n Schleswig-Holstein)ed Grönland aked Tinwit.
+
+Amezruy n tutlayt adanict tebda deg sin n wakuden: tin n tadanict taqburt (seg lqern wis 13 ar lqern wis 16) d win n tadanict tatrart (si lqern 16 ar ass-a). Tutlayt-agi tebda tettwari di lqern wis 13. Talmanit tebda tettaɣ deg-s seg uwettay alemmas. 
+
+Ak tikli n umezruy, Danmark texṣar aṭas n wakal-nnes. Skanen, i tella deg tama wenẓulan n Sswid, tella si lebda d tadanict, maca di 1658, tekkes-tt Sswid. Aḥewwes-a izzuɣar ar uḥewwes aseklan d ilsawan imɣaren, alemma tura, tadanict tadigant, ur ɣur-es iqqim usqari ula d umsawaḍ ak iles asmagnu n Danmark. 
+Tettwḥsab d yiwet tantala niḍen seg wawalen n Sswid. Ula d tutlayin ammen it-teḥṣaben. Ɣur-es iteqqnen arwas gar tadanict d taswidit. Imezdaɣ n temnaṭ-nni ur ɣar-sen iqqim laṣel adanic.
+
+Tadanict tella deg-es kraḍ (3) n tantalwin : tutrimt, talemmast d tunegmuṭ (anda iccden tilisa aked Sswid). Maca ass-a, tantalawin-a ttmettan, teqqim kan yiwet.
+Talsasit Talsasit
+
+Talsasit (isem aneṣli : "Elsässisch") d yiwet tutlayt i meslayen di Fransa di temnaṭ n Elsass. 
+
+Tigti deg imezdaɣ inaṣliyen ilimanen n Elsass meslayen-tt, kkes kan kra n tuddar deg utaram d wadday aydeg meslayen tafransist. Tutlayt-a tesegdel i udabu afrensis i weɣref d tenbad't di twala. 
+Tafinit Tafinit
+
+Tafinit (isem anesli : "Suomi") neɣ "Tafinlandit", "tasuwumit" d tutlayt i meslayen deg Finland(4.800.000), agafagmuḍ n Sswid, agafataram n Rrus, Agafa n Nurwij, Agafa n Isṭunya. D tutlayt tunṣibt ak iles niḍen n Finland.
+
+Tettwaḥsab d tadersi tagherfant: Agafagmuḍ n Sswid, Agafataram n Rusya.
+Comentaris
+Infinlanden, qqimen aṭas qqnen a Sswid d tsekla tugmiḍt. Taswidit, tutlayt n waṭas imsuggen i yezedɣen deg iftisen ifinlandiyen, tuɣal d tutlayt tameqqrant n Finland. Maca, tafinit ur twattu akk, di lqern wis 15, llan kra i yettarun-t, yerna adlis amezwaru i iqqimen yura s tutlayt-a nettat n tizi n lqern wis 16, asmi tebda tkennawt
+
+Iles asmagnu itwasexdmen zi lweqt-nni, immers x wawalen anz'ulagmud'an. Di lqern 17 d lqern 18, taswidit tuɣal d tutlayt tunṣibt, n tsekla d tɣuri tameqrant. Mi tekcem Rrus f Finland di 1809, ibeddel lḥal. Tafinit, illan d awal n uzgen ameqran n medden, tebda th'ewwas igran usexdem deg ill n lqern wis 19. Di lweqt d yiwet, ak taneflilt n tseklant tafinit, s tmessna n wensay n wegmuḍ n uwanek, tebda imessel tutlayt tasmagnut, illan d tamunt (compromís) gar awalen inẓuligmuḍan d win utrimen.
+
+Deg tfinit, iles irewsen di testunit, nettaf sin n waggayen n wawalen.
+The Doors The Doors
+
+The Doors d icennayen Iwunak Yedduklen n rock. Zenzen ugar si 100 imelayn n yidisken.
+
+Jean-lmuhub Ɛemruc Jean-lmuhub Ɛemruc
+
+Jean Ɛemruc, seg isem-is n tidett Jean lmuhub Ɛemruc, iluled ass n 6 fuṛaṛ 1906 deg yiwet taddart n tɣiwant n Iɣil Ɛli di Tmurt Taqbaylit, yemmut ass n 16 yebrir 1962 di Paris, d amaru, aneɣmas aseklan dɣa argaz n ṛṛadyu aqbayli-aṛumi yetmeslayen s tefransist.
+
+D mmi-s n Faḍma At Manṣur Ɛemruc dɣa d gma-s n tmeṭṭut n isekkilen Ṭawes Ɛemruc.
+Tumast Tumast
+
+Snuflen Tumast g iseggwasen n 90, umezwar-is d Musa Ag Keyna. Deg 1993, sakkin iseggwasen n imenɣi d isental. Musa ittut gar tayti, yunag s Fransa, sakkin ad-as tedukkel yes-s tacennayt Aminitu Gumar. 
+
+Anmuggar-is deg Paris ed yiwen anaẓur s yisem n Dan Levy yefka talalit i twuri-nes. D tanagit af iseggwasen n imenɣi d tixedɛet i Yimucaɣ. Arun af isental ay ḥemlen aṭas Imucaɣ deg uẓawan (tamdanit n tudert tillelit deg tneẓruft), af tayri, tudert irzagen ed ufran asertan.
+Zin Lɛabidin Ben Ɛli Zin Lɛabidin Ben Ɛli
+
+Zin Lɛabidin Ben Ɛli d aselway aqbur n Tunes. Yennejla deg wass n 15 Yennayer 2011 yerna d Fuɛad Mebazɛa ay yeqqlen d aselway uɛḍil deg wemkan-nnes. Ben Ɛli ilul deg 3 Ctember 1936 deg temdint n Ḥemmam Susa.
+Albrecht Dürer Albrecht Dürer
+
+Albrecht Dürer neɣ s telmant "Albrecht Dürer der Jüngere" (ilul deg Nürnberg, Bayern, deg 21 Mayyu 1471 - yemmut deg 6 Yebrir 1528), d amekla (peintre) yerna d amusnak (mathématicien) almani. Leqdicat-nnes n tẓuri rran-t mechur deg Turuft qbel ad yaweḍ 30 n yiseggasen deg tmeddurt-nnes, yerna ass-a, ttwalin-t d anaẓur ameqran n tallit n Tsidert (Renaissance) deg tmura n ugafa (nord) n Turuft. 
+
+Dürer iga-d tugniwin yeqqnen ɣer wesɣan (ddin), am wakken ay d-yekla (peindre) tugniwin n wudmanen n yemdanen ay yettwassnen, yerna iga-d tugniwin i yiman-nnes ula d netta. Dürer yella daɣen ineqqec-d tugniwin ɣef yiɣir (nnḥas), am wakken ay inejjer tugniwin ɣef wesɣar. 
+Deg yenqacen-nnes n wesɣar umi semman Amazrar n Tneggarut [Apocalypse] (deg 1498), Dürer yella mazal-it yettḍafar aɣanib aguti aqbur deg leqdic-nnes. Maca, deg leqdicat ay iga sakkin, yeḍfer aɣanib d amaynut. Tifelwiyin-nnes (tableau) mechuren am Amnay, Tamettant ed Uciṭan (deg 1513), San Hieronymus deg Tezrawin-nnes (1514) akked Melencolia I (1514) jebdent-d lwelha n yizaɣanen (critiques) yerna aṭas n wawal ay d-yellan fell-asent deg wayen yerzan inumak-nsent. 
+Dürer iga-d daɣen tikla s waman. Tifelwiyin-nnes n waman d tid aydeg d-iṣewwer imeẓriyen (paysages), yerna Dürer d yiwen seg yinuẓar uṛufiyen imezwura ay d-iṣewwren imeẓriyen. Daɣen, iqeddicen-nnes deg wenrar n wenjar n wesɣar d wid ay yesnernan mliḥ taẓuri-a deg leqrun ay d-iḍefren. Dürer yella yessen inuẓar iṭalyanen ed yelsaẓriyen (humanistes) almanen, dɣa d aya ay as-iledyen abrid akken ad d-yessekcem aɣanib aṭalyani n tẓuri deg Tsidert (Rennaissance) n tmura n ugafa n Turuft. 
+Seg tama niḍen, Dürer yura-d daɣen iqeddicen ɣef tusnakt. Albrecht Dürer yemmut deg temdint n Nürnberg.
+Wichita Wichita
+
+Wichita d tamdint n Yiwunak Yeddukklen, tezga-d deg uwanak n Kansas, zedɣen-tt 357.698 n yimezdaɣen.
+Wellington Wellington
+
+Wellington d tamaneɣt n Ziland Tamaynut, tezga-d deg wenẓul-utrim (sud-ouest) n Tegzirt n Ugafa. Zedɣen-tt 389.700 n yimezdaɣen.
+Auckland Auckland
+
+Auckland d tamdint n Ziland Tamaynut, tezga-d deg ugafa-utrim (nord-ouest) n Tegzirt n Ugafa. D nettat ay d tamdint tameqrant akk deg tmurt. Zedɣen-tt 1.354.900 n yimezdaɣen.
+Burbank Burbank
+
+Burbank d tamdint n Yiwunak Yeddukklen, tezga-d deg tama n Los Angeles (deg California). Zedɣen-tt 103.340 n yimezdaɣen.
+Nanjing Nanjing
+
+Nanjing d tamdint n wegmuḍ (ccerq) n Ccinwa yerna d tamaneɣt n temnaḍt n Jiangsu. Zedɣen-tt 7.713.100 n yimezdaɣen.
+Jiangsu Jiangsu
+
+Jiangsu d tamnaḍt n wegmuḍ n tamurt n Ccinwa. Tajumma-nnes 102.600 km2 (yikilumitren imkuẓen). Zedɣen-tt 77.245.000 n yimezdaɣen. Tamaneɣt-nnes d Nanjing.
+Belleville (Ontario) Belleville (Ontario)
+
+Belleville d tamdint n Kanada, tezga-d deg wenẓul n temnaḍt n Ontario. Zedɣen-tt 48.821 n yimezdaɣen (91.518 s yegmamen ay d-yezzin fell-as).
+Ontario Ontario
+
+Ontario d tamnaḍt n Kanada, tezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 1.076.395 km2 (yikilumitren imkuẓen). Zedɣen-tt 13.210.667 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Toronto. Deg temnaḍt n Ontario ay d-tezga Ottawa, tamaneɣt n Kanada.
+Ottawa Ottawa
+
+Ottawa d tamaneɣt n Kanada. Tezga-d deg wenẓul-agmuḍan (sud-est) n tmurt, deg temnaḍt n Ontario. Zedɣen-tt 812.129 n yimezdaɣen.
+Boston Boston
+
+Boston d tamdint n Yiwunak Yeddukklen yerna d tamaneɣt n Massachusetts. Zedɣen-tt 4.522.858 n yimezdaɣen.
+Ṭrables (Lubnan) Ṭrables (Lubnan)
+
+Ṭrables d tamdint n ugafa (nord) n Lubnan, zedɣen-tt 192.572 n yimezdaɣen (530.000 s yegmamen ay d-yezzin fell-as).
+Sacramento Sacramento
+
+Sacramento, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n California. Zedɣen-tt 2.527.123 n yimezdaɣen.
+Santa Fe Santa Fe
+
+Santa Fe d tamdint n Yiwunak Yeddukklen yerna d tamaneɣt n Miksik Amaynut. Zedɣen-tt 183.732 n yimezdaɣen.
+Memphis Memphis
+
+Memphis d tamdint n tlemmast n Yiwunak Yeddukklen, tezga-d deg uwanak n Tennessee. Zedɣen-tt 676.640 n yimezdaɣen (1.280.533 s yegmamen ay d-yezzin fell-as).
+Portland Portland
+
+Portland d tamdint ay d-yezgan deg ugafa-utrim (nord-ouest) n Yiwunak Yeddukklen, deg uwanak n Oregon. Zedɣen-tt 582.130 n yimezdaɣen.
+Nashville Nashville
+
+Nashville d tamdint n Yiwunak Yeddukklen, tezga-d deg uwanak n Tennessee. Zedɣen-tt 635.710 n yimezdaɣen (1.666.566 s yegmamen ay d-yezzin fell-as).
+Hartford Hartford
+
+Hartford, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n Connecticut. Zedɣen-tt 1.212.381 n yimezdaɣen.
+Lansing Lansing
+
+Lansing d tamdint n Yiwunak Yeddukklen yerna d tamaneɣt n Michigan. Zedɣen-tt 464.036 n yimezdaɣen.
+Saint Paul Saint Paul
+
+Saint Paul d tamdint n Yiwunak Yeddukklen yerna d tamaneɣt n Minnesota. Zedɣen-tt 3.502.891 n yimezdaɣen.
+Sung Jae-gi Sung Jae-gi
+
+Sung Jae-gi(Takurit:성재기, Ccinwa:成在基, ilul di 11 ctamber 1967 deg Daegu, g tmurt n Tutrict – yemmut di 26 yulyu 2013 deg Mapo, Seoul) yella d Human right activists ay afilusuf, aselway n Kurya n Wenẓul. Yeḥkem s ukabar i t-ixelqen deg 2008, d Association of Korean male(남성연대 男性連帶).
+
+Trojany Trojany
+
+Trojany d taddart deg wanẓul-agmuḍ n Lapologne. D daxel n Masovian Voivodeship. 490 yemdanen zedɣen deg-s (aseggas : 2014).
+Raffaello Raffaello
+
+Raffaello Sanzio, d anaẓur aṭelyani.
+Marco Reus Marco Reus
+
+Marco Reus (ilul ass 31 magu 1989 di Köln, Lalman) d amarir agreɣlan alalmani n tkurt uḍar yetturaren deg umḍiq umentag deg tarbaɛt n Borussia Dortmund akked tarbaɛt taɣennawt n tmurt Lalman.
+André Schürrle André Schürrle
+
+André Schürrle (ilul ass 6 wamber 1990 di Ludwigshafen, Lalman) d amarir agreɣlan almani yetturaren deg umḍiq umentag di tarbaɛt taglizit Chelsea akked tarbaɛt taɣennawt n Lalman.
+Ronald Reagan Ronald Reagan
+
+Ronald Wilson Reagan ilul ass n 6 fuṛaṛ 1911 u yemmut ass n 5 yunyu 2004.
+U2 U2
+
+U2 d icennayen n rock. Zenzen ugar si 170 imelayn n yidisken.
+
+Uzzal Uzzal
+
+Uzzal d aferdis akruran, uzamul-is (Fe) aked wuṭṭun abelkam 26, d-asdal iy yettilin s waṭas deg tgama d umaḍal imi id yettwasnen seg zik,Jaber ben hayyan Jaber ben hayyan
+
+Ǧaber Ben Hayyan ("jaber ben heyyan جابر بن حيان") d Amusnaw inslem ilul-d di Surya aseggas n 721 yetswassen belli d netta id-yesnulfan Ccimya ( al Ximya'e الخمياء) tamaynutt , yeǧad aṭas n itsaftsaren ɣef ayagi ,yemmuth di Lɛiraq deg useggwas n 815.
+Ameskan Ameskan
+
+=Amudlif, anagraw n uglam n tmudmin=
+
+=Amudlif=
+
+Amudlif (imudlifen), d awal i d-neddem seg umawal n tesnilest yura Mass BERKAÏ Abdelaziz <nowiki>"</nowiki>Lexique de la linguistique Français-Anglais-Tamazight<nowiki>"</nowiki>, agdazal-is s tutlayt tafransist d <nowiki>"</nowiki>Diagramme<nowiki>"</nowiki>. Deg tẓuri n wurigami ila anamek n unagraw n uglam n telkam n uḍfas n tmudemt. D aɣawas ideg ara yaf umurigam akk tilɣutin ara as-yemmlen amek ara as-d-yales i uḍfas n tmudemt akken tella yakan. D netta ara aɣ-iwelhen akken ad neḍfes iḍefsen-nneɣ yiwen yiwen, akken d-mmizwaren, alamma tekfa tmudemt. Nezmer ad nini llan ukuẓet (4) tɣariwin i yes-s nezmer ad nesseɣnew ameskan. Yalla umeskan asunɣan, ameskan n tewlafin, ameskan asinan akked wayen i umi nettini asaru awezlan. Ɣas temgared talɣa-nsen iswi-nsen yiwen, d awelleh n umurigam akken ad yezmer ad yales i yiḍefsen n tmudemt neɣ amek ara tt-id-yeglem mi ara tt-id-yesnulfu. Yal ameskan yesɛa isem-is akked wanda i yessefk ad t-nessemres.
+
+=Amezruy awezlan n umudlif=
+Takti tamezwarut n umudlif teffeɣ-d deg udlis d-nudder usawen i umi ttinin : Aḍfas n wagim iɣernuqen "Senbazuru Orikata" yura Rokoan Gido i d-yeẓreg deg useggas 1797 deg tmurt n Jjapun. Nnan-d fell-as inmezrayen, d netta i d adlis amezwaru deg umḍal i d yemmeslayen s yiwet n tmuɣli yemmden ɣef tẓuri n wurigami. Deg isebtar-a, yedda-d deg-s wunuɣ n tmudem, iwenniten akked yiɣawasen imeẓyanen n wamek ara neḍfes tamudem.
+
+S umata d unuɣen ur nesɛa ara assaɣ gar-asen. Ulac win i d-yefkan amek ara neḍfes iḍefsen n tmudemt seg umezwaru alamma d aneggaru. Maca akken yebɣu yili, d netta i d ababat n umeskan atrar i ssemrasen tura yimurigamen. 
+Sakin, deg tallit tartar, rnan-d yedlisen nniḍen i d-yessumren inagrawen i ɛerḍen ad mmlen amek i d-yettili umussu n uḍfas. D inagrawen ẓẓayen acku ggten deg-sen izamulen akked wunuɣen, yal aḍefs ssunuɣen-as aɣawas. Llan wid d yessumren ahdum n tewlafin i uḍefs… Ulac anagraw n uḍfas i qeblen yimurigamen n umḍal d amudlif. Armi d Aseggas n 1954 i d-yessumer umurigam Akira Yoshizawa yiwen n unagraw afessas i yes-s nezmer ad neglem tamudemt. Yessufeɣ-it-d deg tirawt i umi isemma : Taẓuri n wurigami amaynut ‘’Atarashi Origami Geijutsu’’ (New Origami Art) deg useggas n 1954. Yessemres aderrir s tneqqiḍin akken ad yemmel amek ara d-yili, ɣef umedya, uḍefs adrar akked uḍefs iɣzer. Yerna-as kra izamulen amedya n uzamul ‘’taneccabt n ucuffu’’...
+
+Anagraw-a, iger-as tamawt Mass Samuel Randlett akked Robert Harbin imarikaniyen, segmen-t ugar, rnan-as kra izamulen amedya n uzamul ‘’tineccabin n tuzzya’’… Akka i d-yeffeɣ umudlif neɣ ayen i umi ttinin anagraw Yoshizawa-Randlett. Anagraw-a, yettwaglem-d i tikkelt tamezwaru, s wudem unṣib deg udlis n Samuel Randlett i umi isemma : Taẓuri n Wurigami, Aḍfas n Ukaɣeḍ, seg Unsayan ɣer Utrar (The Art of Origami; Paper Folding, Traditional and Modern). Iẓreg-d deg tmura yedduklen n temrikt, deg useggas n 1961. 
+
+Seg d-yeffeɣ unagraw-a, msefhamen akk fell-as, qeblen-t merra yimurigamen akked tmuriganin n umḍal. D win i d yeggran ar ass-a nessemras-it, nettini-as amudlif asunɣan. Sakin rnan sɣenwen-d amudlif nniḍen ideg ssemrasen tiwlifin, ttinin-as amudlif n tewlifin. Yerna iḍfer-it-id usaru awezlan i nettaf s umata deg Youtube (Anternet). Ɣer taggara-a, yeffeɣ-d umudlif nniḍen i umi ttinin amudlif asinan. D amudlif ssemrasen i tetwilt n wurigami azegriran.Iferki Iferki
+
+Iferki d tanga tusdidt (rqiqen) id yettwaxdamen s ugilim n iferki id yettwaxdamen s uttekki n isirgen isililuzen n yimɣan, iferki tettusexdem i tiri d usuneɣ d ujellel
+
+Amuran Amuran
+
+Tabadut n wawal amuran 
+
+Amuran, s tutlayt tafransist ttarunt akka: "Mauresque", d arbib yesɛan amalay akked wunti. Nettaru amalay-is akka : Amuran (imuranen). Ma nsers-it deg waddad amaruz, ad t-naru akka : Umuran, yimuranen. Ma d unti-s nettaru-t akka : Tamurant (timuranin). Ma nsers-it deg waddad amaruz, ad t-naru akka : Tmurant (tmuranin). Amuran d awal i d-yekkan seg yisem Amuri yesɛan ula d netta amalay akked wunti. Asegget-is nettaru-t akka : imuriyen. Mi ara ten-sers deg waddad amaruz, ad ten-naru akka : Umuri (yimuriyen). Ma d unti-s nettaru-t akka : Tamurit (Timuriwin). D awal i d-yekkan seg yisem Amur.
+Amur, anamek-is d akal, d ayla, d aḥric… Nettini : Wa d amur-iw, d ayla-w, d aḥric-iw…” Mi ara ad as-nernu ‘’t’’ n wunti yettuɣal akka : t + amur + t = tamurt” . Zik timetti-nneɣ, am akk timttiwin n yiɣerfan n umḍal, tella tebḍa ɣef sin. Llan wid i umi nettini Imuriyen (at Umur, wid yesɛan amur n wakal), d imdanen yedren deg yiwen n umḍiq. Ttidiren yimuriyen deg tiɣremt, bennun ixxamen-nsen s weẓru, xedmen tafellaḥt… Llan daɣen wid i umi ttinin Imaziɣen, d imdanen ilelliyen yedren deg ugar n yiwen umḍiq, leḥḥun seg temnaḍt ɣer tayeḍ. S umata, Imuriyen dren deg ugafa n tmazɣa, ma d Imaziɣen deg unẓul. Igelliden amedya n Gaya, Masensen, Sifaks, Yuba amezwaru, Yuba wis sin… d Imuriyen. Takfarinas… d Amaziɣ. Tura d isem Amaziɣ i newwi d isem-nneɣ, ad yili ahat imi anamek-is d tilelli… Akka i d amdan, yezga yettnadi ɣef wayen i t-ixuṣṣen.Urigami azegriran Urigami azegriran
+
+D acu i d urigami azegriran ?
+
+Urigami azegriran d tawsit seg ger tewsatin n tẓuri n wurigami. D aḍfas n tmudemt s wugar n yiwet n tferkit. Yal tiferkit d aferdis ara nesdukel akked wiyaḍ i as-yeččabin s uḍefs neɣ s usmikcem n wa deg wa alamma tekfa tmudemt. Aferdis-a nettini-as azegrir, asegget-is nettaru-t akka : Izegriren. Akk izegriren s umata kifkif-iten. Asnulfu n tmudemt s yizegriren yebḍa ɣef sin yeswiren. Aswir n usnulfu amezwaru, yers ɣef usnulfu n tmudemt n uzegrir sakin ad neḍfes ssegsen aṭas. D azegrir-nni ara nessemres d azadur i usnulfu n tmudmin yesɛan talɣa i nebɣa amedya n talɣa n uɣersiw, n umdan, n tɣawsiwin nniḍen… Akken tebɣu tili talɣa n tmudemt i nebɣa ad nesnulfu, yessefk ad nheggi aṭas n yiferdisen neɣ ayen i umi nettini : Izegriren. Izegriren yellan deg unrar aẓuran n wurigami azegriran mmeẓlen, seg wa ɣer wa. Llan kra sɛan tazmert akken ad nesnulfu yes-sen aṭas n tmudmin yemmeẓlen deg talɣa amedya n uzegrir ‘’ Akedis uslig bu 4 leǧyub’’. Nezmer ad nini fell-as d azegrir ara yefken tilelli tameqqrant i umurigam ad yesnulfu tamudemt i yebɣa akken tebɣu tili talɣa-as... Llan daɣen izegriren nniḍen amedya n uzegrir ‘’Amkuẓ uslig n wudmawen’’, snat talɣiwin kan ara nezmer ad neḍfes yes-s, tamudemt takurant neɣ tin n ugasas. Ɣef umedya, ur nzemmer ara ad nesnulfu tamudemt n walbaɛḍ iɣersiwen… Yezmer ad yili uzegrir d asnulfu-nneɣ, am wakken yezmer daɣen ad yili yekka-d ansi nniḍen. Ulac deg-s aɣilif ma nerḍel-it-id ɣur umurigam nniḍen akken ad nesnulfu tamudemt-nneɣ. 
+Aswir wis sin, d asnulfu n tmudemt i nebɣa s usemdey neɣ asali n yizegriren. Asemdey yettili-d s useḍfes neɣ s usmikcem n wa deg wa akken ad nessileɣ talɣa i nebɣa ad as-tt-nefk i tmudemt-nneɣ. D wa i d iswi ayiwen n uzegrir. Ugur yellan deg tewsit-a n wurigami, d ameskan. Aglam n usemdey neɣ asali n tmudemt deg wurigami azegriran akken ad yezmer menwala ad as-d-yales, taswiɛt-a, mazal i as d-nufa iɣef-is akken ilaq. Yal amurigam yettaɛraḍ ad d-yessumer ameskan ara yefrun ugur-a.
+
+Amezruy awezlan n tẓuri
+
+Adlis amezwaru i d-yemmeslayen ɣef wurigami azegriranr yura-t ujapuni Hayato Ohoka, iẓreg-d deg useggas 1734, azwel-is : Ranma Zushiki. Ad naf deg-s yedda-d ugasas n ukaɣeḍ yesɛan 6 izegriren yemmeẓlen deg yiniten. D agasas i umi fkan isem n tamatebaku (tamatebako).
+
+Deg useggas 1993 i d-yenna Yasuo Koyanagi belli agasas-a d win akken i umi ttinin Tamatebaku deg tenfust n useyyad iselman. Sakin d mass Masao Okamura, anmezray n wurigami i d-itebten ayen i d-yenna yakan Yasuo Koyanagi. Ɣas akken ulac ameskan n ugasas-a, Masao Okamura yules-as-d i tmudemt.Tamatebaku Tamatebaku
+
+Tanfust n ugasas Tamatebaku (Tamatebako)
+
+Tamatebako d tafniqt neɣ d ayen i umi nettini tabwaḍt n ukaɣeḍ, tedda-d deg yiwet n tenfust taqburt n tmurt n Japun. D tanfust n yiwen n uṣeyyad n yiselman isem-is Urashima Taro (asusru-s d wa : Uracima Taru). Ass-nni yella yettmerriḥ ɣef yiri n yillel, iteddu ɣef yejdi armi yufa igurdan tturaren s yiwet n tefkert n wanan, ssulin-as tasawent… Asmi iwala lbaṭel sɛeddan fell-as, yekker yekkes-asen-tt, yerra-tt s aman, truḥ. Maca tifkert-nni d tageldunt, d yellis n ugellid n yillel
+
+I wakken ad as-ter lxir, tageldunt Otohim (asusru-s d wa : Uṭuhim), akka i d isem-is, tenced-it-id ɣer tgelda-s yellan ddaw waman akken ad as-terr tajmilt. Mi yewweḍ ɣer teɣremt Ryugu-jo (asusru-s d wa : Ryugu-ju) yellan ddaw waman n yillel, yewhem, iɣil d targit i yettargu seg waken tecbeḥ. Yeqqim din kraḍ (3) wussan, ixaq, icedha ad yuɣal s axxam-is, ad iwali imeddukal-is… Yekker yessuter i tgeldunt Otohim ad terr ansi d-yekka. Asmi twala akken, qbel ad t-id-err s akal n tmurt-is, tefka-as asefk, d tabwaḍt ireqmen s ureɣ akked yeẓra ɣlayen, maca tweṣṣa-t tenna-as : “Ḥader ad teldiḍ tabwaḍt-a”. 
+Mi d-yuɣal Urushima s akal, yufa ziɣ mačči 3 wussan i d-yesɛedda maca 300 iseggasen. Kullec ibeddel, ixxamen, iberdan, imeddukal-is akk mmuten, ulac win i t-yesnen. Iteddu weḥd-s armi d-yemlal d yiwen wemɣar yesteqsat, yenna-as ma yella wasmi i yesla ttmeslayen-d medden ɣef yiwen wemdan isem-is Urashima Taro. Yerra-as-d wemɣar-nni, yenna-as ih, sliɣ nnan-d fell-as iruḥ s illel, 300 iseggasen aya, seg wass-nni ur d-yuɣal.
+Ɛeddan wussan, ur yufa ara iman-is. Yemmekta-d tabwaḍt-nni i as-d-tefka tgeldunt, yeddem-it-id yeldi-tt, yebɣa ad iẓer d acu i yellan daxel-is. Dɣa, yeffeɣ-d wabbu amellal, am tagut yers fell-as. Din din icab, yuɣal d amɣar awessar yesɛan deg leɛmer-is 300 iseggasen. Cwiṭ akka yesla i taɣect n tgeldunt Otohim as-d-sbecbuc s ameẓẓuɣ-is, tenna-as ; “Yak nniɣ-ak ur leddi ara tabwaḍt-nni acku yella deg-s leɛmer-ik n tidet”. I lmend n tmacahut-a i d-snulfan tamudemt n ugasas i umi ttinin : Agasas Tamatebaku.Urigami n tusnakt Urigami n tusnakt
+
+Urigami n tusnakt
+
+Urigami n tusnak d timlilit n tussna d tẓuri. Ayen iceɣben inaẓuren n wurigami n tusnakt, d asemres n talɣiwin tinzegganin, amedya n umkuẓ, asrem, akerdis… S umata d timudmin timadwanin. D tamzizzelt n wanwa ara iḍefsen tamudemt yesɛan ugar n yiḍefsen ɣef tayeḍ. D asnulfu n tmudmin ideg gten iḍefsen, d tid iweɛren aṭas. Ttwalin daɣen taẓuri-a d allal i yes-s zemren ad zerwen talɣiwin n telwiḥin n ugensa amek i tezmer ad tili tigawt n tuldi deg igenni; ḍefsen-tent deg tazwara s ukaɣeḍ.Urigami addayan Urigami addayan
+
+Urigami ameẓradday
+
+Urigami ameẓradday, s tutlayt tafransist ttarunt akka <nowiki>"</nowiki>Origami minimaliste<nowiki>"</nowiki>. D aḍfas n tmudmin ur nesɛa ara aṭas n yiḍefsen. Tatwilt-a d tanemgalt n tetwilt n wurigami n tusnakt yesṭuqquten iḍefsen, yessemrasen tussna i usnulfu n tamudemt. S umat, d timudmin ur nesɛa ara ugar n ukuẓ (4) neɣ semmus (5) n yiḍefsen. Maca temgared tmuɣli seg umurigam ɣer wayeḍ, kra ttinin-ak aḍfas n tmudemt ur yessefk ara ad ilin deg-s ugar n sa (7) n yiḍefsen.Aḍefs Aḍefs
+
+=D acu i d aḍefs ?=
+Aḍefs s umata d izirig-nni iɣef ara tili tigawt n uḍfas neɣ d win akken ara d-yeǧǧ uḍefs mi ara yeldi. D aḥric-nni yettin ɣef yiman-is n ukaɣeḍ neɣ n ubeḥnuq… Yettak deg taggara i tɣawsa-nni tuzert tusligt amedya n yiḍefsen n tsebbaḥrut. Deg tẓuri n wurigami, iḍefsen merra yellan sɛan isem d wamek i yessefk ad ten-neḍfes. Aḍefs yezmer ad yili d aḥerfi amedya n uḍefs iɣzer neɣ adrar. Am wakken i yezmer ad yessegrew ugar n yiwen n uḍefs amedya n uḍefs Zad, yesɛa sin. Iḍefsen yesɛan ugar n yiwen, nettini-as aḍefs uddis. Yalla daɣen uḍefs uɣḍim, d win akken ara neḍfes sakin ad t-neldi. Yeǧǧaǧǧa-d izirig iɣef nettawi lewhi akken ad neḍfes iḍefsen nniḍen.
+
+Mi ara tegrem tamawt, ad tafem llan yiḍefsen yewwin ismawen n uzamul i ten-id-yemmalen. Amedya n Za, d isem n uḍefs, d isem daɣen n uzamul i t-id-yemmalen. Ɣef way-a i nettwali iḍefsen, deg tẓuri n wurigami, amzun akken d iluɣma ara ken-iɛiwnen akken ad tecfum ɣef yizamulen. I waken ad tishil tɣuri n umeskan asunɣan, ad negzi iwenniten i d-iteddun yid-s, yessefk ad nissin ismawen akked wamek i d-iḍerru uḍfas n yakk iḍefsen yellan. Ttini-ak : Simmal nettales-d i tɣawsa, simmal nlemmed-d seg-s kra.Urigami aẓuran Urigami aẓuran
+
+=Urigami aẓuran=
+D amurigam Yoshizawa Akira i d-inejren tawsit i wurigami aẓuran i nessen tura. D tawsit yersen ger usreqqet akked uḍfas s usemres n tetwilt n usebzeg n ukaɣeḍ. Tawsit-a temla-aɣ-d belli taẓuri n wurigami d anrar i deg yezmer yal anaẓur ad d-yessenfali akk iḥulfan-is. 
+Tatwilt-a d asebzeg n ukaɣeḍ qbel ad yebdu uḍfas akked umsal. Aya yettak i uḍefs talɣa yezzin. Ayen yekka yedder, Yoshizawa Akira, yesnulfa-d ugar n 20 000 n tmudmin. Ala 100 tmudmin i d-yettwaẓergen deg 18 yedlisen.Kusudama Kusudama
+
+Kusudama d awal i d-yekkan seg tutlayt tajapunit. D isem yesdduklen sin wawalen, awal [kusu] = Tasnajya akked wawal [dama] = Takurt.
+Kusudama d tawsit seg tewsatin n wurigami. D urigami akuran ansayan n Japun. Ttinin-ak d netta i d ababat n wurigami azegriran. Acu kan tawsit-a ur tquder ara yiwen n umenzay seg yimenzayen n wurigami atrar, d asemlili n yizegriren s uxiḍi akked usemlili s usentaḍ. Zik ttarran-as i tkurt n kusudama ddwa neɣ rriḥi sakin ad tt-ɛellqen deg uxxam. Ma d tura, ḍefsen tikurin n ukaɣeḍ i tedlegt n uxxam.Urigami amadwan Urigami amadwan
+
+=Urigami amadwan=
+Tqelleɛ tleslalit n tẓuri n wurigami ɣef tewsit-a. D asnulfu n tmudmin timadwanin. D tid yesɛan s umata talɣa tanzeggant neɣ tikwal ur t-ttban ara d acu-tt.Ameḍfas Ameḍfas
+
+=Ameḍfas=
+
+Ameḍfas d amalay n tmeḍfast, sɛan yiwen unamek. Isem-a yesɛa asegget-is, nettaru-t akka : Imeḍfasen. Mi ara ten-sers deg waddad amaruz, ad ten-aru akka : Umeḍfas / yimeḍfasen. Deg tẓuri n wurigami d isem n umdan-nni iḍefsen akaɣeḍ. Isem "Ameḍfas" deg wurigami yesɣa aknaw, nettaru-t akka : Amurigam. Asegget-is nettaru-t akka : Imurigamen.Aḍfas Aḍfas
+
+=Aḍfas=
+
+Aḍfas d isem n tigawt. Anamek-is d asemmi n tigawt-nni mi rara neḍfes kra. Isem-a yesɛa asegget-is, nettaru-t akka : Iḍfasen. Mi rar ten-sers deg waddad amaruz, nettaru-ten akka : Uḍfas / yiḍfasen.Uḍfis Uḍfis
+
+=Uḍfis=
+
+Uḍfis d arbib, asegget-is nettaru-t akka : Uḍfisen. Uḍfis d amalay n "tuḍfist". Mi ara ten-sers deg waddad amaruz, nettaru-ten akka : Wuḍfis / wuḍfisen. Anamek n wawal uḍfis, yemmal-d neɣ yettak-d udem n tɣawsa-nni mi ara teḍru fell-as tigawt n uḍfas. Ma neddem-d amedya, ad nini : Asaber d abeḥnuq uḍfis.Tuḍfist Tuḍfist
+
+Tuḍfist d arbib, asegget-is nettaru-t akka : Tuḍfisin. Tuḍfist d unti n wawal "uḍfis". Mi ara ten-sers deg waddad amaruz, nettaru-ten akka : Tuḍfist / tuḍfisin. Anamek n wawal tuḍfist, yemmal-d neɣ yettak-d udem n tɣawsa-nni mi ara teḍru fell-as tigawt n uḍfas. Ma neddem-d amedya, ad nini : Tamudemt deg tẓuri n wurigami d tiferkit tuḍfist.Amurigam Amurigam
+
+Amurigam neɣ Ameḍfas n yiferki, d isem n unaẓur n tẓuri n wurigami. D amalay n wawal "Tamurigamt". Asegget-is nettaru-t akka : Imurigamen. Mi ara ten-sers deg waddad amaruz, nettaru-ten akka : Umurigam / yimurigamen.
+=Tamurigamt=
+Tamurigamt neɣ Tameḍfast n yiferki, d isem n tnaẓurt n tẓuri n wurigami. D unti n wawal "Amurigam". Asegget-is nettaru-t akka : Timurigamin. Mi ara ten-sers deg waddad amaruz, nettaru-ten akka : Tmurigamt / tmurigamin.Urikatar Urikatar
+
+=Tabadut n yisem urikatar=
+Urikatar d awal yebnan ɣef sin wawalen. Awal amezwaru d amyag, nettaru-t akka [Uri], yekka-d seg tutlayt tajapunit. Anamek-is d wa : Ḍfes. Awal wis sin d isem, nettaru-t akka [Akatar], yekka-d seg tutlayt tamaziɣt. Anamek-is d iran-nni n usɣar akked urelluc ideg nettarra tawlaft sakin ad t-nɛelleq deg uxxam. 
+
+=D acu i d urikatar ?=
+Urikatar d urigami n yikataren. D taẓuri yesgerwen aḍfas n ukaɣeḍ akked ukatar.Bochotnica Bochotnica
+
+Bochotnica ( [bɔxɔtˈnit͡sa]) d taddart deg wanẓul-agmuḍ n Pulunya, ger Puławy, s tama n wasif Wisła. D ixf s daxel n Lublin Voivodeship. 1,500 yemdanen zedɣen deg-s (aseggas : 2010).
+Microsoft Microsoft
+Philipp Lahm Philipp Lahm
+
+Philipp Lahm (ilul ass 11 wember 1983 deg Munich, Lalman) d amarir n tkurt uḍar alalmani ,yetturar deg umḍiq n umaḥadi di teɣlamt Bayern Munich akked tarbaɛt taɣennawt n tmurt Lalman seg useggas 2004.
+Laguiole (takemmart) Laguiole (takemmart)
+
+Laguiole (nṭeq-it "layul"), d tasiwelt n uẓar n takemmart (neɣ aguglu) taṛumit n uẓi n Aubrac s uyefki afraray n tfunast. Isem-is yekka-d seg taddart n Laguiole deg ugezdu n Aveyron di Fransa.
+
+Iẓuṛan n takemmart agi tettalin-d ar timiḍi wis 15, asmi imunaken n ugni n Aubrac, deg amnaḍ n ansay n takemmart adigan aqdim, sneflan asiweḍ (n iseksaten) n izegrawen uyefki dɣa bedden aɣraf ines. Tafarest-is tesɛa deg timiḍi wis 19 asfari d ameqqran aṭas, daɣen ula d tisellat-ines tesɛa. Tisellat-nni ttwassebded ɣef ajmaɛ n tanzagt uɣzifen dɣa ɣef yiwet taɣara n ifarisen yecudden aṭas s wakal adigan: anezwu aweɛran, tiferdi tuzzigt n idurar, tifunasin n iri azegraw. 
+
+Takemmart laguiole qrib tenger deg talemmast n timiḍi wis 20, ɣef ljal n atigen n uɣraf aɣlayen dɣa ilɣiten ad afen ixeddamen i uɣraf n takemmart deg ixxamen imensayen "buron". Yuɣal-d, seg iseggasen 1960, s tallalt n infarasen idiganen, yebɣan ad snernin tukkest n timiḍiwin yezwiren. Tafarest tesniled seg iseggasen 1980 ɣer taɣara d tikemmarin n ujmaɛ dɣa gweḍen-d seg taggara n iseggasen 1990 ar tasmekta talemmast yetṛuḥun gar 700 d n laguiole yenzan yal aseggas.
+
+Tasiwelt agi yettwaḥerzen sɣur ticraḍ AOC seg useggas 1961 d AOP seg 2008. Tafarest n uyefki, tafarest d umesel n tikemmarin ilaq ad yetwexdem deg taɣzut tamaḍlarant n aẓi agmawi n Aubrac i bɛuẓẓelen ɣef 73 timdinin n igezda n Aveyron, n Cantal dɣa n Lozère.23 ctember 23 ctember
+Ɣana Ɣana
+
+Ɣana d tamurt n Tefriqt tutrimt. Tajumma-nnes 238.535 km2. Zedɣen-tt 23.837.000 n yimezdaɣen (Iɣaniyen). Tamaneɣt-nnes d Akra.
+Igen aɣelnaw aɣerfan (Lezzayer) Igen aɣelnaw aɣerfan (Lezzayer)
+
+Igen aɣelnaw aɣerfan d isem n igen azzayri seg azarug n tmurt ass n 5 yulyu 1962. Tettwasuddes s inzaḍen n iɣallen n wakal, n ilel, n yigenni dɣa tamḥaddit tagenwant n wakal, daɣen état-major amasay n amres akkw d assewjed n iserdasen ar imenɣi. Taqacuct n umyellel aserdasi tettaweḍ srid ar aɣella n Uwanak, deg tamenḍawt d aɣella anafella n Iɣallen imsellḥen d aneɣlaf n Tamḥaddit taɣelnawt.
+Taɣewwaɣt Taɣewwaɣt
+
+Taɣewwaɣt d tameskant tumant, s umata tukriḍt, tella d agmuḍ n tawliwelt tamazdayt. Widak ittekkin ar tiɣewwaɣint n semmasen iɣewwaɣen.Tafsut taɛrabt Tafsut taɛrabt
+
+Tafsut taɛrabt d tagrumma n tagayin timeẓwiyin yedran deg kra n timura n umaḍal aɛrab d Tafriqt ugafa seg dujamber 2010. Tanfalit « Tafsut taɛrabt » t sawel-d ar « Tafsut n iɣerfan » n 1848. Iwliwlen agi igrawalen iɣlanen semman-asen daɣen tigrawliwin tiɛrabin, tinekriwin tiɛrabin, neɣ daɣen « ankar aɛrab », kra qaren-as tagrawla Facebook, tagrawla Twitter daɣen tagrawla 2.0 skud asseqdec n iẓeḍwan imettiyen yexater. S wukud, asget « Tifsutin tiɛrabin » yeqqim d tanfalit tamenyaft iwakken ad seknen tuggta n iwliwlen i ssegrewen ddaw isem agi.Olea Olea
+
+Irem Olea yaɛqel tamessartut, tawsit "Olea", tagrumma n leḥcawec yesɛan tiɣariwin tucrikin. Kraḍ adu-tiwsatin ttwexleqen-d sakin imuhal n uceggeṛ yenheṛ amesnacek P.S. Green, Yegweḍ ar ad yaɛqel dɣa ad yessegrew 33 tilmas d 9 adu-tilmas gar aṭas n igdawalen i erkden s kraḍ timiḍiwin n tasnacekt d usnirem n umaḍal.
+François Hollande François Hollande
+
+François Hollande d aselway n Fransa seg 2012 ar 2017 seg Ukabar Anemlay n Fransa. 
+Buɛziz At Cebbib Buɛziz At Cebbib
+
+Buɛziz At Cebbib ilul-d ass n 23 fuṛaṛ 1973 di At Saɛda deg tɣiwant n Iɛeṭṭafen . D aselway n Umussu n Timanit i Tmurt n Iqbayliyen seg wass n 9 dujamber 2011 . 
+
+Ass n 3 ɣuct 2013, Buɛziz At Cebbib yessuddes, s imeɣnasen iqbayliyen nniḍen, imekli azayez (mgal l'inquisition islamiste en Kabylie) ass n uremḍan ayen werjin yella di Lezzayer.
+
+2 tuber 2 tuber
+
+Ass 2 tuber d ass wis 275 n useggas (wis 276 deg iseggasen "bisekstil"). Llan 90 wussan deffir-s ar taggara n useggas.
+1 tuber - "2 tuber" - 3 tuber
+Amhad Amhad
+
+Amhad, d ass n imalas i ḍfaren Ahad dɣa i zwiren Sem. Deg ansay, d ass wis-semmus n imalas, maca yella am ass wis-kuẓ n imalas deg kra timura.
+5 meɣres 5 meɣres
+
+Ass 5 meɣres d ass wis 64 n useggas (wis 65 deg iseggasen "bisekstil"). Llan 301 wussan deffir-s ar taggara n useggas.
+
+Imseɣret aɣelnaw Imseɣret aɣelnaw
+
+Imseɣret aɣelnaw d ccna aɣelnaẓri yettwafrenen i usseqdec unṣib sɣur anabaḍ, tikkwal yettweḥettim imani-s s usseqdac n weɣref. Qrib akkw timura ddment imseɣret aɣelnaw.Iqbayliyen Iqbayliyen
+
+Imaziɣen neɣ Izwawen (llan daɣen imawtiyen aked Igelsisen) d agdud amaziɣ yettidir deg Tmawya id yezgan deg usmaw-asamer n lezzayer.
+
+Isem amziki n izwawen d "Amaziɣ", awal-agi yekka-d seg uẓar MZƔ azaraw-is (lmaɛna-s) d aserhu, d iseɣ, d inzer, illi-d argaz n tidett ur yekna, illi-d tameṭṭut n tidett ur tettkerkis ara. Amaziɣ ur d akli. 
+
+Qqaren-asen daɣen i leqbayel "izwawen", ɣer Ibn Xeldun, azaraw-is d atarras, ɣur-nnaɣ Azwaw d atarras yeḍfer tasuli (laɛda) n zik, ila azal n imezwura, yekkat wuzzal war kukru, yezmer i wiyaḍnin. Yella aẓar ZW, azaraw-is d win yettuɣu g umennuɣ. 
+
+Aẓar n wawal "Amawti/Imawtiyen" yekka-d seg tangaṭ (taqbaylit taqqurant), yera (yebɣa) ad-yini "win n tawsit", acku zik isem n tmurt leqbayel d "Tamawya", yera ad-yini s tarumit "les familles, les tribus" g tangaṭ qqaren ayt zik i "la famille" : Tawya. 
+
+Aẓaṛ n wawal "aqbayli" yekka-d seg teɛṛabt "قبائل" anamek-is s Teqbaylit «tiwsitin». Iṛumanen ssawalen-asen d "Quinquegentanei" (semmus (5) n Iderman), (wid izedɣen neɣ yettidiren "Mons Ferratus", "Adrar n ğerğer"), wissen isem n tura ma yekka-d seg win n zik neɣ aha. 
+
+S umata ur llin ara aɣbalu ameqqʷran ɣef umezruy n yisem-agi, maca nezmer a nefk yiwet n turda yelan assaɣ s tawtilt n Tamurt n Iqbayliyen deg ukud-nni (tallit-nni) imi medden ddren seddaw n tezmert n tiddukla n iderman.
+
+Amezruy n wegdud aqbayli, d amezruy ameqran akk-d yewwin i g issewhamen, ɛeddan luluf n iseggasen, azal 10 000 iseggasen uqbel talalit n Ɛisa ; d imezdaɣ imezwura n Tefriqt ugafa uqbel n tlalit n umezruy atrar, agdud aqbayli d yiwen wegdud gar yegduden iqdimen i yeğğan later deg umezruy n yemdanen. 
+
+Agdud aqbayli yedder, yerna yexlef Irrumanen, yiwen amenkud i yestaɛmren ddunit irkul, yexlef Ifniqen, ladɣa Yugurten yemmut s tidet agdud-is yedder, yexlaf Maryus; tura arraw-is kren ţlaɛin i wid ur numin ara; adgud aqbayli atan dagi andaţ Rum ? Dihya temmut, s tidet, yessi-is krent tura ttnadin; anda-t Ɛuqba Ibn Nafiɛ? I wid mazal ur numin ara agdud aqbayli atan mazal dagi! Tidet amezruy n wegdud aqbayli yessewham acku d yiwen n umezruy yeţwebnan ɣef taɣert, tuccda, akk-d iseflan n imawlan-is. 
+
+Ussan agi Iqbayliyen ttidiren g wakud (lweqt) n n-sen, sennig aɣebbar n wakud akk-d d leqhar n iɛdawen, tteddun ɣer zdat, aqlaɣ nettwali tallit n aɣlan (ljens), Aɣlan aqbayli. 
+
+Iqbayliyen g zik semman iman-sen , , win ur neqbil ara lbatel neɣ akerwa.
+
+Deg Amezruy Atrar, Iqbayliyen mači d inumidyen inumdiyen d icawiyen d icenwiyen lqbayel nutni des maures pas numides]], llan iɣerfan n yewen uwanek, yeddren azal n 100 n iseggasen (seg azal 206 UL* di lweqt n tageldit n Masnsen, "agellid di facto" n Numidya, armi lexsara n Yugurten g 104 UL) awanek agi yettusema Numidya.
+
+Numidya tella azal n Dzayer akk-d Tamurt n Yiqbayliyen lwahid.
+
+Numidya tbedd meyya iseggasen, llan wid qqaren dakken meyya n isegwassen d wacemma, maɛna timura n ddunit merra ur sɛant ara akter n 30 iseggassen di laɛmer-nsent, amek yezmer yewin ad inni belli Numidya d ulac i tella? Numidya i gɛacen akter n meyya n iseggasen, ugar n Dzayer akk-d timura n Tefriqt merra, akter n uhric ameqran n timura n Turuft Tagmuḍant, mi teɣli Numidya tsɛa azal n laɛmer n Kanada.
+
+Lestaɛmar arumani yenzeg akter n 525 isegassen, seg lexsara n Yugurtan zdat irumaniyen g 104 UL armi uɣelluy n inugura agi s iffassen n (agellid n ) akk-d inelmaden-is mi g kecmen ɣer Tafriqt ugafa g 429.
+
+Geiseric yebnad tageldit tamezwarut n Ivandaliyen g Tafriqt ugafa s Saldae (Bgayet) am tamaneɣt-is; yestaɛmered , Sardenya, Kursika, akk-ed tegzirin n Baleares, yernad yekcem ɣef Rum yewid yides mi i gefeɣ, azal n yewen n ddurt g 455, atas n igerrujen akk-ed iseflawen n (iseflawen i yefkan Udayen i lğameɛ-nsen) i d yewi Titus ɣef Roma melmi igstaɛmered Lquds.
+
+Ivandaliyen ţwakssent di Tafriqt ugafa s iɛsekriyen n , agellid n umekad Abyzanti; amenkad n ivandaliyen ydum-d 105 isegassen (429-534).
+
+Yiwen lamer yesɛan atas n wazal di lwegt-nni; ahric ameqran n imaziɣen rebhen telelli-nsen, mi yal aggay yetsnaɣ mgal wayid.
+
+Iɛraben qetɛen lebher, staɛmren g 642, kemlen alhu-nsen, zedmen ɣef tamurt n yimaziɣen, tamurt n leqbayel. 
+
+Listiɛmar Aɛrab, am lbers, di tamuggit ɣef Iqbayliyen i yella; imi Imaziɣen rebhen kkra n lehna, akk-d tallalit, seqsefen azaglu akk-d alehu n amenkud abyzanti ɣer usamer n tilisa-nsen. 
+
+Iqbayliyen nnuɣen-d mgal Iɛraben s wayen akk yellan, s tezmart, s tdusi (lğehd), s tudert-nsen, imi ţwallan simmal iţeddu aɛdaw simmal yexreb, yenɣa, yehreq, yeqher ayen yellan d amaziɣ, ayen yesɛan rruh n umaziɣ. Mbeɛd akter n sebɛa meyya n isegassen n tagrawla, Imaziɣen ɛyan, cban izem nni ur sɛin ara azuren merra imi tazzla n idammen-is texla ayen yeqimen di lğehd-is, ayen yeqimmen di tmanegt-is, ur yezmir ad yeker; izem aqbayli yeɣli-d ur yekkir ara, Iɛraben hesben d lmut i g yemut. 
+
+Mbeɛd amerni aqher; ilulufen n imaziɣen, tilawen xesrent lherma-nsent akk-d asehru-nsent, ilulufen n warrac n Iqbayliyen imelsiyen ufan lmut si ifassen n iɛsekriyen Iɛraben, ilulufen nnidden zzenzen-ten aklan g leswaq n Mekka. 
+
+Imi tfuk Taslekt ni Iɛraben, Tafriqt ugafa tuɣaled d amɣiz ni iklan ɣef leswaq n Wegmuḍ Alemmas.
+
+Iqbayliyen am akken ad menɛen tudert n tarwa-nesn, akk-d ayen i geqimen di lherma n tilawen-nsen qeblen, ijenwiyen g ullawen nsen, ddin amaynut n iɛraben; iɛraben wwden anda yewin n lğens ur yewwi-d, zzuɣren telelli n yimaziɣen.
+
+Syenna d asawen, tutlayt n yimaziɣen akk-d ismawen-nsen uɣallen d lehram. 
+
+G 705 anbaz Aɛrab i-bereh belli tamurt n yiqbayliyen d yiwet n tamnatt tamenzut n umnkad aɛrab ara tilli; Tafriqt ugafa tɛeda g yiwen n ukala ig bedlen idles-is, tamuɣli-is, akk-d imal-is. 
+
+Amnekcam Aɛrab yeqqim armi yetwabdal s lestiɛmar n Iɛetmaniyen seddaw n timelwi n Xayreddin d ayetma-s Ɛeruj, i d-xelqen atrar ussamer n Dzayer, bdan asseɣwel n tama agi am asutel n iflisen n ddunit merra. Taflist-nsen ternu, temɣid ɣef lqrun 1600; taflist mgal lbaburat n Iwunak Yedduklen g Ilel agrakal sebba n , akk-d , anda mutten atas n imddanen imelsiyen.
+
+Deg 1830, s sebba belli Lbay n Dzayer yewwet amalway n tamahelt-is, Fransa tenbez Dzayer; lameɛna, azbu i g qquren n Yiqbayliyen, Amɣar Ameqran (El-Mokrani) akk-d Faḍma n Sumer, stɛetlen taslekt agi almi Agud aqbayli yeţwaxdɛen s ageldun n Yiɛraben yettuseman Ɛebedlqader imi d-yefka takbabt-is ɣef Wemtawa n Tefna wahid Fransa.
+Amtawa n Tafna, 30 mayyu 1837, yeswejd abrid ɣef wanger n Tamurt n Yiqbayliyen ihi kan teqled agezdir n Fransa. Fransa, isegassen kkra mbeɛd, tefka-d Aguldun Ɛebdelqader amidag n la Légion d'honneur akk-d tajɛelt n 4000 Louis (idrimen n Fransa) mkul aggur armi yemut g 26 mayyu 1883.
+
+Wagi d adris n Amtawa n Tafna:
+
+Melmi amgaru mgal tamurt n Iqbayliyen ifuk, Fransa tezdem ɣef leğwahi nidden n Tafriqt ugafa terna texleq Ldzayer n tura; Tamurt n Yiqbayliyen, Timura n uguldun ɛabd Qader, akk-d d Uneẓruf Ameqran (timura n Twareg/Imuhaɣ). 
+G 1954, Igen n Taslullit Taɣelnawt (ALN) tebda ţţrad n taslullit; mbaɛd n sebɛa isegassen n imenɣi, Fransa teğğa Dzayer g 19962. Aḥric ameqran n 1,025,000 Iḍaren Iberkanen akk-d 91,000 iḥerkiyyen, azal n 10% n imezdaɣ n Ledzayer g 1962, rewlen ɣef Fransa g useggwas-nni.
+9 tuber 9 tuber
+
+Ass 9 tuber d ass wis 282 n useggas (wis 283 deg iseggasen "bisekstil"). Llan 83 wussan deffir-s ar taggara n useggas.
+8 tuber - "9 tuber" - 10 tuber
+10 tuber 10 tuber
+
+Ass 10 tuber d ass wis 283 n useggas (wis 284 deg iseggasen "bisekstil"). Llan 82 wussan deffir-s ar taggara n useggas.
+9 tuber - "10 tuber" - 11 tuber
+
+11 tuber 11 tuber
+
+Ass 11 tuber d ass wis 284 n useggas (wis 285 deg iseggasen "bisekstil"). Llan 81 wussan deffir-s ar taggara n useggas.
+10 tuber - "11 tuber" - 12 tuber
+
+
+12 tuber 12 tuber
+
+Ass 12 tuber d ass wis 285 n useggas (wis 286 deg iseggasen "bisekstil"). Llan 80 wussan deffir-s ar taggara n useggas.
+11 tuber - "12 tuber" - 13 tuber
+
+Asarir n 1 wamber 1954 (Tizi Wezzu) Asarir n 1 wamber 1954 (Tizi Wezzu)
+
+Asarir n 1 wamber 1954 d asarir n tkurt n uḍar d atletaẓri yezgan ar ugmuḍ n temdint n Tizi-Uzzu. Taẓunẓut ines tedra-d ass n 12 meɣres 1978. Yeṭṭfed isem-is seg azmez n ussenker n tagrawla tazzayrit. Anrar ines n urar yezga i ilugan n FIFA, yesɛa tamusayt taneɣruft n tsuta tis 5. Asarir yesɛa akettur n 20 000 imeshanayen.
+Akli D Akli D
+
+Akli D d acennay aqbayli.
+Yusef Zirem Yusef Zirem
+
+Yusef Zirem d ameɣnas d umaru aqbayli, ilul ass n 16 ɣuct 1964 di tɣiwant n Akfadu
+
+Ajenyuṛ n uwanak deg ilukaṛbiṛen (ɣef assileɣ), agurdis n IAP n Bumerdas, yebdda amecwaṛ awezlan deg uḥric n tamguri uqbel ad yuɣal d aneɣmas sakin tidyanin tikesnanin n tuber 1988. Yusef Zirem yettekki ihi ar tirawt n aṭas iɣmisen izzayriyen am Le Quotidien d'Oran, la Nation, l'Opinion, Libre-Algérie neɣ daɣen " La Tribune". yeḍebber daɣen deg useggwas 2003 tazrawt n umalsan "le Kabyle de Paris". Yerked di Paris, Yusef Zirem yettekki ar aṭas n imidyaten iṛumiyen d igraɣlanen.
+Daɣen di Paris, Yusef Zirem yeqeddem tasgilt tamalsant, "Graffiti", ɣef BRTV.
+
+D ameskar n du uṛuman, "la Vie est un grand mensonge". Tasugna agi teḥkud amezruy n Lezzayer seg tazzwara n iseggwasen 1980 armi d ass agi. Yetwaru war tasnimirt, aṛuman agi yeččur tisummal, tikriḍin timeẓliyin akkw d tayriwin tiwezɣiyin. Abrid n sin ibusinen ɣef qrib snat n tmerwin n iseggwasen yetweglem. 
+"La Vie est un grand mensonge" yekemmel inadiyen id yebdda yakan ameskar deg "les Enfants du brouillard" (ammud n isefra yeffeɣed di Paris deg 1995 ar Éditions Saint-Germain-des-Prés).
+13 tuber 13 tuber
+
+Ass 13 tuber d ass wis 286 n useggas (wis 287 deg iseggasen "bisekstil"). Llan 79 wussan deffir-s ar taggara n useggas.
+12 tuber - "13 tuber" - 14 tuber
+
+Kamal Tarwiḥt Kamal Tarwiḥt
+
+Kamal Tarwiḥt d aneɣmas n BRTV.27 yunyu 27 yunyu
+
+Ass n 27 yunyu d ass wis 178 n useggas (wis 179 deg iseggasen "bisekstil"). Llan 187 wussan deffir-s ar taggara n useggas.
+26 yunyu - "27 yunyu" - 28 yunyu
+Acer Acer
+
+Acer yettwasnen s isem n ("Lḥedd") d ass wis 7 n yimalas, Yettasend seld n Sed d send n warim
+Di tmurt n Iqbayliyen, Yettili d ass n ulzuz (tsewwiqt) di kra n tamiwin deg wass-a (acer) ma di tmura n umalu (Turuft, Kanada, Marikan ... yettili d ass aneggaru n tmalast acku ass n Sed d wass n Acer d ussan n wesgunfu di tuget n tmura n tegnit
+
+Imasiḥiyen ttẓallan yal ass n Sed deg tmezdayt
+14 tuber 14 tuber
+
+Ass 14 tuber d ass wis 287 n useggas (wis 288 deg iseggasen "bisekstil"). Llan 78 wussan deffir-s ar taggara n useggas.
+13 tuber - "14 tuber" - 15 tuber
+15 tuber 15 tuber
+
+Ass 15 tuber d ass wis288 n useggas (wis 289 deg iseggasen "bisekstil"). Llan 77 wussan deffir-s ar taggara n useggas.
+14 tuber - "15 tuber" - 16 tuber
+
+16 tuber 16 tuber
+
+Ass 16 tuber d ass wis 289 n useggas (wis 290 deg iseggasen "bisekstil"). Llan 76 wussan deffir-s ar taggara n useggas.
+15 tuber - "16 tuber" - 17 tuber
+17 tuber 17 tuber
+
+Ass 17 tuber d ass wis 290 n useggas (wis 291 deg iseggasen "bisekstil"). Llan 75 wussan deffir-s ar taggara n useggas.
+16 tuber - "17 tuber" - 18 tuber
+
+18 tuber 18 tuber
+
+Ass 18 tuber d ass wis 291 n useggas (wis 292 deg iseggasen "bisekstil"). Llan 74 wussan deffir-s ar taggara n useggas.
+17 tuber - "18 tuber" - 19 tuber
+19 tuber 19 tuber
+
+Ass 19 tuber d ass wis 292 n useggas (wis 293 deg iseggasen "bisekstil"). Llan 73 wussan deffir-s ar taggara n useggas.
+18 tuber - "19 tuber" - 20 tuber
+
+20 tuber 20 tuber
+
+Ass 20 tuber d ass wis 293 n useggas (wis 294 deg iseggasen "bisekstil"). Llan 72 wussan deffir-s ar taggara n useggas.
+19 tuber - "20 tuber" - 21 tuber
+21 tuber 21 tuber
+
+Ass 21 tuber d ass wis 294 n useggas (wis 295 deg iseggasen "bisekstil"). Llan 71 wussan deffir-s ar taggara n useggas.
+20 tuber - "21 tuber" - 22 tuber
+22 tuber 22 tuber
+
+Ass 22 tuber d ass wis 295 n useggas (wis 296 deg iseggasen "bisekstil"). Llan 70 wussan deffir-s ar taggara n useggas.
+21 tuber - "22 tuber" - 23 tuber
+23 tuber 23 tuber
+
+Ass 23 tuber d ass wis 296 n useggas (wis 297 deg iseggasen "bisekstil"). Llan 69 wussan deffir-s ar taggara n useggas.
+22 tuber - "23 tuber" - 24 tuber
+24 tuber 24 tuber
+
+Ass 24 tuber d ass wis 297 n useggas (wis 298 deg iseggasen "bisekstil"). Llan 68 wussan deffir-s ar taggara n useggas.
+23 tuber - "24 tuber" - 25 tuber
+25 tuber 25 tuber
+
+Ass 25 tuber d ass wis 298 n useggas (wis 299 deg iseggasen "bisekstil"). Llan 67 wussan deffir-s ar taggara n useggas.
+24 tuber - "25 tuber" - 26 tuber
+
+26 tuber 26 tuber
+
+Ass 26 tuber d ass wis 299 n useggas (wis 300 deg iseggasen "bisekstil"). Llan 66 wussan deffir-s ar taggara n useggas.
+25 tuber - "26 tuber" - 27 tuber
+
+27 tuber 27 tuber
+
+Ass 27 tuber d ass wis 300 n useggas (wis 301 deg iseggasen "bisekstil"). Llan 65 wussan deffir-s ar taggara n useggas.
+26 tuber - "27 tuber" - 28 tuber
+28 tuber 28 tuber
+
+Ass 28 tuber d ass wis 301 n useggas (wis 302 deg iseggasen "bisekstil"). Llan 64 wussan deffir-s ar taggara n useggas.
+27 tuber - "28 tuber" - 29 tuber
+29 tuber 29 tuber
+
+Ass 29 tuber d ass wis 302 n useggas (wis 303 deg iseggasen "bisekstil"). Llan 63 wussan deffir-s ar taggara n useggas.
+28 tuber - "29 tuber" - 30 tuber
+30 tuber 30 tuber
+
+Ass 30 tuber d ass wis 303 n useggas (wis 304 deg iseggasen "bisekstil"). Llan 62 wussan deffir-s ar taggara n useggas.
+29 tuber - "30 tuber" - 31 tuber
+31 tuber 31 tuber
+
+Ass 31 tuber d ass wis 304 n useggas (wis 305 deg iseggasen "bisekstil"). Llan 61 wussan deffir-s ar taggara n useggas.
+30 tuber - "31 tuber" - 1 wamber
+1 tuber 1 tuber
+
+Ass n 1 tuber d ass wis 274 n useggas (wis 275 deg iseggasen "bisekstil"). Llan 91 wussan deffir-s ar taggara n useggas.
+30 ctamber - "1 tuber" - 2 tuber
+
+3 tuber 3 tuber
+
+Ass 3 tuber d ass wis 276 n useggas ({wis 277 deg iseggasen "bisekstil"). Llan 89 wussan deffir-s ar taggara n useggas.
+2 tuber - "3 tuber" - 4 tuber
+
+4 tuber 4 tuber
+
+Ass 4 tuber d ass wis 277 n useggas (wis 278 deg iseggasen "bisekstil"). Llan 88 wussan deffir-s ar taggara n useggas.
+3 tuber - "4 tuber" - 5 tuber
+
+5 tuber 5 tuber
+
+Ass 5 tuber d ass wis 278 n useggas (wis 279 deg iseggasen "bisekstil"). Llan 87 wussan deffir-s ar taggara n useggas.
+4 tuber - "5 tuber" - 6 tuber
+
+6 tuber 6 tuber
+
+Ass 6 tuber d ass wis 279 n useggas (wis 280 deg iseggasen "bisekstil"). Llan 86 wussan deffir-s ar taggara n useggas.
+5 tuber - "6 tuber" - 7 tuber
+
+7 tuber 7 tuber
+
+Ass 7 tuber d ass wis 280 n useggas (wis 281 deg iseggasen "bisekstil"). Llan 85 wussan deffir-s ar taggara n useggas.
+6 tuber - "7 tuber" - 8 tuber
+
+8 tuber 8 tuber
+
+Ass 8 tuber d ass wis 281 n useggas (wis 282 deg iseggasen "bisekstil"). Llan 84 wussan deffir-s ar taggara n useggas.
+7 tuber - "8 tuber" - 9 tuber
+Lettre ouverte aux... Lettre ouverte aux...
+
+Aḍebsi agi n Lwennas Meɛṭub yettwasemman Lettre ouverte aux... (Tabratt i lḥekkam) d aḍebsi ines aneggaru.
+Tuber 2014 Tuber 2014
+
+Au nom de tous les miens Au nom de tous les miens
+
+Aḍebsi agi n Lwennas Meɛṭub yettwasemman Au nom de tous les miens d aḍebsi ines wis 27.
+Arthur von Ramberg Arthur von Ramberg
+
+Arthur von Ramberg, yelule-d Arthur Georg Ramberg as n 4 ctamber 1819 di Vienne dɣa yemmut ass n 5 fuṛaṛ 1875 di Muncen, d ameklay utrici d amaslaḍ n ugaru n Muncen daɣen yexdem aṭas di Lalman.
+
+Ramberg yekka-d seg tawacult n ifesyanen, baba-s Georg d agenses-marechal n igen utrici. Tawacut t-awey-d azwel n baron deg useggwas 1849. Gma-s d ajiniṛal-baron Hermann von Ramberg Hermann von Ramberg (1820-1899). Ramberg ula d netta yawey-d azwel n baron n tagelda n Bavaria deg useggwas 1875, yettssiwen ar taǧǧalt-is d arrawen is deg useggwas 1878.
+
+Yeɣer di Hanover dɣa yexdem Grand Tour ines di Ṭṭalyan, di Majaṛ daɣen di Styria. Yekcem deg useggwas 1840 ar tasdawit n Prag. Yuɣal d abalmud n Julius Hübner deg takadimit n tiẓuriyin tucbiḥin n Dresde deg useggwas 1842. Deg tallit agi yesbeɣe-d "Zzwaǧ n ikeḍwanen" (ɣef leḥsab n Goethe) d "Amenkad Henri I deg taḥemla di Majaṛ".
+
+Ramberg yeṛuḥ deg useggwas 1850 ar Muncen, anda yesseḍru tikla n tawsit dɣa yessuqqel imuhal n Schiller. Yetwasem aselmad deg ugaru n tiẓuriyin tucbiḥin n Weimar deg useggwas 1860 daɣen sḍis iseggwasen sakin ar takademit n tiẓuriyin tucbiḥin n Muncen. Yessemter i Albert Keller ad yuɣal d-ameklay. Ramberg yesbeɣ sakin "Tasenbert n Frédéric II di Palermo", "Hermann d Dorothée" (ɣef leḥsab n Goethe), d "Louise" (ɣef leḥsab n usefru n Voss). Ramberg yella daɣen d ameskar n tafreskut n taxxamt n Luther deg Tiɣremt n Wartbourg.
+
+Ramberg yella daɣen d imsuneɣ, am i "Ageldun n imqerqren", yetssutren sɣur grande-duchesse n Saxe-Weimar. Yesɛa-d am abalmud Wilhelm Georg Ritter.
+
+Arthur von Rambert d ayyaw-amecṭuḥ n umeklay Johann Heinrich Ramberg (1763-1840) dɣa d ɛemmi-s n umeklay n tagriwa, August von Ramberg (1866-1947)
+Timibrikt n Liṭṭunya Timibrikt n Liṭṭunya
+
+Timibrikt n Liṭṭunya d iri azegraw aliṭṭuni. Isem-is agraɣlan d ' dɣa isem-is aliṭṭuni d ' neɣ "buraïa latviskaïa" s trusit.
+D iri aqdim, yexleq-d seg usegraw n tijlibin tidiganin tiqdimin n taciṭṭa tazegwaɣt n Baltik. Teḍḍfed tazrirt n angeln deg timiḍi wis 19 uqbel alday n usaklas asutwalan deg useggwas 1885 dɣa teḍḍfed isem-is amiran deg useggwas 1922. Seg zik, nettat d iri n uyefki deg aẓi, mazal t-genses aqrib 75 % n uctal azegraw aliṭṭuni. Iri yettwebḍa s kuẓ ifurkawen yettweṛebban yal yiwen deg umkan is iwakken ad ssineḍen imeccir asiwan. Afurk BL-1 yettwefren s tixxutert taɛlayant deg isubxuzen. Tettaked tikessawin n tafarest n uyefki am imzufɣawen. Tafest n iketmen tesgader. Seg deg useggwas 1980, Tagrawt yeṣṣub ar deg useggwas 1990. Deg useggwas 2000, amḍan n imzufɣawen BL-1 yessiggezen ɣef asaklas yella d tifunasin d 300 iramulen.
+Telsa taqendurt tazegwaɣt s tisignayin timibriktin ugar-neɣ-ddaw tibuḍḍlamin. Ini n mukus ines d ini n uksum dɣa ur tesɛa ara acciwen. Tafunast taɛlay ar 130 cm deg timezsmeḍt i 520 kg dɣa aramul 140 cm i 800 kg.
+D iri i mmizweren i uyefki. Tettfaras 5200 kg s usuḍeḍ n uyefki yesɛan aṭas n tinegwa uzuren (4,16 %) d tifṛutinin. (3,45 %)
+
+
+Laɛzib n Ccix Laɛzib n Ccix
+
+Laɛzib n Ccix (Tafrensist : "Baghlia", Taɛrabt : "بغلية", semman-as tura : Beɣleyya) d taɣiwant n Bumerdas, zedɣen-tt 15.854 n yimezdaɣen deg 2008. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Rébeval".
+
+At Ḥmida
+ath arus 
+Igufaf
+At Ḥemza
+Tawilayt n Bumerdas Tawilayt n Bumerdas
+
+1 wamber 1 wamber
+
+Ass n 1 wamber d ass wis 305 n useggas (wis 306 deg iseggasen "bisekstil"). Llan 60 wussan deffir-s ar taggara n useggas.
+31 tuber - "1 wamber" - 2 wamber
+
+
+2 wamber 2 wamber
+
+Ass 2 wamber d ass 306 n useggas (307 deg iseggasen "bisekstil"). Llan 59 wussan deffir-es ar taggara n useggas.
+1ru wamber - "2 wamber" - 3 wamber
+3 wamber 3 wamber
+
+Ass 3 wamber d ass wis 307 n useggas (wis 308 deg iseggasen "bisekstil"). Llan 58 wussan deffir-s ar taggara n useggas.
+2 wamber - "3 wamber" - 4 wamber
+4 wamber 4 wamber
+
+Ass 4 wamber d ass wis 308 n useggas (wis 309 deg iseggasen "bisekstil"). Llan 57 wussan deffir-s ar taggara n useggas.
+3 wamber - "4 wamber" - 5 wamber
+5 wamber 5 wamber
+
+Ass 5 wamber d ass wis 309 n useggas (wis 310 deg iseggasen "bisekstil"). Llan 56 wussan deffir-s ar taggara n useggas.
+4 wamber - "5 wamber" - 6 wamber
+6 wamber 6 wamber
+
+Ass 6 wamber d ass wis 310 n useggas (wis 311 deg iseggasen "bisekstil"). Llan 55 wussan deffir-s ar taggara n useggas.
+5 wamber - "6 wamber" - 7 wamber
+7 wamber 7 wamber
+
+Ass 7 wamber d ass wis 311 n useggas (wis 312 deg iseggasen "bisekstil"). Llan 54 wussan deffir-s ar taggara n useggas.
+6 wamber - "7 wamber" - 8 wamber
+8 wamber 8 wamber
+
+Ass 8 wamber d ass wis 312 n useggas (wis 313 deg iseggasen "bisekstil"). Llan 53 wussan deffir-s ar taggara n useggas.
+7 wamber - "8 wamber" - 9 wamber
+9 wamber 9 wamber
+
+Ass 9 wamber d ass wis 313 n useggas (wis 314 deg iseggasen "bisekstil"). Llan 52 wussan deffir-s ar taggara n useggas.
+8 wamber - "9 wamber" - 10 wamber
+10 wamber 10 wamber
+
+Ass 10 wamber d ass wis 314 n useggas (wis 315 deg iseggasen "bisekstil"). Llan 51 wussan deffir-s ar taggara n useggas.
+9 wamber - "10 wamber" - 11 wamber
+11 wamber 11 wamber
+
+Ass 11 wamber d ass wis 315 n useggas (wis 316 deg iseggasen "bisekstil"). Llan 50 wussan deffir-s ar taggara n useggas.
+10 wamber - "11 wamber" - 12 wamber
+12 wamber 12 wamber
+
+Ass 12 wamber d ass wis 316 n useggas (wis 317 deg iseggasen "bisekstil"). Llan 49 wussan deffir-s ar taggara n useggas.
+11 wamber - "12 wamber" - 13 wamber
+13 wamber 13 wamber
+
+Ass 13 wamber d ass wis 317 n useggas (wis 318 deg iseggasen "bisekstil"). Llan 48 wussan deffir-s ar taggara n useggas.
+12 wamber - "13 wamber" - 14 wamber
+14 wamber 14 wamber
+
+Ass 14 wamber d ass wis 318 n useggas (wis 319 deg iseggasen "bisekstil"). Llan 47 wussan deffir-s ar taggara n useggas.
+13 wamber - "14 wamber" - 15 wamber
+15 wamber 15 wamber
+
+Ass 15 wamber d ass wis 319 n useggas (wis 320 deg iseggasen "bisekstil"). Llan 46 wussan deffir-s ar taggara n useggas.
+14 wamber - "15 wamber" - 16 wamber
+
+16 wamber 16 wamber
+
+Ass 16 wamber d ass wis 320 n useggas (wis 321 deg iseggasen "bisekstil"). Llan 45 wussan deffir-s ar taggara n useggas.
+15 wamber - "16 wamber" - 17 wamber
+17 wamber 17 wamber
+
+Ass 17 wamber d ass wis 321 n useggas (wis 322 deg iseggasen "bisekstil"). Llan 44 wussan deffir-s ar taggara n useggas.
+16 wamber - "17 wamber" - 18 wamber
+
+19 wamber 19 wamber
+
+Ass 19 wamber d ass wis 323 n useggas (wis 324 deg iseggasen "bisekstil"). Llan 42 wussan deffir-es ar taggara n useggas.
+18 wamber - "19 wamber" - 20 wamber
+
+20 wamber 20 wamber
+
+Ass 20 wamber d ass wis 324 n useggas (wis 325 deg iseggasen "bisekstil"). Llan 41 wussan deffir-s ar taggara n useggas.
+19 wamber - "20 wamber" - 21 wamber
+21 wamber 21 wamber
+
+Ass 21 wamber d ass wis 325 n useggas (wis 326 deg iseggasen "bisekstil"). Llan 40 wussan deffir-s ar taggara n useggas.
+20 wamber - "21 wamber" - 22 wamber
+22 wamber 22 wamber
+
+Ass 22 wamber d ass wis 326 n useggas (wis 327 deg iseggasen "bisekstil"). Llan 39 wussan deffir-s ar taggara n useggas.
+21 wamber - "22 wamber" - 23 wamber
+23 wamber 23 wamber
+
+Ass 23 wamber d ass wis 327 n useggas (wis 328 deg iseggasen "bisekstil"). Llan 38 wussan deffir-s ar taggara n useggas.
+22 wamber - "23 wamber" - 24 wamber
+24 wamber 24 wamber
+
+Ass 24 wamber d ass wis 328 n useggas (wis 329 deg iseggasen "bisekstil"). Llan 37 wussan deffir-s ar taggara n useggas.
+23 wamber - "24 wamber" - 25 wamber
+25 wamber 25 wamber
+
+Ass 25 wamber d ass wis 329 n useggas (wis 330 deg iseggasen "bisekstil"). Llan 36 wussan deffir-s ar taggara n useggas.
+24 wamber - "25 wamber" - 26 wamber
+26 wamber 26 wamber
+
+Ass 26 wamber d ass wis 330 n useggas (wis 331 deg iseggasen "bisekstil"). Llan 35 wussan deffir-s ar taggara n useggas.
+25 wamber - "26 wamber" - 27 wamber
+27 wamber 27 wamber
+
+Ass 27 wamber d ass wis 331 n useggas (wis 332 deg iseggasen "bisekstil"). Llan 34 wussan deffir-s ar taggara n useggas.
+26 wamber - "27 wamber" - 28 wamber
+28 wamber 28 wamber
+
+Ass 28 wamber d ass wis 332 n useggas (wis 333 deg iseggasen "bisekstil"). Llan 33 wussan deffir-s ar taggara n useggas.
+27 wamber - "28 wamber" - 29 wamber
+29 wamber 29 wamber
+
+Ass 29 wamber d ass wis 333 n useggas (wis 334 deg iseggasen "bisekstil"). Llan 32 wussan deffir-s ar taggara n useggas.
+28 wamber - "29 wamber" - 30 wamber
+30 wamber 30 wamber
+
+Ass 30 wamber d ass wis 334 n useggas (wis 335 deg iseggasen "bisekstil"). Llan 31 wussan deffir-s ar taggara n useggas.
+29 wamber - "30 wamber" - 1 dujamber
+1 dujamber 1 dujamber
+
+Ass n 1 dujamber d ass wis 335 n useggas (wis 336 deg iseggasen "bisekstil"). Llan 30 wussan deffir-s ar taggara n useggas.
+30 wamber - "1 dujamber" - 2 dujamber
+4 dujamber 4 dujamber
+
+Ass 4 dujamber d ass wis 338 n useggas (wis 339 deg iseggasen "bisekstil"). Llan 27 wussan deffir-s ar taggara n useggas.
+3 dujamber - "4 dujamber" - 5 dujamber
+5 dujamber 5 dujamber
+
+Ass 5 dujamber d ass wis 339 n useggas (wis 340 deg iseggasen "bisekstil"). Llan 26 wussan deffir-s ar taggara n useggas.
+4 dujamber - "5 dujamber" - 6 dujamber
+
+6 dujamber 6 dujamber
+
+Ass 6 dujamber d ass wis 340 n useggas (wis 341 deg iseggasen "bisekstil"). Llan 25 wussan deffir-s ar taggara n useggas.
+5 dujamber - "6 dujamber" - 7 dujamber
+7 dujamber 7 dujamber
+
+Ass 7 dujamber d ass wis 341 n useggas (wis 342 deg iseggasen "bisekstil"). Llan 24 wussan deffir-s ar taggara n useggas.
+6 dujamber - "7 dujamber" - 8 dujamber
+8 dujamber 8 dujamber
+
+Ass 8 dujamber d ass wis 342 n useggas (wis 343 deg iseggasen "bisekstil"). Llan 23 wussan deffir-s ar taggara n useggas.
+7 dujamber - "8 dujamber" - 9 dujamber
+9 dujamber 9 dujamber
+
+Ass 9 dujamber d ass wis 343 n useggas (wis 344 deg iseggasen "bisekstil"). Llan 22 wussan deffir-s ar taggara n useggas.
+8 dujamber - "9 dujamber" - 10 dujamber
+10 dujamber 10 dujamber
+
+Ass 10 dujamber d ass wis 344 n useggas (wis 345 deg iseggasen "bisekstil"). Llan 21 wussan deffir-s ar taggara n useggas.
+9 wamber - "10 dujamber" - 11 dujamber
+Timeẓrit Timeẓrit
+Umuɣ n tiwilayin n Tmurt Leqbayel Umuɣ n tiwilayin n Tmurt Leqbayel
+
+Tamurt n Iqbayliyen tefraq s sa (7) timazdayin tizayezin tiɣzutin i neqqar tiwilayin.
+
+Tawilayt ugaren tiyeḍ nniḍen: 
+
+Tawilayt ddaw tiyeḍ nniḍen: 
+
+Tafelwit uḍfiṛ i t-efk umuɣ n tiwilayin tiqbayliyin dɣa, i t-efk daɣen, i yal tawilayt, tangalt is, isem is (d isem n tamdint yellan amḍiq-aɣella n tawilayt), amḍan n igezda (d afraq adbel n tawilayt), amḍan n timdinin, tajumma-s, d imezdaɣ is.
+
+!Code 
+!Tawilayt 
+!Amḍan n igezda 
+!Amḍan n timdinin 
+!TajummaKm² 
+!Imezdaɣ 
+Tutlayt tasenselkimt Tutlayt tasenselkimt
+
+Neqqar-as tutlayt tasenselkimt i tutlayt talɣawit ur llan ara Turing-ummid yettweseqdacen deg usnulfu, assaley, neɣ ammud n unagraw n talɣut. Yiwen deg-sen isem-is ASCII.2 fuṛaṛ 2 fuṛaṛ
+
+Ass n 2 fuṛaṛ d ass wis 33 n useggas. Llan 332 wussan deffir-s ar taggara n useggas, wis 333 deg iseggasen "bisekstil".
+1 fuṛaṛ - "2 fuṛaṛ" - 3 fuṛaṛ
+3 fuṛaṛ 3 fuṛaṛ
+
+Ass n 3 fuṛaṛ d ass wis 34 n useggas. Llan 331 wussan deffir-s ar taggara n useggas, wis 332 deg iseggasen "bisekstil".
+2 fuṛaṛ - "3 fuṛaṛ" - 4 fuṛaṛ
+
+4 fuṛaṛ 4 fuṛaṛ
+
+Ass n 4 fuṛaṛ d ass wis 35 n useggas. Llan 330 wussan deffir-s ar taggara n useggas, wis 331 deg iseggasen "bisekstil".
+3 fuṛaṛ - "4 fuṛaṛ" - 5 fuṛaṛ
+5 fuṛaṛ 5 fuṛaṛ
+
+Ass n 5 fuṛaṛ d ass wis 36 n useggas. Llan 329 wussan deffir-s ar taggara n useggas, wis 330 deg iseggasen "bisekstil".
+4 fuṛaṛ - "5 fuṛaṛ" - 6 fuṛaṛ
+6 fuṛaṛ 6 fuṛaṛ
+
+Ass n 6 fuṛaṛ d ass wis 37 n useggas. Llan 328 wussan deffir-s ar taggara n useggas, wis 329 deg iseggasen "bisekstil".
+5 fuṛaṛ - "6 fuṛaṛ" - 7 fuṛaṛ
+7 fuṛaṛ 7 fuṛaṛ
+
+Ass n 7 fuṛaṛ d ass wis 38 n useggas. Llan 327 wussan deffir-s ar taggara n useggas, wis 328 deg iseggasen "bisekstil".
+6 fuṛaṛ - "7 fuṛaṛ" - 8 fuṛaṛ
+8 fuṛaṛ 8 fuṛaṛ
+
+Ass n 8 fuṛaṛ d ass wis 39 n useggas. Llan 326 wussan deffir-s ar taggara n useggas, wis 327 deg iseggasen "bisekstil".
+7 fuṛaṛ - "8 fuṛaṛ" - 9 fuṛaṛ
+9 fuṛaṛ 9 fuṛaṛ
+
+Ass n 9 fuṛaṛ d ass wis 40 n useggas. Llan 325 wussan deffir-s ar taggara n useggas, wis 326 deg iseggasen "bisekstil".
+8 fuṛaṛ - "9 fuṛaṛ" - 10 fuṛaṛ
+10 fuṛaṛ 10 fuṛaṛ
+
+Ass n 10 fuṛaṛ d ass wis 41 n useggas. Llan 324 wussan deffir-s ar taggara n useggas, wis 325 deg iseggasen "bisekstil".
+9 fuṛaṛ - "10 fuṛaṛ" - 11 fuṛaṛ
+
+
+11 fuṛaṛ 11 fuṛaṛ
+
+Ass n 11 fuṛaṛ d ass wis 42 n useggas. Llan 323 wussan deffir-s ar taggara n useggas, wis 324 deg iseggasen "bisekstil".
+10 fuṛaṛ - "11 fuṛaṛ" - 12 fuṛaṛ
+12 fuṛaṛ 12 fuṛaṛ
+
+Ass n 12 fuṛaṛ d ass wis 43 n useggas. Llan 322 wussan deffir-s ar taggara n useggas, wis 323 deg iseggasen "bisekstil".
+11 fuṛaṛ - "12 fuṛaṛ" - 13 fuṛaṛ
+
+13 fuṛaṛ 13 fuṛaṛ
+
+Ass n 13 fuṛaṛ d ass wis 44 n useggas. Llan 321 wussan deffir-s ar taggara n useggas, wis 322 deg iseggasen "bisekstil".
+12 fuṛaṛ - "13 fuṛaṛ" - 14 fuṛaṛ
+14 fuṛaṛ 14 fuṛaṛ
+
+Ass n 14 fuṛaṛ d ass wis 45 n useggas. Llan 320 wussan deffir-s ar taggara n useggas, wis 321 deg iseggasen "bisekstil".
+13 fuṛaṛ - "14 fuṛaṛ" - 15 fuṛaṛ
+15 fuṛaṛ 15 fuṛaṛ
+
+Ass n 15 fuṛaṛ d ass wis 46 n useggas. Llan 319 wussan deffir-s ar taggara n useggas, wis 320 deg iseggasen "bisekstil".
+14 fuṛaṛ - "15 fuṛaṛ" - 16 fuṛaṛ
+16 fuṛaṛ 16 fuṛaṛ
+
+Ass n 16 fuṛaṛ d ass wis 47 n useggas. Llan 318 wussan deffir-s ar taggara n useggas, wis 319 deg iseggasen "bisekstil".
+15 fuṛaṛ - "16 fuṛaṛ" - 17 fuṛaṛ
+17 fuṛaṛ 17 fuṛaṛ
+
+Ass n 17 fuṛaṛ d ass wis 48 n useggas. Llan 317 wussan deffir-s ar taggara n useggas, wis 318 deg iseggasen "bisekstil".
+16 fuṛaṛ - "17 fuṛaṛ" - 18 fuṛaṛ
+18 fuṛaṛ 18 fuṛaṛ
+
+Ass n 18 fuṛaṛ d ass wis 49 n useggas. Llan 316 wussan deffir- s ar taggara n useggas, wis 317 deg iseggasen "bisekstil".
+17 fuṛaṛ - "18 fuṛaṛ" - 19 fuṛaṛ
+19 fuṛaṛ 19 fuṛaṛ
+
+Ass n 19 fuṛaṛ d ass wis 50 n useggas. Llan 315 wussan deffir-s ar taggara n useggas, wis 316 deg iseggasen "bisekstil".
+18 fuṛaṛ - "19 fuṛaṛ" - 20 fuṛaṛ
+20 fuṛaṛ 20 fuṛaṛ
+
+Ass n 20 fuṛaṛ d ass wis 51 n useggas. Llan 314 wussan deffir-s ar taggara n useggas, wis 315 deg iseggasen "bisekstil".
+19 fuṛaṛ - "20 fuṛaṛ" - 21 fuṛaṛ
+21 fuṛaṛ 21 fuṛaṛ
+
+Ass n 21 fuṛaṛ d ass wis 52 n useggas. Llan 313 wussan deffir-s ar taggara n useggas, wis 314 deg iseggasen "bisekstil".
+20 fuṛaṛ - "21 fuṛaṛ" - 22 fuṛaṛ
+22 fuṛaṛ 22 fuṛaṛ
+
+Ass n 22 fuṛaṛ d ass wis 53 n useggas. Llan 312 wussan deffir-es ar taggara n useggas, wis 313 deg iseggasen "bisekstil".
+21 fuṛaṛ - "22 fuṛaṛ" - 23 fuṛaṛ
+
+23 fuṛaṛ 23 fuṛaṛ
+
+Ass n 23 fuṛaṛ d ass wis 54 n useggas. Llan 311 wussan deffir-s ar taggara n useggas, wis 312 deg iseggasen "bisekstil".
+22 fuṛaṛ - "23 fuṛaṛ" - 24 fuṛaṛ
+24 fuṛaṛ 24 fuṛaṛ
+
+Ass n 24 fuṛaṛ d ass wis 55 n useggas. Llan 310 wussan deffir-s ar taggara n useggas, wis 311 deg iseggasen "bisekstil".
+23 fuṛaṛ - "24 fuṛaṛ" - 25 fuṛaṛ
+25 fuṛaṛ 25 fuṛaṛ
+
+Ass n 25 fuṛaṛ d ass wis 56 n useggas. Llan 309 wussan deffir-s ar taggara n useggas, wis 310 deg iseggasen "bisekstil".
+24 fuṛaṛ - "25 fuṛaṛ" - 26 fuṛaṛ
+26 fuṛaṛ 26 fuṛaṛ
+
+Ass n 26 fuṛaṛ d ass wis 57 n useggas. Llan 308 wussan deffir-s ar taggara n useggas, wis 309 deg iseggasen "bisekstil".
+25 fuṛaṛ - "26 fuṛaṛ" - 27 fuṛaṛ
+27 fuṛaṛ 27 fuṛaṛ
+
+Ass n 27 fuṛaṛ d ass wis 58 n useggas. Llan 307 wussan deffir-s ar taggara n useggas, wis 308 deg iseggasen "bisekstil".
+26 fuṛaṛ - "27 fuṛaṛ" - 28 fuṛaṛ
+28 fuṛaṛ 28 fuṛaṛ
+
+Ass n 28 fuṛaṛ d ass wis 59 n useggas. Llan 306 wussan deffir-s ar taggara n useggas, wis 307 deg iseggasen "bisekstil".
+27 fuṛaṛ - "28 fuṛaṛ" - 29 fuṛaṛ
+29 fuṛaṛ 29 fuṛaṛ
+
+Ass n 29 fuṛaṛ d ass amyermud igan d ass wis 60 deg taswast tagrigurt d taswasttayulyant deg waddas n useggas amanaẓ. Llan 306 wussan deffir-s ar taggara n useggas.
+
+Yella ass n 29 fuṛaṛ deg iseggasen n 2000, 2004, 2008, 2012, 2016 s akin ad yili deg useggas 2020, dɣa deg useggas 2024 ... Atg
+
+Ass n "29 fuṛaṛ" yettili yal kuẓ iseggasen
+
+28 fuṛaṛ - "29 fuṛaṛ" - 1 meɣres
+Agni n Yeɣran Agni n Yeɣran
+
+Agni n Yeɣran (Abdar: "Agʷni Ggeɣran") d taɣiwant n Tmurt Taqbaylit tezga-d deg ugezdu n Tizi Wezzu di Tmurt Taqbaylit.
+
+Taɣiwant n Agwni Ggeɣran tella deg unẓul n twilayt n Tizi Uzzu.
+
+Taɣiwant n Agwni Ggeɣran tesɛa 14 tudrin :
+
+
+Taɣiwant tesɛa taneɣraft tameqrant n tilebbiḍin n waman. Agraw Cevital yeldi aqbrib taɣbalut agi zdat taddart n Agwni Ggeɣran taneɣraft n 23 000 m² id ttaken 2,5 imelyunen n tilebbiḍin deg wass n ticreḍt de la marque Lalla Xediǧa (ticreḍt).
+
+Icerriḍen Icerriḍen
+
+Icerriḍen d yiwet taddart taqburt i-d yezgan deg tɣiwant n At Aggwaca deg Tmurt n Iqbayliyen. 
+
+Ay dagi i yeḍran Imenɣi n Yicerriḍen mgal igen arumi deg wass wis24 n Yunyu 1857. 
+Kamal Ɛawis Kamal Ɛawis
+
+Kamal Ɛawis (ilul deg 18 mayyu 1952 deg temdint n Ldzayer - yemmut deg 8 yennayer 2010 deg Umafag n Orly di Fransa), d amarir n tkurt n uḍar adzayri. Yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1972 ed 1973.
+Racid Dali Racid Dali
+
+Racid Dali (ilul deg 30 Dujember 1953), d amarir adzayri n tkurt n uḍar. Yurar d amenṭag (attaquant) deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel (gar 1972 ed 1973).
+Muḥemmed Yuc Muḥemmed Yuc
+
+Muḥemmed Yuc (ilul deg 3 Meɣres 1947 deg Ɛin Benyan, tawilayt n Ldzayer), d amarir adzayri n tkurt n uḍar. Yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel (deg 1972-1973).
+Ɛumar Zeɣdud Ɛumar Zeɣdud
+
+Ɛumar Zeɣdud (ilul deg 14 Yebrir 1952 deg twilayt n Tizi Wezzu), d amarir adzayri n tkurt n uḍar, yurar d alemmas deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1971 ed 1973.
+Ɛumar Belḥusin Ɛumar Belḥusin
+
+Ɛumar Belḥusin yella d aselway n teɣlamt n Yilemẓiyen Inaddalen n Leqbayel deg tsemhuyt n 1972-1973.
+Rabeḥ Mengelti Rabeḥ Mengelti
+
+Rabeḥ Mengelti (ilul deg 28 Wamber 1951 deg twilayt n Tizi Wezzu), d amarir n tkurt n uḍar adzayri. Yurar d amḥaddi deg Yilemẓiyen Inaddalen n Leqbayel gar 1971 d 1973.
+Suq n Letniyen Suq n Letniyen
+Tadayṛa Tadayṛa
+
+Tadayṛa (s taɛrabt : دائرة = taẓayert ; asget "dawaa'ir") d adutaẓunt n twilayt deg tadbelt tansakalant.
+
+Tadayṛa tssegrew aṭas n tɣiwanin. Tettaked ipaspuṛen igraɣlanen, issirgen n unheṛ d tikarḍiwin tiɣelnawin n tmagit i iɣermanen izedɣen ɣef akal is, daɣen aswaḍ n imuhal yettwexedmen sɣur imeẓla ideblanen am tɣiwanin, imeẓla itekniyen, etc.
+
+Muḥemmed Weld Ɛebdelɛaziz Muḥemmed Weld Ɛebdelɛaziz
+
+Muḥemmed Weld Ɛebdelɛaziz d ajiniṛal yerna d aselway n Muriṭanya seg 2009. Ilul 20 Dujembeṛ 1956 deg temdint n Akjujt.
+Tidayṛiwin n Tmurt Taqbaylit Tidayṛiwin n Tmurt Taqbaylit
+
+Tadayṛa (s taɛrabt : دائرة = taẓayert (asun); asget "tidayṛiwin") d adutaẓunt n twilayt deg tadbelt tansakalant. 
+
+Tetssegrew aṭas n tɣiwanin. Tettaked ipaspuṛen igraɣlanen, issirgen n unheṛ d tikarḍiwin tiɣelnawin n tmagit i iɣermanen izedɣen ɣef akal is, daɣen aswaḍ n imuhal yettwexedmen sɣur imeẓla ideblanen am tɣiwanin, imeẓla itekniyen, etc.
+
+Llant deg aɣrud 102 tidayṛiwin.
+
+
+Tidayṛiwin n twilayt n Tizi Wezzu Tidayṛiwin n twilayt n Tizi Wezzu
+
+Tawilayt n Tizi Wezzu di Tamurt Taqbaylit ɣer-s snat n tmerwin d yiwet tidayṛiwin, yal yiwet ɣer-s aṭas n tiɣiwanin, i uɣrud n sḍiset n tmerwin d sat n tiɣiwanin.
+
+Tafelwit ddaw agi tettaked umuɣ n tidayṛiwin n twilayt n Tizi Wezzu akked tiɣiwanin ines.
+
+Ijqiwen Ijqiwen
+
+Ijqiwen (Asuf: Ajqiw), (assaɣ usnan: Passerifores) d yiwet n tfesna tameqrant s waṭas n iylalen dgi yettwaqqen ar ɣures Azgen n telmas n iylalen s wazal n 5400 n telmas
+
+
+
+Ayyur (amtiweg) Ayyur (amtiweg)
+
+Ayyur d tafekka tubrint i yettezzin ɣef Akal (lqaɛa). 
+
+Ayyur yebɛed ɣef lqaɛa s wazal n 384.000 n yikilumitren. Deg yiḍ, yettakf-d ayen umi nettini tafat n tziri (d tafat n tfukt ay d-yekkaten deg-s). Mi ara yekk wayyur sdat tfukt, yeddal tafat n tfukt, dɣa d ayen umi ɣɣaren "afsax n tfukt" ("éclipse solaire s trumit"). Mi ara t-tesdari lqaɛa ɣef yiṭij, iḍerru-d wayen umi i qqaren afsax n wayyur. 
+
+Ayyur sseqdacen-t seg zik medden akken ad ḥesben ayyuren n useggas n wayyur (am Yinselmen d Yicinwaten). Arma i d asmi i d-yennulfa utiliskup, deg lqern wis 17, i bdan yemdanen ttwalin ṣṣifa n tidet n wakal n wayyur. Deg Yulyu n 1969, imdanen rsen i tikkelt tamezwarut ɣef Wayyur, yerna kemmlen rezzun fell-as arma d 1972. 
+
+""D acerkiḍ amezzyan i umdan, d acerkiḍ ameqqran i talsa!""
+Usud anafuk Usud anafuk
+
+Usud anafuk neɣ Anagraw Afukan d usud atriklan dgi tella tfukt di tlemmast-is tezzi-yas-d tegnit akk d imtiwgen n iden, Akken daɣen i llan-t tfekkiwin iden meẓẓyen af imtiwgen am imtiwgen igezlanen, ismilen d iseffuden akk d iggurenTawilayt n Bgayet Tawilayt n Bgayet
+
+Tawilayt n Bgayet (s tefṛensist: Wilaya de Béjaïa), d tawilayt n ugafa-agmuḍan (nord-est) n Ldzayer, deg wegmuḍ n Tmurt n Leqbayel. Tajumma-nnes 3.268 km² (yikilumitren imkuẓen). Zedɣen-tt 953.953 n yimezdaɣen. Tamaneɣt-ines d tamdint n Bgayet.
+Tawilayt n Jijel Tawilayt n Jijel
+
+Jijel d tanebḍit n ugafa-agmuḍan (nord-est) n Ldzayer, tezga-d ɣef Yilel Agrakal, deg wegmuḍ (ccerq) n Tmurt n Leqbayel. Tajumma-nnes 2.577 km2 (yikilumitren imkuẓen). Zedɣen-tt 659.301 n yimezdaɣen (Ijijliyen). Tamaneɣt-nnes d tamdint n Jijel.
+Ḥmiduc Ḥmiduc
+
+Ḥmiduc, isem-is n tidet Ḥmiduc Xeddim, d acennay azzayri s tutlayt n teqbaylit. 
+
+Ilul ass n 14 ɣuct 1956 deg wakud n tegrawla deg Agni n Waklan deg taddart n Ɛeṭṭuc, taɣiwant n Makuda, tawilayt n Tizi wezzu, deg tmurt n yiqbayliyen (deg yiwen n useggas netta d Lwennas Meεṭub). 
+Yemmut ass n 05 yunyu 2002,deg-wakud n tefsut taberkan. Ssebba n lmut-is, d yiwen waṭṭan n diri i t-yettfen aṭas aya (aṭṭan n tgeẓẓal).
+Taserẓut uzumba Taserẓut uzumba
+
+Taserẓut uzumba neɣ Aṭeggal azegzaw (Assaɣ ussnan: "Sitta ledanti") d talmest n igṭaṭ yeṭṭafaren tfesna n ijqiwen deg twacult n tmeserẓatin yakk d tewsit n temserẓa, učči-ynes yezzi f iɣlifdaren deg unebdu, d ifsan deg tegrest. Tasemhuyt n usegdef n telmest-a tettili-d gar mayu d yunyu. Agdef yettwebna deg uruzen n isekla, deg yal tikkelt n usegdef tawtemt tessrusay gar n Kṛad ar kuẓ (3- 4) n tmellalin. Isrifgen ttwaseččen sɣur sin imarawen nsen.
+
+Taserẓut uzumba d talmest tamyiwent n igṭaṭ amuɣel n Tmurt Taqbaylit, anda ur tesegdud kan (tura) kra n tiẓegwa n taydiwin n ugafa n tmurt. Isem-is ussnan yettak aslulli (tajmilt) i Jean-Paul Ledant, amussanw amaswaḍ abiljiki i d-yuffan afrux nni deg wayyur tuber 1975 ; aglam n ufrux yetwexdem sɣur amesnafrux aṛumi Jacques Vielliard. Isali n tagrut agi yessewhem aṭas amaḍal n tasnafruxt daɣen isali agi yexdem tuzzya n umaḍal (imediaten). Taserzut uzumba tella tudes (teqreb) ar Sitta n Krüper ("Sitta krueperi"). Taserẓut uzumba yegra-yas yiwen kan azwu n uzuzer (i ufrurex d tudert), yettwaggezen sɣur times, arad d tigawt talsant ; talmest tettwali dɣa am « deg umihi » sɣur Tadukli tagraɣlant i tagaẓt n ugama.
+Talmest Talmest
+
+Talmest (s Tlatint: "species") deg tesnudert d yiwet n tigget n usismel asnudran agejdan, Akken i tga d adras amessarti agejdan deg tsensartut, Talmest tettwassen d akken-it d tagrawt n imuddiren ig zemren ad mmreclen gugar-asen w ad farsen tarwa, Ɣas akken asenmel ayi ur d-ikeffu ara deg waṭas n waddaden maca yella wemray (ṣṣeɛuba) deg usenmel n irem n telmest, Dɣa anect-a yettwassen s wugur n talmest acku deg waṭas n wakuden ttwasxedmen wawalen n iden am tasnasileɣt d ullun areygaman 
+
+Tilin n tufutin timsezgiyin timazzagin i kra n twennaṭ yettawi ar ugzam n telmest ar "temsurta s ddaw n uswir n telmest" am adu-telmest (neɣ timsurta n iden yettusxedmen deg tesnimɣan am irzi d talɣa tusligt) 
+
+Tilmas yeṭṭafaren yiwen n uẓar ttusisemlen-t deg yiwet n tewsit anect-a yettili-d s uguni ɣef umcabi gar-asen
+
+Tilin n usenmel amellil i yirem n telmest d wayen yellan s ddaw-as d ayen yellan d imsefki i wefran n telmas d tussna-nsent i wsersi n turdiwin tisnudranin yakk d wakat n tuggtudert (biodiversity)
+Ixef n Usuf Ixef n Usuf
+
+Ixef n Usuf (s teqbaylit : "Ixf n wasif") d yiwet tala n waman isemmaḍen i-d yezgan di tɣiwant n Mɛafa deg twilayt n Batent (Batna). Mecɛuret s waṭas, llan medden si Sṭif ed Tbeskert i yezzuren fell-as deg unebdu. 
+Bazer Saxra Bazer Saxra
+
+Bazer Saxra d taɣiwant n twilayt n Sṭif deg tdayra n Lɛelma, ɣur-s 27 996 imezdaɣ deg useggwas n 2008. 
+At Buḥini At Buḥini
+
+At Buḥini d taddart taqbaylit deg tɣiwant n Yiɛekkuren deg twilayt n Tizi Wezzu. D nettat ay meqqer akk deg tɣiwant s tjumma-s. 
+
+Deg At Buḥini ay ilul Arezqi U Lbacir deg useggwas n 1857, yennaɣ mgal inekcamen irumiyen deg lawan-agi. 
+Ǧimla Ǧimla
+
+Ǧimla d yiwet taɣiwant taqbaylit n twilayt n Jijel, i-d yezgan ar 45 km si tɣiwant n Ǧiǧel, tesɛa 17,373 imezdaɣ deg useggwas n 2008. 
+
+Aswir amsaylal agraɣlan Aswir amsaylal agraɣlan
+
+Iswiren isnifrax igraɣlanen llan d timyagrin gar imesnifrax tiqburin akkw d tigraɣlanin ugaren tiyaḍ nniḍen. Ttwassuddsen sɣur Aseqqamu asnafrux agraɣlan, tagrawt tesɛa azal n 200 imesnifrax. Aswir amezwaru yettwassuddes deg useggwas 1884. Arma 1926, assides nsen yella d arlugan armi ɛzemen ad ssuddesen yal kuẓ iseggwasen (tasureft deg tallit n Umgaru amaḍlan wis sin).
+
+
+Imir (2014) COI yessumer aseggi s lqem 4.2 :
+
+Tiɣiwanin n twilayt n Jijel Tiɣiwanin n twilayt n Jijel
+
+Tawilayt n Jijel deg Dzayer tesɛa 28 tiɣiwanin. 
+
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n twilayt n Jijel, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+Iṣuḥan Iṣuḥan
+
+Iṣuḥan d yiwet taɣiwant n twilayt n Leblida deg tdayra n Larebɛa N At Musa. Ɣur-es azal n 260 imezdaɣ deg 2008. Tḥudd ar tiwilayin n Tubiret ed tin n Lemdeyyet yerna tezga-d di wul n Waṭlas Ablidi.
+Tagelda (tasnudert) Tagelda (tasnudert)
+
+Tagelda (S Tlatinit « "regnum" ») deg tamessartut d aswir wis sin deg udras amessarti, tezgad s ddaw n taɣult, Tigeldiwin ttugezmen-t ar tegrawin meẓẓiyen yettwasemman astirf 
+
+Ass mi id yefka umusnaw Carl Von Linné ismawen ibedden ɣef iswiren deg tesnudert, Yefka aswir amenzu yakk i «tgelda» ṭṭafarent-id kuẓ n yiswiren igejdanen: Asmil, Tafesna, Tawsit, Talmest, Sin akin s kra n wakud ttuskecmen-d sin n iswiren igejdanen n iden s wakken ad tili tezrart: Tagelda ɣer Ustirf ɣer Usmil ɣer Tfesna ɣer Twacult ɣer Tewsit ɣer Telmest, U deg iseggasen n 60 n tsut tis 20 rnan-d aswir sufell n Tgelda igan d taɣult s wakka Tagelda ur tuɣal ara deg ixef n uswir n unagraw-a
+Adur (tasnudert) Adur (tasnudert)
+
+Deg anagrawan, 'astirf (neɣ phylum) d aswir wis sin n aseggi amagnu n tilmas timuddirin.
+
+Astirf yetsbadu deg aẓar am d-anmeɣray ar aɣawas n ussudes amaẓlay.
+
+Astirf d taẓunt d igdawalen maca ttusseqdecen deg imnukal imeẓliyen.
+
+Anagrawan alinnian yetsseqreb ar anagrawan irasnukksan ittases ad yilli uqrib n izdayen isnukksanen n umyili gar tilmas.Buɛendas Buɛendas
+
+Buɛendas d tamdint taqbaylit n twilayt n Sṭif. Deg useggas n 2008, ɣur-s azal n 15,600 imezdaɣ yerna d adeg-aɣella (chef-lieu) n tdayra n Buɛendas deg ugafa n twilayt n Sṭif. 
+
+Draɛ Qabila Draɛ Qabila
+
+Draɛ Qabila d taɣiwant taqbaylit deg ugafa n twilayt n Sṭif. Tezga-d deg tdayra n Walma Waklan, tesɛa deg 2008 azal n 14,492 imezdaɣ. Yerna adeg-aɣella-ines (chef-lieu) yezga-d deg taddart n At Aɛli U Ɛetman. 
+
+Draa Kebila tezga-d ar 70 km si temdint n Sṭif, deg ugafa (au nord) n twilayt deg idurar leqbayel. 
+
+Draa Kebila tesɛa 17 tudrin ay deg ad naf : 
+
+
+Tudrin timezyanin :
+
+Ibetrunen Ibetrunen
+
+Ibetrunen d yiwen n lɛarc i-d yezgan ar 1km ar unẓul n temdint n Tizi Wezzu deg tɣiwant-nni. 
+Si Tizi, ad naf s tazwara taddart n wassif u s taggara s taddart n Imezdaten i tettḥudd af tɣiwant n Imaɛtuqen. 
+
+Llan aṭas di laɛrc n Iqemmuden : 
+
+Lerbeɛṭac Lerbeɛṭac
+
+Lerbeɛṭac (tafrensist : "Larbatache") d yiwet taɣiwant n twilayt n Bumerdas i tebɛed si 35 km n Dzayer Tamanaɣt di wegmuḍ yerna teggug ar 25 km si temdint n Bumerdas. 
+
+Asmil (tasnudert) Asmil (tasnudert)
+
+Deg tasnudert, asmil d aswir wis kraḍ n useggi amagnu n tilmas timuddirin (ẓeṛ anagrawan).
+
+Isem n ismilen yettfuk s udfir -opsida ɣur leḥcawec, -phyceae ɣur adalen dɣa -mycetes ɣur igersalen.
+I umnakel n uɣersiw, idfiren s lexṣas ersen kan ddaw asertatu n afel-tawacult (ICZN amagrad 27.2).
+
+Imedyaten :
+
+Tafesna (tasnudert) Tafesna (tasnudert)
+
+Deg tasnudert, Tafesna d aswir wis kiẓ deg tsartut n tesnudert yal tafesna n imuddiren tegzem ar waṭas n twaculin iy gezmen s iman-is ar yismilen
+
+Isem n immizewren yettfuk s udfir -ales ɣur leḥcawec, adalen dɣa igersalen.
+I umnakel n uɣersiw, idfiren s lexṣas ersen kan ddaw asertatu n afel-tawacult (ICZN amagrad 27.2). D acu kan, isem n immizewren yettfuk aṭas s udfir -alɣiwin ; anamek : ammizwer yettssegrew tilmas yetcaben deg timeẓri.
+
+Imedyaten :
+
+Tawacult (tasnudert) Tawacult (tasnudert)
+
+Deg tesnudert, tawacult d tamsartut issegrewen tiwsitin id yekksanayen tireswin (imcabiyen) timeqranin gar-asent. Tawacult tga d aswir wis smus (wis 5) deg usismel n Linné 
+Ɣef wayen yezzin ɣef ifukkuyen ilatinen id yemmalen idrasen, udmawen n twaculit ttfakkan s udfir -aceae- (s "āceae", i wesget unti set Tlatint -āceus « tirewsi ») ɣer yimɣan, adalen d iberčečča yakk d idae ɣer iɣersiwen 
+
+Afel-adur Afel-adur
+
+Deg tinnagrawt n umadal n tudert, Afel-adur iga d adras amessarti s uswir anemmas, srid sufell n wedras wadur deg usismel n Linné amensay 
+
+Superphylum d anamek imerni yettusexdem adɣa deg tsenɣersiwt 
+Jacques Vielliard Jacques Vielliard
+
+Jacques Vielliard, isem-is ummid Jacques Marie Edme Vielliard, d amesnafrux aṛumi id lullen di Paris ass n 22 ɣuct 1944 dɣa yemmut ɣef ljal n waṭṭan n iraggwen n wakal (malaria) ass n 9 ɣuct 2010, di Brizil. D imseḍru n tasmekta tameqrant n iklasen n ifrax.
+
+D ameskar n imuhal ɣef Aɣbub amectuḥ ameskil (bécasseau variable).
+
+Amankal "Proceratophrys vielliardi" yettwasem aken am tajmilt i Jacques Vielliard.
+Aɣersiw Aɣersiw
+
+Aɣersiw (s Tlatint: "Animalia") d tagrawt tagejdant n imuddiren inedmuččuten tettwasismel s umeggez-ines d Tagelda tasnudrant timziregt s yisem n tgelda taɣersawt 
+S umata, iɣersiwen ttusisemlen d akken-iten d imagtebniqen zemren ad wliwlen (ad ḥerrken) w ad aɣen awal i yesmeksilen (ibeddilen) n twennaṭ, Akken daɣen i han d imuddiren iy tetten, ama s wučči n yimɣan neɣ n iɣersiwen n iden 
+
+Deg usismel ussnan atrar, timsurta n iɣersiwen ttwasemmayen-t Animalia deg wassaɣ ussnan 
+Timzikrin Timzikrin
+
+Timzikrin d astirf n iɣersiwen imsidisen. Kraḍ adu-istirfen ttwassemlilen deg tagrawt agi : Nnig-temzikrin, Urukkurdiyen d Kraniyiyen, sin ineggura agi ttwassemlilen ddaw taxon Ulfaktures.5 yunyu 5 yunyu
+
+Ass 5 yunyu d ass wis 156 n useggas (wis 157 deg iseggasen "bisekstil"). Llan 209 wussan deffir-s ar taggara n useggas.
+4 yunyu - "5 yunyu" - 6 yunyu
+
+17 yulyu 17 yulyu
+
+16 yulyu - "17 yulyu" - 18 yulyu
+
+Ass 17 yulyu d ass wis 198 n useggas (wis 199 deg iseggasen "bisekstil"). Llan 167 wussan deffir-s ar taggara n useggas.
+Wiki Wiki
+
+Awiki d asnas web i ɛemmeden asnulfu, abeddel d usumen imazdayen n isebtar deg yiwen asmel web. Yetseqdec tutlayt n tarusi n ticraḍ dɣa agbur ines yezmer ad yetbeddel s iminig web. D afecku n ussefrek n ugbur.César yessefk ad yemmet (César doit mourir) César yessefk ad yemmet (César doit mourir)
+
+Cesar ilaq ad yemmet ("") d asaru aṭalyan yettwasseḍrun sɣur Paolo d Vittorio Taviani, yeffɣed deg useggwas 2012. Yetwebren am afetasugna, yettwassefru sɣur inekrufen ddaw tisunḍiwin n umssebded ɣer asayes Fabio Cavalli, dɣa yetwexdem s umur s aberkan d umellal.
+
+assebded ɣer asayes "Yulyu Qiṣer", n William Shakespeare, sɣur inekrufen n agmam taɣellist taɛlayant n takurmut n Rebibbia, di Roma.
+
+
+Tuddsa n Yeɣlanen Yeddukklen Tuddsa n Yeɣlanen Yeddukklen
+
+Tuddsa n Yeɣlanen Yedduklen (neɣ "Iɣlanen Yeddukklen") d tuddsa tagraɣlant iqeddcen i lmend n tallalt (wemɛawen) gar tmura deg yinurar n usaduf (lqanun), n teflest, n tdamsa, n tmetti yakk d izerfan n wemdan akked tmuski n telwit deg umaḍal. Tuddsa ayyi sbedden-tt-id deg useggas n 1945 assmi ifuk wemsenɣi amadlan wis sin deg yideg n Temɣunt n Yeɣlanen i lmend n usebded (weḥbas) n yimenɣi gar tmura. Ass-a, llant 192 n tmura yettekkan deg Tuddsa n Yeɣlanen Yeddukklen. Tuddsa-a tla (tesɛa) daɣen aṭas n tuddsiwin yeqqnen ar ɣur-s, yal yiwet tqeddec deg wenrar-iss. 
+
+Ammas n Yeɣlanen Yeddukklen yezga-d deg temdint n New York deg tmurt n Yiwunak Yeddukklen.
+
+Tagraɣlant Tanemlayt Tagraɣlant Tanemlayt
+
+Tagraɣlant Tanemlayt (s tefṛensist: Internationale Socialiste), d tuddsa tagraɣlant aydeg yettekka umur ameqran n yikabaren inemlayen (socialistes) n umaḍal.
+Nnijer Nnijer
+
+Nnijer d tamurt n Tefriqt. Tajumma-nnes 1.267.000 km2 (ikilumitren imkuẓen). Zedɣen-tt 15.306.252 n yimezdaɣen (Inijiriyen). Tamaneɣt-nnes d Niamey.
+Ferḥat Ɛebbas Ferḥat Ɛebbas
+
+Ferḥat Mekki Ɛebbas (ilul deg wass n 24 Tuber 1899 deg Ṭahir, Jijel - yemmut deg 24 Dujember 1985, deg temdint n Ldzayer), d argaz n tsertit aqbayli yerna d ameɣnas ay iwten i lmend n ussuffeɣ n Fransa seg Ldzayer. Deg 1946, yesnulfa-d Tadukli Tamegdayt n Teskint Tadzayrit (Union démocratique du manifeste algérien). 
+
+Deg tallit n wemgaru (ṭṭrad) n Ldzayer, Ɛebbas yettekka deg Terni n Weslelli Aɣelnaw (Front de Libération Nationale). Deg 1958, yeqqel d aselway amezwaru n Unabaḍ Uɛḍil (gouvernement provisoire) n Tegduda tadzayrit, yerna yeṭṭef amkan-a arma ay d 1961, asmi ay t-id-yexlef Benyusef Benxedda. Deg 1962, yettwafren d aselway n Wegraw Aɣelnaw (amni [parlement]) amezwaru n Ldzayer. Deg 1963, yeffeɣ seg wemkan-a ɣef ljal n yiwen n umennuɣ akked unabaḍ n Ḥmed Ben Bella. Ɣef ljal n waya ay yettwaḥbes deg Wedrar. Deg 1965, cwiṭ kan qbel ad d-tili tuttya-nni taserdasit n Hewwari Bumedyen, Ɛebbas bran-as-d seg lḥebs, maca yejbed iman-nnes seg tsertit.
+Tirni n Weslelli Aɣelnaw Tirni n Weslelli Aɣelnaw
+
+Tirni n Weslelli Aɣelnaw (s tefrensist: "Front de Libération Nationale") d akabar adzayri. Asmi ay tuwey Ldzayer azarug-nnes (indépendance) deg 1962, akabar-a yeṭṭef adabu yerna yeqqel d netta ay d akabar awḥid deg Ldzayer arma d 1989. Ar ass-a mazal akabar-a yetturar ddur d ameqran deg tsertit n Ldzayer. Deg 2005, Tirni n Weslelli Aɣelnaw terra Ɛebdelɛaziz Butefliqa d aselway n ukabar, ma d Ɛebdelɛaziz Belxadem yeqqel d amaru amatu n ukabar-a. Deg useggas-nni daɣen, Tirni n Weslelli Aɣelnaw teddukkel akked yikabaren n Wemsegraw Aɣelnaw Amegday (n Ḥmed Uyeḥya) ed Umussu n Tmetti n Talwit (n Bugerra Ṣṣeltani) akken ad d-sbedden tamsisit (alliance) ara ibedden ɣer yidis n uselway Ɛebdelɛaziz Butefliqa.
+Agraw n Euro Agraw n Euro
+
+Agraw n Euro (neɣ Euragraw) d timlilit tamaggurt (dɣa awarseklant) n ineɣlafen n teẓraf n Iwunak imaslaḍen n asun euro, deg iẓri n ussemyuddes n tasertit tudmist nsen. 
+
+Yetwexleq sɣur Aseqqamu uṛufi deg useggwas 1997, Agraw n Euro yeswerwer "de facto" deg tanga-s Aseqqamu n ineɣlafen n teẓraf uṛufiyen yettilin azekka-nni n timlilit n Agraw n Euro, ayɣef yesismur iɣtasen. Aselway yettwafren i anna n sin iseggwasen d wezgen (taynayt id yernan sɣur amtawa n Lisbun).
+
+Ahulandi Jeroen Dijsselbloem, 46 iseggwasen, aneɣlaf n teẓraf, yettwafren ass n arim (letniyen) 21 yennayer 2013 aselway n Euragraw.
+
+Deg useggwas 2008, Euragraw yesfaydi ibeddilen imaynuten, imi id yetwajmeɛ ass n 12 tuber, deg uswir n iɣellaten n Uwanak d wid n unabaḍ, dɣa yemmager i uzgen n ssaɛa Gordon Brown, Aneɣlaf amezwaru aqdim n Tagelda Yeddukklen, yiwet tamurt ur llan ara deg asun euro.
+
+Euroagraw mačči d tasudut tanaggayt. Sakkin tettwers Tadukli tudmist d taqariḍant (UEM), timura n asun n euro imal ḥwaǧen ad ssegrewen iwakken ad meslayen ɣef isental yerzan ɣef euro. 
+
+
+Qasi Tizi Wezzu Qasi Tizi Wezzu
+
+Qasi Tizi Wezzu, Hamid Lourari deg isem-is idetti. Ilul-d deg useggas n 1931 di At Wartilan di Tmurt Taqbaylit dɣa yemmut ass n 19 wamber 2014 di Zzayer sakin aḍḍan aɣezfan. Qasi Tizi-Uzzu d azeffan n umezgun d tiliẓri tazzayrit. Yettwassen i ubusin id yexdem s Krikec neɣ Salaḥ Saɛdawi.
+Taberlinit 2012 Taberlinit 2012
+
+Taberlinit 2012 d taẓrigt tis 62 n Tafaska n usaru n Berlin, yedran seg 9 fuṛaṛ 2012 ar 19 fuṛaṛ 2012. Mike Leigh, amssebded ɣer asayes n umezgun dɣa amseḍru anglizi, d netta id aselway n umgalaw.
+
+Isura ddaw agi kecmen ar timenyagert i Ursu n ureɣ :
+
+
+Wad Ccerfa Wad Ccerfa
+
+Wad Ccerfa (Tafrensist : Oued Chorfa) d yiwet tɣiwant n twilayt n Ɛin Ddefla, deg wammas-ataram n tmurt Ledzayer di tmurt n Iznaten (Iznaten). Deg useggwas n 2008, tesɛa azal n 13,353 imezdaɣ. 
+Buraced Buraced
+
+Buraced d yiwet tɣiwant n twilayt n Ɛin Ddefla. Deg 2008, ɣur-s azal n 29,680 imezdaɣ. 
+Tiberkanin Tiberkanin
+
+Tiberkanin d yiwet tɣiwant n twilayt n Ɛin n Defla. Deg 2008, ɣur-s azal n 16,384 imezdaɣ. 
+Sidi Lexḍer (Ɛin Ddefla) Sidi Lexḍer (Ɛin Ddefla)
+
+Sidi Lexḍer (s tefrensist: "Sidi Lakhdar") d yiwet tɣiwant n twialyt n Ɛin Ddefla, tezga-d ar 120 ikilumitren ar utaram n temdint n Ledzayer Tamanaɣt. Deg 2008 ɣur-es azal n 20,970 imezdaɣ. Di lawan n temhersa tafrensist, llan ɣɣaren-as s yisem n "Lavarande".
+Mendas Mendas
+
+Mendas d yiwet tɣiwant n twilayt n Yiɣil Izzan. Deg useggwas n 2008, ɣur-es azal n 15,127 imezdaɣ. 
+Wlad Buɣalem Wlad Buɣalem
+
+Wlad Buɣalem (tamaziɣt taneṣlit : It Buɣalem neɣ "Ah Buɣalem") d yiwet tɣiwant n twilayt n Mestɣanem. Deg useggas n 2008, ɣur-e azal n 13,761 imezdaɣ.
+
+Ɣef wayen yenna René Basset, d amnadi af tmaziɣt n zik, llan zik imaziɣen i yesawalen (yemeslayen) Janat (Znatiya) ar 1900 di teqbilt n Ɛacaca ("Étude sur la Zenatia de l'Ouarsenis et du Maghreb central"). 
+Mehdi Serbaḥ Mehdi Serbaḥ
+
+Mehdi Serbaḥ (ilul deg 31 yennayer 1953 deg temdint n Lezzayer) d amarir adzayri n tkurt n uḍar. Yella d aɛessas n ucebbak n teɣlamt n Yilemẓiyen Inaddalen n Leqbayel (gar 1972-1973).
+Ḥamid Tibuci Ḥamid Tibuci
+
+Ḥamid Tibuci (ilul deg 12 Furar 1951 deg Bgayet), d amedyaz azzayri yessefruyen s tefrensist yerna d amekla (peintre). Yuwey-d turagt (licence) n tanglizit yerna yezdeɣ deg Fransa seg useggas n 1982. Gar yedlisen-nnes: Mer ouverte (Ilel iledyen, 1973) akked Soleil d'herbe (1977).
+Sidi Bu Sɛid Sidi Bu Sɛid
+
+Sidi Bu Sɛid d tamdint n ugafa-agmuḍan (nord-est) n Tunes, zedɣen-tt 5.409 n yimezdaɣen.
+Fuad Lembezzeɛ Fuad Lembezzeɛ
+
+Fuad Lembezzeɛ d aselway uɛḍil n Tunes seg wass n 15 Yennayer 2011 (deg wemkan n Zin Lɛabidin Ben Ɛli ay yennejlan seg tmurt). Lembezzeɛ ilul deg wass n 16 Yunyu 1933 deg temdint n Tunes.
+Baji Qayed Ssebsi Baji Qayed Ssebsi
+
+Baji Qayed Ssebsi (ilul deg 29 wamber 1926 deg Sidi Bu Saɛid), d aselway n Tegduda n Tunes. D argaz n tsertit yerna d abugaṭu atunsi. Deg wass n 27 fuṛaṛ 2011, aselway Fuad Mebazaɛ yerra-t d Aneɣlaf Amezwaru n Tunes deg wemkan n Muḥemmed Ɣennuci. Sakkin, yesnulfa akabar Nida Tunes deg 2012, i yernan aṭas n isutal deg Tifranin Tisnagalanin n 2014 deg Tunes (élections législatives). 
+Abu Lḥasan Abu Lḥasan
+
+Abu Lḥasan d taɣiwant n Cclef, zedɣen-tt 20.164 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Cavaignac". 
+
+Asmi ay tuwey Ldzayer azarug, semman-as Abu Lḥasan, akken ad rren tajmilt i yiwen n wemjahed ɣɣaren-as Abu Lḥasan (isem-nnes n tidet d Ɛebdelqader Lbaqi, ilul deg tama n Remci, deg Tlemsan). 
+
+Deg 11 Nwember 1992, taɣiwant n Abu Lḥasan iḥuza-tt uḥemmal d ameqran. Taɣiwant-a tenḍerr mliḥ deg tallit n ccwal ay inekren deg tmurt n Ldzayer gar 1992 ed 2002, maca seg 1999 ar ass-a, yebda tebda tetteqqal-d talwit ɣer tɣiwant-a cwiṭ, cwiṭ.
+Wlad Sidi Brahim Wlad Sidi Brahim
+
+Wlad Sidi Brahim d yiwet n tɣiwant n twilayt n Temsilt, deg tdayra n Wlad Sidi Brahim, yerna adeg-aɣella-s d Ɛin Ddis. Deg 2008, ɣur-es azal n 10.716 imezdaɣ.
+Ɛin Benxlil Ɛin Benxlil
+
+Ɛin Benxlil d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 3.720 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 12.632 imezdaɣ. 
+Negrin Negrin
+
+Negrin d yiwet tɣiwant n twilayt n Tebbest, deg 2008 ɣur-es azal n 9.445 imezdaɣ. Amɣiwan-nnes d Xaled Lexḍar seg Tirni n Weslelli Aɣelnaw. 
+Ḥasi Lefḍul Ḥasi Lefḍul
+
+Ḥasi Lefḍul d yiwet tɣiwant n twilayt n Jelfa, deg 2008 ɣur-s azal n 13.171 imezdaɣ. 
+Ḥemmamat Ḥemmamat
+
+Ḥemmamat d yiwet tɣiwant n twilayt n Tebbest, tesɛa deg 2008 azal n 20.148 imezdaɣ. 
+Lexmis n Tmelyant Lexmis n Tmelyant
+
+Lexmis n Tmelyant (s tefrensist: "Khemis Miliana"), d taɣiwant n Ɛin Ddefla. Zedɣen-tt 74.349 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Affreville".
+Lexmis n Lxecna Lexmis n Lxecna
+
+Lexmis n Lxecna (s tefrensist: "Khemis El Khachna"), d taɣiwant n twilayt n Bumerdas, zedɣen-tt 58.573 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Fondouk".
+Mumbay Mumbay
+
+Mumbay (s tefrensist: "Bombay"), d tamdint tameqrant akk deg Lhend, tezga-d deg utaram (lɣerb) n tmurt, ɣef yiri n Ugaraw Ahendi. Zedɣen-tt 13.830.884 n yimezdaɣen.
+Eswatini Eswatini
+
+Eswatini d tamurt n Tefriqt Tanẓulant. Tajumma-nnes 17.364 km2 (ikilumitren imkuẓen). Zedɣen-tt 1.343.098 n yimezdaɣen (Iswaziyen). Tamaneɣt-nnes d Mbabane.
+Mbabane Mbabane
+
+Mbabane d tamaneɣt n Swaziland. Zedɣen-tt 95.000 n yimezdaɣen.
+Buṭaleb Buṭaleb
+
+Buṭaleb (s tifinaɣ: ⴱⵓⵟⴰⵍⴻⴱ) d yiwet tɣiwant n wenẓul n ugezdu n Sṭif. Deg 2008 zedɣen-t wazal n 9.456 imzedaɣen.
+
+1917 1917
+
+Tazɣent n umerwas azayez n Legrig Tazɣent n umerwas azayez n Legrig
+
+Tazɣent n umerwas azayez n Legrig tussa-d seg tugdi n iserwasen n Legrig ɣef tazmert-is i uɣrem n amerwas azayez ines dɣa d uxelleṣ n ainsi que de payer les nnfeɛ n umerwas.Ṭaṭa Ṭaṭa
+
+Ṭaṭa (s teɛrabt : "طاطا") d amda n wenẓul n Umerruk i-d yezgan deffir Mgal-Aṭlas. Tḥudd af iɣerman n : Assa, Tarudant, Tiznit, Agelmim ed Warzazat. 
+Ursu n ureɣ Ursu n ureɣ
+
+Ursu n ureɣ (s telmant "Goldener Bär") d arraz yettunefken deg Tafaska n Berlin seg 1951. Yettunefk sɣur amgalaw unṣib i wsaru aɣezfan n timenyagert tagraɣlant. Ursu d azamul n tamdint n Berlin. 
+
+Ursu n ureɣ yetsreɣɣet sɣur Renée Sintenis. 
+
+Ar ass agi, ala imseḍru ataywan Ang Lee i yernan (i rebḥen) ursu n ureɣ snat tikkwal (deg 1993 d 1996).Aytmaten Taviani Aytmaten Taviani
+
+Aytmaten Paolo d Vittorio Taviani d Imseḍra dɣa imessiyas iṭalyaniyen i lulen 20 ctamber 1929 d 8 wamber 1931 di San Miniato di Pisa deg Ṭṭalyan. Zmelen sin yidsen yal asaru.
+Hashima Hashima
+
+Hashima yezmer ad yilli :
+Bulgarya Bulgarya
+
+Bulgarya d tamurt n Turuft Tagmuḍant. Tajumma-nnes 110.993 km2 (yikilumitren imkuẓen). Zedɣen-tt 7.364.570 n yimezdaɣen (Ibulgariyen). Tamaneɣt-nnes d Sofia.
+Sofia Sofia
+
+Sofia d tamaneɣt n Bulgarya. Zedɣen-tt 1.270.000 n yimezdaɣen.
+Santiago Santiago
+
+Santiago d tamaneɣt n tmurt n Cili. Zedɣen-tt 200.792 n yimezdaɣen.
+Butswana Butswana
+
+Butswana d tamurt n Tefriqt Tanẓulant. Tajumma-nnes 581.730 (ikilumitren imkuẓen). Zedɣen-tt 2.029.307 (Ibutswanen). Tamaneɣt-nnes d Gaborone.
+Gaborone Gaborone
+
+Gaborone d tamaneɣt n Butswana. Zedɣen-tt 191.776 n yimezdaɣen.
+Bangladec Bangladec
+
+Bangladec, d tamurt n wenẓul (sud) n Asya. Tajumma-nnes 147.570 km2 (yikilumitren imkuẓen). Zedɣen-tt 142 n yimelyunen n yimezdaɣen (Ibangladecen). Tamaneɣt-nnes d Dakka.
+Dakka Dakka
+
+Dakka, d tamaneɣt n Bangladec. Zedɣen-tt 7 n yimelyunen n medden.
+Tamrikt Talemmast Tamrikt Talemmast
+
+Tamrikt Talemmast d aḥric alemmas n Temrikt (maca, deg tidet, yettwaḥseb d aḥric seg Temrikt n Ugafa). Tamrikt Talemmast deg-s timura n Gwatimala, Belize, Honduras, Nicaragua, Kusta Rika ed Panama. Tajumma-nnes, s ujemmal, 523.780 km2 (yikilumitren imkuẓen). Zedɣen-tt 41.739.000 n yimezdaɣen.
+
+Tumira n Tamrikt Talemmast :
+
+Tutlayt taspnyolit d tutlayt tanṣibt g Honduras,Salvadur , Nicaragua, Kusta Rika d Panama .
+
+Tutlayt Taglizit d tutlayt tanṣibt g Belize
+Tamrikt n Ugafa Tamrikt n Ugafa
+
+Tamrikt n Ugafa d aḥric n ugafa (nord) n Temrikt (ddant-d deg-s ama d Kanada, Iwunak Yeddukklen ed Meksik, ama d timura n Temrikt Talemmast, arma d Panama). Tajumma-nnes 24.709.000 km2 (yikilumitren imkuẓen). Zedɣen-tt 529 n yimelyunen n yimezdaɣen.
+Tamrikt n Wenẓul Tamrikt n Wenẓul
+
+Tamrikt n Wenẓul d aḥric n Temrikt ay d-yezgan deg wenẓul (sud) n Temrikt Talemmast, seg Panama arma d tigzirt n Wakal n Tmes (ay icerken Cili ed Teṛjentint). Tajumma-nnes 17.840.000 km2. Zedɣen-tt 385.742.554 n yimezdaɣen. Amur ameqran seg tmura n Temrikt n Wenẓul mmeslayent Taspenyult ed Tapurutgizt. 
+Zambya Zambya
+
+Zambya d tamurt n Tefriqt. Tajumma-nnes 752.618 km2 (ikilumitren imkuẓen). Zedɣen-tt 12.935.000 n yimezdaɣen (Izambiyen). Tamaneɣt-nnes d Lusaka.
+Nnaḍur (Arrif) Nnaḍur (Arrif)
+
+Nnaḍur d yiwet temdint ay d-yezgan deg Arrif, tamnaḍt n Imaziɣen Irifanen.
+
+Tamdint n Nnaḍur, d yiwet n temdint yesɛan amakan d usagen (port), tezga-d deg tama n ugafa-asammer (nord-est) n tmurt n Umerruk.
+
+Tezga-d dɣa ar 60 ikilumtren ar tillas n Tmurt n Lzzayer. Tezgad daɣen ar 100 n Ikilumtren ɣef Lḥusima, tamanaɣt n Imaziɣen n Arrif.
+Antigua ed Barbuda Antigua ed Barbuda
+
+Antigua ed Barbuda d tamurt tamecṭuḥt n Temrikt, tezga-d deg tegzirin n Antilles Timecṭuḥin, deg Ugaraw Aṭlasi, teqreb ɣer Kuba. Tajumma-nnes 440 km2. Zedɣen-tt 86.000 n yimezdaɣen. Tamaneɣt-nnes d Saint John's.
+Saint John's Saint John's
+
+Saint John's d tamaneɣt n tmurt n Antigua ed Barbuda. Zedɣen-tt 31.000 n yimezdaɣen.
+Benin Benin
+
+Benin d tamurt n Tefriqt n Utaram. Tajumma-nnes 112.622 km2 (ikilumitren imkuẓen). Zedɣen-tt 8.791.832 n yimezdaɣen (Ibeniniyen). Tamaneɣt-nnes d Porto Novo.
+Iseɛdiyen Iseɛdiyen
+
+Iseɛdiyen (asuf: aseɛdi; s tefrensist: Saadiens, saadides), d tawacult ay iḥekmen Merruk seg 1554 arma d 1603. 
+
+Iseɛdiyen sseɣlin tawacult tuḍɛift n Yiwaṭṭasen deg 1554, yerna bdan ttḥaraben Ispenyuliyen ed Yipurtugizen ay yeḍḍfen kra seg temdinin n tefsirt (côte) n Merruk. Tamaneɣt n Yiseɛdiyen tella deg temdint n Merrakec. Deg 1578, agellid Sebastian Amezwaru n Purtugal, akked ugellid Felipe wis Sin n Spenyul ddukklen akken ad sseɣlin agellid Ɛebdelmalek n Merruk. 
+
+Deg yimenɣi n Qṣer Lekbir, Ɛebdelmalek yessaweḍ ad ten-yernu ma yemmut, yerna ula d agellid n Purtugal, Sebastian, yemmut deg yimenɣi-nni. D aya ay yejjan agellid Felipe n Spenyul, ad yeḥkem ula d tamurt n Purtugal. Ma d agellid Ɛebdelmalek yexlef-it-id gma-s Ḥmed Lmenṣur. 
+
+Aneggaru-a yeẓdem, deg 1591, ɣef temdint n Timbuktu, yerna d aya ay yejjan Merruk ad teḥkem abrid n tnezzut (ttjaṛa) n utaram (lɣerb) n Uneẓruf Ameqran. Asmi ay yemmut Ḥmed Lmenṣur deg 1603, banen-d wuguren deg twacult n Yiseɛdiyen ɣef wanwa ara yeqqlen d agellid.
+Qṣer Lekbir Qṣer Lekbir
+
+Qṣer Lekbir(s Taɛrabt : "القصر الكبير", al-Qaşr al-Kabīr ; s tespenyulit : "Alcazarquivir" ; s tepurtugizt: "Alcácer-Quibir") d yiwet temdint i-d yuzgan deg tama n Ṭanja ed Tiṭṭawin deg ugafa n Merruk ar tama utrim n Arrif. Tura tesɛa azal n 100,000 imezdaɣen, i wumi neqqar "Iqeṣriwen" neɣ "Leqeṣri" s taɛrabt. 
+Nijirya Nijirya
+
+Nijirya d tamurt n Tefriqt Tutrimt. Tajumma-nnes 923.768 km2 (ikilumitren imkuẓen). Zedɣen-tt 185.989.640 n yimezdaɣen (Inijiryanen) (2016). Tamaneɣt-nnes d Abuja.
+Abuja Abuja
+
+Abuja d tamaneɣt n Nijirya. Zedɣen-tt 776.298 n yimezdaɣen.
+Ilel Azeggaɣ Ilel Azeggaɣ
+
+Ilel Azeggaɣ d afurk seg Ugaraw Ahendi, yezga-d gar Tzunegzirt Taɛṛabt akked Tefriqt. Tajumma-nnes 438.000 km2 (yikilumitren imkuẓen).
+Tazunegzirt taɛrabt Tazunegzirt taɛrabt
+
+Tazunegzirt taɛrabt (S teɛrabt: "شبه الجزيرة العربية") d tama tasnamurt id yezgan deg wenẓul-utrim n umenẓaw Asya, Yesnelsa-tt-id seg utaram (umalu) Yilel Azeggaɣ (ay tt-yebḍan ɣef Tefriqt), seg wenẓul Agaraw Ahendi, seg usamar Ilel aɛrab ed Ubagu Afarsi. Tajumma-ynes 2.730.000 km2 (yikilumitren imkuẓen).
+
+Zedɣen-tt 77.983.936 n yimezdaɣen.
+
+Ziland Tamaynut Ziland Tamaynut
+
+Ziland Tamaynut d tamurt n Tukyanust, tezga-d deg wenẓul-agmuḍan (sud-est) n Ustralya. Tamurt-a tebḍa ɣef snat tegzirin d timeqranin: Tigzirt n Ugafa ed Tegzirt n Wenẓul. Tajumma-nnes 268.021 km2 (yikilumitren imkuẓen). Zedɣen-tt 4.393.500 n yimezdaɣen (Inyuzilanden). Tamaneɣt-nnes d Wellington.
+Tukyanust Tukyanust
+
+Tukyanust ("Océanie") d yiwen seg yimenẓawen (continents) neɣ iḥricen imeqranen n umaḍal, d win ay d-ijemmlen Ustralya akked wakk timura ay d-yezgan deg Ugaraw Amelwi ur yettwaqqnen ɣer Asya. Tajumma-nnes 8.536.716 (km2) yikilumitren imkuẓen. Zedɣen-tt 35.670.000 n yimezdaɣen.
+Tasdawit Ɛebderraḥman Mira n Bgayet Tasdawit Ɛebderraḥman Mira n Bgayet
+
+Tasdawit Abderreḥman Mira n Bgayet (taɛrabt : جامعة بجاية neɣ جامعة عبد الرحمان ميرة) d yiwet tasdawit taqbaylit yellan deg tamdint n Bgayet di Tmurt Taqbaylit. 
+
+Teṭṭfed isem-is seg isem n uknaner aqdim n ALN Abderreḥman Mira.
+
+Tettwexleq deg useggwas 1983 am ammas asdawan, tesɛa 205 inelmaden d 40 isselmad deg useggwas amezwaru.
+Deg useggwas 2006, t-uley ar inelmaden d 698 isselmad. I tuqqla 2012, teḥseb aqrib inelmaden, deg-sen 600 ibeṛṛaniyen, d isselmad, s 208 issumren n issilɣen. Tasdawit tettweẓẓel ass-agi ɣef sin ideggen : Targa Uzemmur d Abudaw. Teṭṭfed isem-is seg uknaner Abderreḥman Mira
+Tasdawit n Bgayet tesɛa sin iwurta : Targa Uzemmur d Abudaw.
+Tasdawit Abderreḥman Mira n Bgayet tesɛa tamet tiɣinawtin :
+
+Tamhazt n unadi ussnan deg tasdawit n Bgayet tella deg usfari ameɣlal, tettwegenses tura sɣur 20 inegmiyen n unadi, yetwanesgerzen sɣur Uɣlif n Usselmed imineg d Unadi Ussnan. Asselhu n tafarest tussnant (am ɣef uɣawas n tasmekta am ɣef uɣawas n taɣara) d yiwen n iswan igejdanen i tebɣa ad ttawey tasdawit deg ukatar n ussisen ines i tallalt n unadi ussnan. Tafarest tussnant n tasdawit n Bgayet tetwesbuɣer deg useggwas 2008 s 76 tisufaɣ tigraɣlanin d 231 tiɣwalin tigraɣlanin.
+
+Umuɣ n Inegmiyen n unadi n tasdawit n Bgayet :
+
+
+Tasdawit n Bgayet tella deg timezziraz namyalel ussnan agraɣlan ameqran. Deg axleq ines, tasdawit tezmel imtawayen n imyallen ager-isdawanen am s tisdawiyin tiṛumiyin, tispenyuliyin, tikanadiyin d timarikaniyin. Tasdawit n Bgayet d amaslaḍ n aṭas iẓeḍwan igraɣlanen isdawanen : Averoès Erasmus mundus, TEMPUS, CMEP, DEF/CNRS, PCIM.
+22 ctember 22 ctember
+
+21 ctember - "22 ctamber" - 23 ctember
+
+Ass 22 ctember d ass 265 n useggas (266 deg iseggasen "bisekstil"). Llan 100 wussan deffir-s ar taggara n useggas.
+
+Lkaf (Tunes) Lkaf (Tunes)
+
+Lkaf (s taɛrabt : "الكاف", asuqel s tmaziɣt : "Icc") d yiwet tamdint n Tunest ed wadeg-aɣella n temnaḍt n Lkaf. 
+
+Lkaf tezga-d ar 175 ikilumetren seg temdint n Tunes Tamanaɣt yerna ur teggug ara seg tilisa akid Ledzayer ed tmurt Icawiyen i yellan kan ar 40km. Deg useggwas n 2004, ɣur-es azal n 45,191 imezdaɣen. Tamnaḍt d temdint llant deg wakal n At Drid, yiwet teqbilt tamaziɣt n Tunes. 
+
+Yerna, amɛellem n Lkaf isem-is Sidi Bu Mexluf, yesɛa taqubatt deg temdint. 
+Ccerfa (Tubiret) Ccerfa (Tubiret)
+
+Ccerfa (s tefransist : "Chorfa") d yiwet n tɣiwant i ɣef d-iɛedda webrid aɣelnaw wis 26 deg twilayt n Tubiret deg tdayra n Imceddalen di Tmurt Leqbayel. Deg 2008, taɣiwant n Ccerfa tesɛa (tela) azal n 16.173 imezdaɣen. 
+
+Yerna, Ccerfa d yiwet n taddart i yezgan tettimɣur, lhasun akken d-qqaren imusnawen n umezruy-is tlul-d deg lqern wis 12 (1100 lsɛl), imezdeɣ-ines imezwura llan di yiwet n tiɣilt i wumi neqqer tura Taddart (isem-agi n taddart d win yellan akw di tmura leqbayel).
+Ma d tallalit tunsibt n tɣiwant n ccefa s wazalis d taɣiwant tella-d deg useggas n 1984, akal-is ass-a yesɛa azal n 3063,91 ha, ma d imezdeɣ-ines tesɛa tura ugar n 16000 imezdeɣ. 
+
+5 yebrir 5 yebrir
+
+Ass n 5 yebrir d ass 95 n useggas (96 deg iseggasen "bisekstil"). Llan 270 wussan deffir-es ar taggara n useggas.
+4 yebrir - "5 yebrir" - 6 yebrir
+Ɛli Leɛrayyeḍ Ɛli Leɛrayyeḍ
+
+Ɛli Leɛrayyeḍ (Taɛrabt: علي العريّض‎, ʿAlī al-ʿArayyiḍ; illul deg 15 Ɣuct 1955) d argaz aserti atunsi i yellan zik aneɣlaf amezwaru n Tunes seg 2013 ar 2014. Zikenni, illa deg tneɣlif n tɣellist seg useggwas 2011 ar win n 2013. 
+Sakkin Ḥammadi Jbali yeǧǧa amkan-is, Leɛrayyeḍ la yettɣɣar s uneɣlaf amezwaru deg Furar 2013. Yerna netta d amedraw (membre) n ukabar aserti asenselem atunsi Nnehḍa. 
+Ɛli Leɛrayyeḍ yeǧǧa asutel-is deg 9 Yennayer 2014. 
+1 yulyu 1 yulyu
+18 yebrir 18 yebrir
+
+Ass n 18 yebrir d ass wis 108 n useggas n tafada n grigurian, wis 109 deg aseggas bisekstil. Qqimen 257 ussan uqbel taggara n useggas.
+Cetmet Cetmet
+
+Ceṭmet (s taɛrabt "شتمة") d taɣiwant n twilayt n Tbeskert, deg tdayra n "Sidi Ɛuqba". Deg 2008, ɣur-s azal n 13,699 imezdaɣen i yellan d Icawiyen.
+At Ɛuf At Ɛuf
+
+At Ɛuf (s taɛrabt : "أولاد عوف") d yiwet tɣiwant deg wammas n twilayt n Batent deg temnaṭ n Wawras. Deg 2008, ɣur-es azal n 1,724 imezdaɣen. Adeg-aɣella-s isem-is Tamasaɣit. 
+Taqṣebt (Batent) Taqṣebt (Batent)
+
+Taqṣebt d yiwet tɣiwant n twilayt n Batent, deg tdayra n Ras Leɛyun. Deg 2008 ɣur-es azal n 17,074 imezdaɣen deg 2008. 
+
+Taqṣbet tezga-d (tella) deg ugafa tḥudd af tiɣiwanin am tid n Ɛin Azal ed Buṭaleb i yellan deg twilayt n Sṭif.
+
+Tutlayt tanasayt (traditionnelle) tella ay d Tcawit, maca deg lqern yezrin taɛrabt tuɣal ad tif tamaziɣt deg izenqan. Luqa, werɛad ad nufi medden i yessawlen s tcawit, ladɣa deg imɣaren ed tisednan (tulawin). 
+
+Talxemt Talxemt
+
+Talxemt (Taɛrabt : تالخمت) d yiwet tɣiwant n twilayt n Batent deg temnaṭ n Wawras deg tdayra n Ras Leɛyun. Deg 2008, ɣur-es azal n 19,973 imezdaɣen. 
+Taseggant Taseggant
+
+Taseggant (taɛrabt : "رقانة") d yiwet tɣiwant n twilayt n Batent deg Ledzayer, teggug ar 18 ilkilumetren si Bariket yerna teggug ar 66 km si Batent.
+Deg useggas n 2008, ɣur-es azal n 5,769 imezdaɣen. 
+At Si Sliman At Si Sliman
+
+At Si Sliman (Taɛrabt : "ولاد سى سليمان", Tafrensist : "Ouled Si Slimane") d yiwet tɣiwant d taqbilt tacawit deg twilayt n Batent. Tezga-d deg wammas n twilayt, yerna di 2008 ɣur-s azal n 12,473 imezdaɣen. 
+
+Ilel Aderyati Ilel Aderyati
+
+Ilel Aderyatik d afurk seg Yilel Agrakal, yezga-d gar Ṭṭalyan ed Tzunegzirt n Balqan. Timura ay d-yezzin fell-as d Ṭṭalyan, Sluvinya, Kruwatya, Busnya ed Hirziguvina, Montenegro, Albanya ed Legrig. Tajumma-nnes 155.000 km2 (yikilumitren imkuẓen).
+Ɛebdellah Ben Ɛbedleɛziz Ɛebdellah Ben Ɛbedleɛziz
+
+Ɛebdellah Ben Ɛbedleɛziz (ilul deg Riyaḍ deg 1ru Ɣuct 1924), d agellid n Tgelda Tasaɛudit yerna d Aɛessas n Snat n Tmesgidiwin Timqeddsin n Lislam (Mekka ed Temdint). Yeqqel d agellid deg 1 Ɣuct 2005, sdeffir ma yemmut gma-s seg baba-s, Agellid Fahd.
+Fahd Ben Ɛbedleɛziz Al Saɛudi Fahd Ben Ɛbedleɛziz Al Saɛudi
+
+Fahd Ben Ɛbedleɛziz Al Saɛudi (ilul deg 16 meɣres 1921 - yemmut deg 1 ɣuct 2005), d agellid aqbur n Tgelda Tasaɛudit. Yegeld (yeḥkem) seg 13 Yunyu 1982 arma ay d asmi ay yemmut. D gma-s seg baba-s, Ɛebdellah Ben Ɛbedleɛziz, ay t-id-ixelfen.
+Dubay Dubay
+
+Dubay d tamdint n Limarat Taɛrabin Yeddukklen yerna d tamaneɣt n limaṛa n Dubay. Zedɣen-tt 2.262.000 n yimezdaɣen.
+Limara n Dubay Limara n Dubay
+
+Dubay (neɣ "Dubai" s tenglizt) d yiwet seg Limarat Taɛrabin Yeddukklen. Tajumma-nnes 4.114 km2 (yikilumitren imkuẓen). Zedɣen-tt 3.410.737 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Dubay.
+Limarat Taɛrabin Yeddukklen Limarat Taɛrabin Yeddukklen
+
+Limarat Taɛrabin Yeddukklen d tamurt n Asya, tezga-d deg wegmuḍ (ccerq) n Tzunegzirt Taɛrabt. Tajumma-nnes 83,600 km2 (yikilumutren imkuẓen). Zedɣen-tt 4.975.593 n yimezdaɣen (Imaṛatiyen). Tamaneɣt-nnes d Abu Ḍabi.
+Abagu Afarsi Abagu Afarsi
+
+Abagu Afarsi ("Golfe Persique") d afurk n Ugaraw Ahendi, yezga-d gar Tzunegzirt Taɛṛabt ed Iran. Tajumma-nnes 251.000 km2 (yikilumitren imkuẓen).
+Ḥemmam Buḥjer Ḥemmam Buḥjer
+
+Ḥemmam Buḥjer d yiwet taɣiwant n Ledzayer deg twilayt n Ɛin Timucent. Deg 2010, ɣur-es azal n 35,158 imezdaɣen. 
+Andorra Andorra
+
+Andorra d tamurt tamecṭuḥt ay d-yezgan gar Fransa ed Spenyul, deg yedraren n Pyrenees. Tajumma-nnes 467 km2 (yikilumitren imkuẓen). Zedɣen-tt 84.000 n yimezdaɣen (Andorriyen). Tamaneɣt-nnes d Andorra la Vella.
+Andorra la Vella Andorra la Vella
+
+Andorra la Vella d tamaneɣt n tmurt n Andorra. Zedɣen-tt 24.000 n yimezdaɣen.
+Burundi Burundi
+
+Burundi d tamurt n Tefriqt tasebgast. Tajumma-nnes 27.834 km2 (ikilumitren imkuẓen). Zedɣen-tt 8.988.091 n yimezdaɣen (Iburundiyen). Tamaneɣt-nnes d Bujumbura.
+Angola Angola
+
+Angola d tamurt ay d-yezgan deg wenẓul-utrim n Tefriqt. Tajumma-nnes 1.246.700 km2 (ikilumitren imkuẓen). Zedɣen-tt 25.789.024 n yimezdaɣen (Angoliyen) (2014). Tamaneɣt-nnes d Luanda.
+Luanda Luanda
+
+Luanda d tamaneɣt n Angola. Zedɣen-tt azal n 5 n yimelyunen n medden.
+Timfu Timfu
+
+Timfu d tamaneɣt n tmurt n Butan. Zedɣen-tt 79.185 n yimezdaɣen.
+Busnya ed Hirziguvina Busnya ed Hirziguvina
+
+Busnya ed Hirziguvina d tamurt n wenẓul (sud) n Turuft, tezga-d deg Tzunegzirt n Balqan. Tajumma-nnes 51.209 km2 (yikilumitren imkuẓen). Zedɣen-tt 3.842.566 n yimezdaɣen. Tamaneɣt-nnes d Sarajevo.
+
+Agensas Aɛlayan (haut représentant): Valentin Inzko
+Iselwayen: Nebojša Radmanović (d Aserbi), Željko Komšić (d Akṛuwati), Bakir Izetbegović (d Abusni ineslem).
+Aneɣlaf Amezwaru: Nikola Špirić
+
+Amur ameqran seg wakal n Busnya ed Hirziguvina d idurar (Adrar n Maglic, deg wenẓul-agmuḍan (sud-est) n tmurt yettaweḍ ɣer 2.387 n lmitrat deg leɛlu. Busnya ed Hirziguvina tezga- deg tama aydeg ggtent tzenzlin.
+Imezdaɣen n Busnya ed Hirziguvina llan deg-sen waṭas n yiɣerfan (ccuɛub): 45% seg-sen d Ibusniyen inselmen, 30% d Iserbiyen uṛtuduksiyen, ma d 15% d Ikṛuwatiyen ikaṭuliyen.
+Busnya ed Hirziguvina tella d yiwet seg tegdudyin n Yuguslavya taqburt. Deg 1992, imḍebbren-nnes sɣerten-d (déclarer) azarug-nnes (indépendance), dɣa d aya ay yejjan Iserbiyen ad d-snekren amgaru (ṭṭrad) akked Yibusniyen inselmen ed Yekruwatiyen n tmurt-a. Asmi ay ifuk wemgaru, tamurt-a tettwabḍa ɣef sin yeḥricen: Tafidiralit takruwatit-tineslemt (51% seg wakal) akked Tegduda taserbit (49%).
+Ar ass-a mazal Busnya ed Hirzigivina tbennu ayen ay ihudden deg tallit n wemgaru (ṭṭrad). Zik, Busnya ed Hirziguvina tella tesɛa tamguri (industrie) ijehden (uzzal, aluminyum, takrura), maca deg tallit-nni n wemgaru, amur ameqran seg lluzinat ihudd. Ɣef ljal n yidurar n tmurt-a, yewɛer ɣef medden ad gen tafellaḥt, ɣef waya, ala d takessawt n tfunasin akked uɣellet n wesɣar n tẓegwa ay irebḥen deg tmurt-a, d acu kan, Ibusniyen sfulluḥen daɣen irden, tidal (lxeḍra) akked yigumma (lfakya).
+Tazunegzirt n Balqan Tazunegzirt n Balqan
+
+Tazunegzirt n Balqan d tazunegzirt (péninsule) n wenẓul-agmuḍan n Turuft, d tin aydeg d-zgant tmura n Albanya, Busnya ed Hirziguvina, Bulgarya, Kruwatya, Legrig, Masidunya, Montenegro, Serbya, Kosovo ed weḥric n Ṭṭerk ay d-yezgan deg Turuft. Tajumma-nnes 550.000 km2 (yikilumitren imkuẓen). Zedɣen-tt azal n 50 n yimelyunen n yimezdaɣen.
+Gabun Gabun
+
+Gabun d tamurt n Tefriqt tasebgast. Tajumma-nnes 267.745 km2. Zedɣen-tt 1.475.000 n yimezdaɣen (Igabunen). Tamaneɣt-nnes d Libreville.
+Libreville Libreville
+
+Libreville d tamaneɣt n Gabun. Zedɣen-tt 578.156 n yimezdaɣen.
+Nwaqcuṭ Nwaqcuṭ
+
+Nwaqcuṭ d tamaneɣt n Muriṭanya. Zedɣen-tt 881.000 n yimezdaɣen.
+Tigzirin Tiknariyin Tigzirin Tiknariyin
+
+Tigzirin Tiknariyin (taspenyulit : "Islas Canarias") neɣ Tiknariyin d tamurt ay d-yezgan deg utaram n Tefriqt n Ugafa (deg Ugaraw Atlantik). Tamurt-a teḥkem-itt Spenyul. Tajumma-nnes 7.447 km2 (ikilumitren imkuẓen). Zedɣen-tt 2.098.593 n yimezdaɣen ("Iknariyen"). Tigzirin Tiknariyin ɣer-sent snat n tmunaɣ: Santa Cruz de Tenerife ed Las Palmas de Gran Canaria.
+Buḥeǧǧar Buḥeǧǧar
+
+Buḥeǧǧar d yiwet taɣiwant n twilayt n Ṭṭaref, deg wenẓul n twilayt-a yerna teqreb tamdint n Ɛennaba. Deg 2008, ɣur-es azal n 20,215 imezdaɣen, yerna mechuret s lluzinat i yellan deg-s am tid n Arcelor-Mittal i yeldan deg 2001 maca awanak adzayri isaɣ-iten tikkelt nniḍen deg useggwas 2013. 
+Loire-Atlantique Loire-Atlantique
+
+Loire-Atlantique d agezdu n ugafa-utrim (nord-ouest) n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen (2008). Ammas-nnes udbil d Nantes.
+Bourg-en-Bresse Bourg-en-Bresse
+
+Bourg-en-Bresse d tamdint n Fransa. D tamaneɣt n agezdu (département) n Ain. Zedɣen-tt n yimezdaɣen.
+Ain Ain
+
+Ain d agezdu (département) n Fransa. Tajumma-nnes km². Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Bourg-en-Bresse.
+Rhône (Agezdu) Rhône (Agezdu)
+
+Rhône d agezdu n tlemmast-tagmuḍant (centre-est) n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d Lyon.
+Loire (Agezdu) Loire (Agezdu)
+
+Loire d agezdu (département) n tlemmast tagmuḍant (centre-est) n Fransa. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d tamdint n Saint-Etienne.
+Finistère Finistère
+
+Finistère d agezdu (département) n ugafa-utrim (nord-ouest) n Fransa, yezga-d deg utaram n tama n Bretagne. Tajumma-nnes km² (yikilumitren imkuẓen). Zedɣen-t n yimezdaɣen. Tamaneɣt-nnes d tamdint n Quimper.
+Quimper Quimper
+
+Quimper (s "tebretonit": Kemper), d tamdint n ugafa-utrim (nord-ouest) n Fransa yerna d tamaneɣt n agezdu n Finistère. Zedɣen-tt n yimezdaɣen ( s yegmamen ay d-yezzin fell-as).
+Banjul Banjul
+
+Banjul d tamaneɣt n Gambya. Zedɣen-tt 357.238 n yimezdaɣen.
+Lilongwe Lilongwe
+
+Lilongwe d tamaneɣt n Malawi. Zedɣen-tt 902.388 n yimezdaɣen.
+Nairobi Nairobi
+
+Nairobi d tamaneɣt n Kenya. Zedɣen-tt 3.138.295 n yimezdaɣen.
+Kigali Kigali
+
+Kigali d tamaneɣt n Rwanda. Zedɣen-tt 965.398 n yimezdaɣen.
+Rwanda Rwanda
+
+Rwanda d tamurt n Tefriqt. Tajumma-nnes 26.338 km2 (ikilumitren imkuẓen). Zedɣen-tt 12.988.423 n yimezdaɣen (2016). Tamaneɣt-nnes d Kigali.
+Gambya Gambya
+
+Gambya d tamurt n Tefriqt Tutrimt. Tezga-d ɣef wasif ameqran n Gambya. Tajumma-nnes 10.380 km2. Zedɣen-tt 1.705.000 n yimezdaɣen (Igambiyen). Tamaneɣt-nnes d Banjul.
+Lomé Lomé
+
+Lomé d tamaneɣt n Togo. Zedɣen-tt 737.751 n yimezdaɣen.
+Kampala Kampala
+
+Kampala d tamaneɣt n Uganda. Zedɣen-tt 1.420.200 n yimezdaɣen.
+Monrovia Monrovia
+
+Monrovia d tamaneɣt n Liberya. Zedɣen-tt 1.010.970 n yimezdaɣen.
+Liberya Liberya
+
+Liberia d tamurt n Tefriqt Tutrimt. Tajumma-nnes 111.369 km2 (ikilumitren imkuẓen). Zedɣen-tt 3.955.000 n yimezdaɣen. Tamaneɣt-nnes d Monrovia.
+Jibuti (tamdint) Jibuti (tamdint)
+
+Aɣrem n Jibuti d tamaneɣt n tmurt n Jibuti. Zedɣen-tt 475.322 n yimezdaɣen.
+Jibuti Jibuti
+
+Jibuti d tamurt n Tefriqt Tagmuḍant. Tajumma-nnes 23.200 km2. Zedɣen-tt 864.000 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Jibuti.
+Bissau Bissau
+
+Bissau d tamaneɣt n Ginya-Bissau. Zedɣen-tt 407.424 n yimezdaɣen.
+Ginya-Bissau Ginya-Bissau
+
+Ginya-Bissau d tamurt n Tefriqt tutrimt. Tajumma-nnes 36.125 km2 (ikilumitren imkuẓen). Zedɣen-tt 1.647.000 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Bissau.
+Sierra Leone Sierra Leone
+
+Sierra Leone d tamurt n Tefriqt Tutrimt. Tajumma-nnes 71.740 km2 (ikilumitren imkuẓen). Zedɣen-tt 7.075.641 n yimezdaɣen (2015). Tamaneɣt-nnes d Freetown.
+Freetown Freetown
+
+Freetown d tamaneɣt n Sierra Leone. Zedɣen-tt 1.070.200 n yimezdaɣen.
+Brasilia Brasilia
+
+Brasilia d tamaneɣt n tmurt n Brazil. Zedɣen-tt 2.557.000 n yimezdaɣen.
+Nassau Nassau
+
+Nassau, d tamaneɣt n tegzirin n Bahamas. Zedɣen-tt 248.000 n yimezdaɣen.
+Porto-Novo Porto-Novo
+
+Porto-Novo d tamaneɣt n tmurt n Benin. Zedɣen-tt 223.552 n yimezdaɣen.
+Niamey Niamey
+
+Niamey d tamaneɣt n Nnijer. Zedɣen-tt 774.235 n yimezdaɣen.
+Malabo Malabo
+
+Malabo d tamaneɣt n Ginya Tasebgast. Zedɣen-tt 50.000 n yimezdaɣen.
+Ginya Tasebgast Ginya Tasebgast
+
+Ginya Tasebgast d tamurt n Tefriqt tasebgast. Tajumma-nnes 28.050 km2 (ikilumitren imkuẓen). Zedɣen-tt 676.000 n yimezdaɣen. Tamaneɣt-nnes d Malabo.
+Suxumi Suxumi
+
+Suxumi d tamaneɣt n tmurt n Abxazya. Tezga-d deg utaram (lɣerb) n tmurt, ɣef yiri n Yilel Aberkan, yerna zedɣen-tt 39.100 n yimezdaɣen
+Wagadugu Wagadugu
+
+Wagadugu d tamaneɣt n Burkina Faso. Zedɣen-tt 1.475.223 n yimezdaɣen.
+Lusaka Lusaka
+
+Lusaka d tamaneɣt n Zambya. Zedɣen-tt 1.084.703 n yimezdaɣen.
+Akra Akra
+
+Akra d tamaneɣt n Ɣana. Zedɣen-tt 1.963.264 n yimezdaɣen (3.835.304 n yimezdaɣen mi ara d-nernu igmamen ay d-yezzin fell-as).
+Mugadiccu Mugadiccu
+
+Mugadiccu d tamaneɣt n tmurt n Ṣumal. Zedɣen-tt 2.000.000 n yimezdaɣen.
+Tikercet Tikercet
+
+Tikercet neɣ Hikercet ("Ɛin Kerca'/'عين كرشة" i waɛraben) d yiwet temdint n twilayt n Um Lebwaqi g tmurt n Icawiyen. 
+
+Tezga-d deg wegmuḍ (ccerq) n tmurt Ledzayer, gar Qsenṭina et Um Lebwaqi (50 km gar-iten), yerna ur teqbrib seg temdint n Temlilt aydeg ilul Lɛerbi U Mhidi (ar 18km). 
+
+Imezdaɣen n Tikercet akkw d Icawiyen i yutlayen s tcawit gar-asen deg berra. 
+At Qasem At Qasem
+
+At Qasem d yiwet tɣiwant n twilayt n Um Lebwaqi deg tdayra n Temilit, deg 2008 ɣur-es azal n 7,107 imezdaɣen. 
+
+At Qasem d adrum (fraction) seg teqbilt n Isegniyyen, mechuren di tama n Temilit
+Tabarka Tabarka
+
+Tabarka (s taɛrabt : "طبرقة") d yiwet tamdint n Tunes, deg utaram n tmurt-a, teqreb ar tilisa gar Tunes ed Ledzayer (tawilayt n Ṭṭaref). Deg useggwas n 2004, ɣur-es azal n 15,634 imezdɣen. D amɣiwan-is (lmir) d Cuqri Zwawi (Azwaw). 
+
+Tezga-d ar 175 km si Tunes Tamaneɣt deg twilayt n Janduba, deg wul n Yidurar n Xmir. Agdud-is deg tigti seg-sen d At Xmir i ṣubben seg idurar ar temdint n Tbarka.
+
+Snuflan adeg n "Tabraka" inumiden deg wakud n tigeldin tinumidin n Masnsen. 
+Deg 702 yeḍra deg Tbarka tikkelt nniḍen imenɣan gar imaziɣen (ay ḍefren Dihya) ed inekcamen aɛraben n Ḥasan Ibn Numan i yela (yesɛa) azal n 50,000 iserdas ugar i yimenɣi seg axalif Ɛebdelmalik mgal imesluben imaziɣen. 
+Idurar n Xmir Idurar n Xmir
+
+Idurar n Xmir d azrar n idurar n Weṭlas di tama utaram-agafay n Tunes, qrib n tilisa aked Ledzayer ed temnaḍt n Lqala. Zgan-d gar tiwilayin n Janduba, Baja ed kra n tin n Benzart. 
+
+Tiṭ Mellil Tiṭ Mellil
+
+Tiṭ Mellil (Taɛrabt : "تيط مليل") d tamdint amecṭuḥ di temnaḍt n Tigemmi Tamellalt di tmurt n Umerruk g waẓu n Madyuna. Deg useggwas n 2004, ɣur-es azal n 11,170 imezdaɣen. 
+Tla yiwen uzun amguran ameqran (zone industrielle) ed umafag aɣelnaw isem-is "Amafag Tigemmi Tamellalt-Tiṭ Mellil". Isem n aɣrem-a yekka-d seg tmaziɣt i wumi anamek-is d "Tala Tamellalt". 
+Tameɣza Tameɣza
+
+Tameɣza d amda deg wenẓul-umalu n Tunes, deg twilayt n Tuzer. Tezga-d ar 40km si temdint n Tuzer ed 400 km si Tunes tamaneɣt. Deg 2004, ɣur-es azal n 2,169 imezdaɣen. Teqreb tilisa aked Ledzayer (tawilayt n Tebbest). 
+Nǧamena Nǧamena
+
+Nǧamena d tamaneɣt n Ččad. Zedɣen-tt 993.492 n yimezdaɣen.
+Ɛamcit Ɛamcit
+
+Ɛamcit (neɣ Amchit) d tamdint ay d-yezgan deg utaram (lɣerb) n Lubnan, ɣef yiri n Yilel Agrakal. Zedɣen-tt azal n 25.000 n yimezdaɣen (amur ameqran seg-sen d Imasiḥiyen imaruniyen). Deg temdint-a ay ilul Michel Suleiman (aselway n Lubnan).
+Ras Lanuf Ras Lanuf
+
+Ras Lanuf d tamdint n ugafa n Libya, ɣef yiri n yilel, zedɣen-tt 13.000 n yimezdaɣen yerna tezga-d 600 n yikilumitren deg wegmuḍ (ccerq) n Ṭrables. Deg temdint-a ay d-yezga wammas ameqran akk n uṣeffi n upitṛul deg Libya.
+Tafsirt n Uẓer Tafsirt n Uẓer
+
+Tafsirt n Uẓer (Tafrensist : "Côte d'Ivoire") d tamurt n Tefriqt Tutrimt. Tajumma-nnes 322.463 km2 (ikilumitren imkuẓen). Zedɣen-tt 23,740,424 n yimezdaɣen (Ivoiriyen). Tamaneɣt-nnes Yamoussoukro.
+Yamoussoukro Yamoussoukro
+
+Yamoussoukro d tamaneɣt n Côte d'Ivoire. Zedɣen-tt 200.659 n yimezdaɣen.
+Ginya Ginya
+
+Ginya d tamurt n Tefriqt tutrimt. Tajumma-nnes 245.857 km2. Zedɣen-tt 10.057.975 n yimezdaɣen (Iginiyen). Tamaneɣt-nnes d Kunakri.
+Victoria (Seychelles) Victoria (Seychelles)
+
+Victoria d tamaneɣt n tmurt n Seychelles. Zedɣen-tt 25.000 n yimezdaɣen.
+Maseru Maseru
+
+Maseru d tamaneɣt n tmurt n Lesotho. Zedɣen-tt 227.880 n yimezdaɣen.
+São Tomé (tamdint) São Tomé (tamdint)
+
+Sao Tomé d tamaneɣt n tmurt n Sao Tomé ed Principe. Zedɣen-tt 56.166 n yimezdaɣen.
+Bangi Bangi
+
+Bangi d tamaneɣt n Tegduda n Tefriqt Talemmast. Zedɣen-tt 622.771 n yimezdaɣen.
+Tagduda n Tefriqt Talemmast Tagduda n Tefriqt Talemmast
+
+Tagduda n Tefriqt Talemmast (Tafrensist : "République Centrafricaine") d tamurt n Tefriqt. Tajumma-nnes 622.984 km2 (ikilumitren imkuẓen). Zedɣen-tt 4.422.000 n yimezdaɣen. Tamaneɣt-nnes d Bangi.
+Lmerṣa Briga Lmerṣa Briga
+
+Lmerṣa Briga (neɣ Bṛiga), d tamdint n Libya, tezga-d deg wegmuḍ n tmurt, ɣef yiri n Yilel Agrakal, yerna tesɛa asagen (lmerṣa). Tamdint-a zedɣen-tt 7.000 n yimezdaɣen.
+Usṭralya Tutrimt Usṭralya Tutrimt
+
+Usṭralya Tutrimt (s tanglizit: "Western Australia"), d awanak ameqran akk n Usṭralya, yezga-d deg utaram (lɣerb) n tmurt. Tajumma-nnes 2.645.615 km2 (yikilumitren imkuẓen). Zedɣen-t 2.296.411 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Perth.
+Zyama Lmenṣuriya Zyama Lmenṣuriya
+
+Zyama Lmenṣuriya (Tafransist: Ziama-Mansouriah, Taɛrabt: زيامة منصورية), d yiwet taɣiwant n Tmurt Leqbayel i tezga-d al 40 km g umalu n Tawilayt n Jijel, irif n ilel. Imezdaɣ-ines d Isaḥliyen, ar ass-a tmeslayen Tasaḥlit (Tamaziɣt) akk d Taɛrabt (am Taǧiǧlit). Ɣur-s azal n 12,642 imezdaɣ (2008). Di tallit n tuddfa n Fransa llan qqarn-as ""Douar Mansouria"".
+
+10 yunyu 10 yunyu
+
+Ass 10 yunyu d ass wis 161 n useggas (wis 162 deg iseggasen "bisekstil"). Llan 204 wussan deffir-es ar taggara n useggas.
+9 yunyu - "10 yunyu" - 11 yunyu
+
+Yazid Zerhuni Yazid Zerhuni
+
+Nurdin Zerhuni (umi ɣɣaren "Yazid" - ilul deg 1937 deg temdint n Tunes tamaneɣt), d argaz n tsertit adzayri. 
+
+Yeqdec deg yimeẓla n wumel (services de renseignement) idzayriyen. Deg 1999, Ɛebdelɛaziz Butefliqa yerra-t d aneɣlaf n tɣawsiwin n daxel. Deg 2001, asmi ay d-bdant tedyani n Tefsut Taberkant deg Tmurt n Leqbayel, aṭas ay d-iwten deg-s ɣef ljal n tsertit n wemḥaq ay d-uwyen yimeẓla n laman idzayriyen akked lɣaci ay yettekkan deg tedyanin-a. Deg 28 Mayyu 2010, deg unabaḍ (leḥkuma) wis 8 n Ḥmed Uyeḥya, Zerhuni yeqqel d anmazul n Uneɣlaf Amezwaru (vice-Premier Ministre).
+Lmileyya Lmileyya
+
+Lmileyya d yiwet tɣiwant i yellan deg wegmuḍ n twilayt n Ǧiǧel gar timdinin n Ǧiǧel, Mila ed Qsenṭina. Deg 2008, ɣur-es azal n 83,931 imezdaɣen. 
+
+Izragen Izragen
+
+Izragen neɣ Azragen (Tafransist: "Erraguene", Taɛrabt: "إراقن ,إزراقن"), d yiwet taɣiwant n Tawilayt n Jijel g Tmurt Leqbayel. Imezdaɣ-ines, am wiha n Zyama Lmenṣuriya, ihadren Tasaḥlit (Tamaziɣt) lwaḥi d Taɛrabt. Taɣiwant n Izragen, tesɛa azal n 2,532 imezdaɣ deg useggwas n 2008. G luqt n listiɛmar llan qqarn-as ""Merdj-Ez-Erraguene"".
+Tazegzawt (taɣiwant) Tazegzawt (taɣiwant)
+
+Tazegzawt (seld n userɣen: Salma ben zyada) d yiwet tɣiwant id yezgan deg usamer afellay n tmurt n Iqbayliyen, tezga-d g unẓul utrim n ugezdu n Jijel. Taɣiwant aya tla (tesɛa) azal n 920 imezdaɣ deg useggwas n 2008. Imezdaɣ-is d adrum n Ayt Fuɣal
+Tiṭ Waman Tiṭ Waman
+
+Tiṭ Waman neɣ Hala Uẓerf (Taɛrabt : "حجرة النص") d yiwet tɣiwant n twilayt n Tipaza deg tdayra n Cercal di temnaṭ n At Mnaṣer. 
+Imezdaɣen-nnes mmeslayen akkw s tmaziɣt n tama-aya, i wumi semman "Haqbaylit" neɣ "Hacelḥit" n Dahret. Deg 2008, ɣur-s azal n 2,150 imezdaɣ. 
+Tiɣiwanin n twilayt n Bgayet Tiɣiwanin n twilayt n Bgayet
+
+Tawilayt n Bgayet deg Tmurt Leqbayel ɣur-s 52 tiɣiwanin.
+
+Tiɣiwanin n twilayt n Tubiret Tiɣiwanin n twilayt n Tubiret
+
+Tawilayt n Tubiret deg Tmurt n yiqbayliyen ɣur-s 45 n tiɣiwanin. 
+
+Tafelwit-agi, tettak-d umuɣ n tiɣiwanin n twilayt n Tubiret, tettak-d i yal taɣiwant : angal ONS-ines, isem-ines, amezdaɣ-ines d tajumma-ines.
+
+Albert Ebossé Bodjongo Albert Ebossé Bodjongo
+
+Albert Ebossé Bodjongo d amarir amenṭag akamruni, ilulen ass n 6 tuber 1989 di Dwala dɣa yemmut ass n 23 ɣuct 2014 di Tizi Uzzu. Yebeddad asadur ines deg Coton Sport, yelɛeb deg Unisport Bafang dɣa ar Douala AC uqbel ad yelkem asrir amalisiani n Perak FA. Asrir-is aneggaru d JSK, anda yettwafren imsswi ugaren wiyaḍ nniḍen n talɣuɣa n Lezzayer n takurt n uḍar 2013-2014. Yemmut deg tamezwart n tasemhuyt taḍfart, sakkin tirẓi n taɣlamt ines. D taɣtest n aṛjam imi-d yeffeɣ seg anrar.
+Tiɣiwanin n twilayt n Bumerdas Tiɣiwanin n twilayt n Bumerdas
+
+Tawilayt n Bumerdas deg Tmurt Leqbayel tesɛa 32 tiɣiwanin. 
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n twilayt n Bumerdas, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+Waɣzen Waɣzen
+Ahad Ahad
+
+Ahad (larebɛa), d ass n yimalas i d-yettasen zdat n waram (ttlata), s deffir n wemhad (lexmis). Deg wansay, d ass wis kuẓ (4) n yimalas.
+Sem Sem
+
+Sem, d ass n imalas i ḍfaren Amhad dɣa i zwiren Sed. Deg ansay, d ass wis-sḍis n imalas, lameɛna yella am ass wis-semmus n imalas deg kra timura.
+Sed Sed
+
+Sed, d ass n imalas i ḍfaren Sem dɣa i zwiren Ačer. Deg ansay, d ass wis-sa n imalas, lameɛna yella am ass wis-sḍis n imalas deg kra timura.
+Tiɣiwanin n twilayt n Burǧ Bu Ɛririǧ Tiɣiwanin n twilayt n Burǧ Bu Ɛririǧ
+
+Tawilayt n Burǧ Bu Ɛririǧ deg Tmurt Leqbayel tesɛa 34 tiɣiwanin. 
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n twilayt n Burǧ Bu Aɛririǧ, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+
+Tiɣiwanin n twilayt n Sṭif Tiɣiwanin n twilayt n Sṭif
+
+Tawilayt n Sṭif deg Tmurt Leqbayel tesɛa 60 tiɣiwanin. 
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n twilayt n Sṭif, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+
+1 meɣres 1 meɣres
+
+Ass n 1 meɣres d ass wis 60 n useggas (wis 61 deg iseggasen "bisekstil"). Llan 305 wussan deffir-s ar taggara n useggas.
+29 fuṛaṛ - "1 meɣres" - 2 meɣres
+Adalaylama wis 14 Adalaylama wis 14
+
+Adalaylama Wis 14, yettwassen daɣen s yisem **Tenzin Gyatso, ilul s yisem n Lhamo Dondrub deg 6 Yulyu 1935 deg Taktser, Qinghai, Ccinwa), d netta ay d adalaylama (imḍebber n wesɣan [ddin]) n Yibudiyen n Tibet seg wasmi ay yesɛa sin n yiseggasen. Deg 1989, yuwey Arraz n Nobel n talwit yerna yettwassen s yimenɣi-nnes aɣezfan i lmend n beḍḍu n Tibet ɣef Ccinwa.
+Itibetiyen ttwalin-t d tarwiḥt n lejdud-nnes yerna yes-s ay d-yesskanay Ubuddha n Rreḥma iman-nnes. 
+
+Asmi ay d-tella tnekra n Yitibetiyen deg 1959 mgal Ccinwa, Adalaylama yerwel ɣer Lhend yerna yessebded-d din anabaḍ (lḥukuma) imennejli n Tibet. Seg yimir-nni ay yebda irezzu ɣef tmura yemgerraden n umaḍal yerna yekkat i wakken ad yeḍmen tilelli i Yitibetiyen, am wakken ay yesselmad tabudit tatibetit i medden. D acu kan, anabaḍ acinwat yezga iḥeṛṛes timura tibeṛṛaniyin akken ur ttemlilint yid-s, yerna llan aṭas n wid ay d-iwten deg-s ɣef wassaɣen ay yesɛa akked CIA.
+Osaka Osaka
+
+Osaka d tamdint n Japun, tezga-d deg tegzirt n Honcu, di Ubagu n Osaka. Zedɣen-tt 2,650,913 imezdaɣen. 
+PIB di temnaḍt n Keihancin (Osaka, Kyoto ed Kobe) ad yali ar azal n $341 imelyaren idularen i wumi sekren d agwens (centre) agejdi n tedamsa tajapunit ed umaḍal s umata. 
+Tteryel Tteryel
+
+Tteryel, neɣ tamẓa, d udem asnamyaw yellan aṭas deg timucuha tiqbayliyin dɣa n Tafriqt n Ugafa. D tameṭṭut s icebbuben i xebblen i teččen iɣersiwen d ilsanen. Tameṭṭut turmidt, takerwat n « lmektub » ines, tafulmant, tummidt dɣa tanebbudert.
+
+Arma d tallit tinayt, mazal n-umen tesɛa timili n tidet.
+Di Agwni Ggeɣran, maci mebɛid n taddart n At Lqayad, yella amdiq mazal n-semmi Axxam n Tteryel ; d ifri anda n-umen udem agi amsiɣur yezdeɣ. Ɣef leḥsab n imezdaɣen, tidyanin n yiwet n timucuha deg aẓi agi id drant. Tamacahut tetḥekud tamɛayt n yiwet tamẓiwt i tɛiwenen taǧalt ad tẓeḍ. Sakkin i ttid ɛiwen ad ffeɣ seg lḥif, tamẓiwt tssutered mmi-s n taǧalt nni am anil-igzey. Taǧalt t-uffad taḥṛaymit iwakken ad tqareɛ Tteryel at ečč mmi-s. Tenna-yas i mmi-s ad yeṭṭeḍ tabbuct n tamẓiwt akka ad yuɣa d mmi-s dɣa ur tettečč ara.
+
+
+Ilmayen Ilmayen
+
+Ilmayen d yiwet taɣiwant n Tmurt l'leqbayel deg l'wilaya n Burǧ Bu Ɛririǧ, di dayra n At Ǧaɛfar. Deg 2008, zedɣen-tt azal n 6238 imezdaɣ. 
+
+Nna Crifa d tacennayt taqbaylit tameqwrent, tlul-d deg Ilmayen.
+
+
+Tala ulegraj Tala ulegraj
+
+Tala Legraǧ neɣ Alegraǧ d yiwet taɣiwant i tezga-d deg ugafa n ugezdu n Sṭif. zedɣent azal n 14668 imezda.
+Tiɣiwanin n twilayt n Lezzayer Tiɣiwanin n twilayt n Lezzayer
+
+Ġ
+Tawilayt n Ledzayer Tamaneɣt tettgzem seg 13 tidayrin et 57 tiɣiwanin.
+
+Wagi d umuɣ n tiɣiwanin n twilayt n Ledzayer Tamaneɣt, i yal yiwet ɣur-es tengalt-ines ONS, isem-is ed wazal n imezdaɣen-is di 2008.
+
+Ḥemmam Gergur Ḥemmam Gergur
+
+Ḥemmam Gergur d yiwet taɣiwant deg twilayt n Sṭif, di tmurt Leqbayel ar yiri n wasif n Buselam. Zedɣen-tt azal n 15,853 imezdaɣen deg 2008. 
+Ɛin Ssebt Ɛin Ssebt
+
+Ɛin Ssebt d yiwet taɣiwant n tmurt n Leqbayel deg temnaṭ n Ibaburen g ugafa n twilayt n Sṭif. Deg 2008, zedɣen-tt azal n 14,798 imezdaɣen. 
+Tizi n Beccar Tizi n Beccar
+
+Tizi n Beccar d yiwet taɣiwant deg twilayt n Sṭif di tmurt n Leqbayel deg idurar n Ibaburen. Deg 2008, zedɣen-tt azal n 21,086 imezdaɣen. 
+
+Tala werya Tala werya
+
+Ɛin Rwa d yiwet taɣiwant n ugafa n twilayt n Sṭif, tḥudd-itt tawilayt n Bgayet. Deg useggas n 2008, ɣur-s azal n 11,499 imezdaɣen. 
+
+Babur Babur
+
+Babur d yiwet taɣiwant deg ugafa n Tawilayt n Sṭif, tezga-d g idurar n Ibaburen. Deg 2008, zedɣen-tt azal n 15,762 imezdaɣen.
+
+Iɛemmucen Iɛemmucen
+
+Iɛemmucen d yiwet taɣiwant deg ugafa n twilayt n Sṭif, deg ul n yidurar n Ibaburen. Deg 2008, zedɣen-tt azal n 22767 imezdaɣen. 
+Llan kra n yimezdaɣen deg tudrin i yutlayen (yettmeslyen) s yiwet tmaziɣt yemgerraden gar Tcawit ed Teqbaylit, as-ɣɣaren Tasaḥlit.
+
+Serj Lɣul Serj Lɣul
+
+Serj Lɣul d yiwet taɣiwant n twilayt n Sṭif, teqbreb f Jijel. Deg 2008, zedɣen-tt azal n 9,311 imezdaɣen. 
+
+Ɛin Arnat Ɛin Arnat
+
+Ɛin Arnat d yiwet taɣiwant n twilayt n Sṭif, deg utaram n tɣiwant n Sṭif. 
+
+Ur teggug (tebɛed) ara si temdint n Sṭif, tezga-d ar 8 ikilumetren seg-s. 
+
+Ɛin Ɛebbasa Ɛin Ɛebbasa
+
+Ɛin Ɛebbasa d yiwet taɣiwant n twilayt n Sṭif. Deg 2008, zedɣen-tt azal n 16,770 imezdaɣen.
+
+Ɛin Ɛebbasa tezga-d ar 18 km si temdint n Sṭif ar ugafa-utaram seg-s, gar yidurar n Megres, Metruna ed Wanini. 
+
+Bni Ɛziz Bni Ɛziz
+
+Bni Ɛziz d yiwet taɣiwant n Tmurt Leqbayel di twilayt n Sṭif deg tdayra n Bni Ɛziz. Deg 2008, zedɣen-tt azal n 19383 imezdaɣen. 
+Deg lawan n yinkcamen irumyien, llan qqaren-as "Chevreul". 
+
+Bni Ɛziz tezga-d ar deg ugafa-utrim n wadeg-aɣella (chef-lieu) n twilayt n Sṭif af webrid i yeqqnen Lɛelma ar Jijel deg temnaṭ tamedrart n Ibaburen.
+
+Bnan-as irumiyen g useggas n 1898, semman-as "Chevreuil". Asmi Ledzayer teṭṭef timmunent-is llan qqaren-as "Ɛarbawen" armi 1984. 
+Deg wakal n tɣiwant-a llan ixerban n temdint n Iqjan neɣ Ikjan ay yellan zik tamaneɣt n Ikutamen.
+Hiempsal II Hiempsal II
+
+Hiempsal II yella d agellid n Numidya deg uzgen amezwaru n timiḍi amezwaru uqbel Ɛisa, yemmut ɣer 60 uqbel Ɛisa.. D mmi-s n Gauda, d arbib n Yuɣurten, dɣa d baba-s n Yuba I.
+
+Deg useggwas 88 uqbel Ɛisa., sakkin tarennawt n Sylla, imi Marius d mmi-s rewlen seg Roma i Tafriqt, Hiempsal yemmager-iten s uqader yili yebɣa aten yeṭṭef d imeḥbas. Marius yefehmen asenfaṛ ines, yerwel swaswa kan deg wakud s tallalt n weltma-s n ugellid.
+
+Hiempsal yettwaẓẓ̣eɛ seg usadbu sɣur ugdud-is, neɣ sɣur Hiarbas, imḍebber n yiwen umur n tagelda tanumidit yettwalelen sɣur Gnaeus Domitius Ahenobarbus, imḍebber n ikabranen n Marius deg Tafriqt. Maca, deg useggwas 81 uqbel Ɛisa., Sylla yeceggaɛ Pompeius iwakken ad yeḥaṛeb akabar n Marius dɣa yerrayas asadbu i Hiempsal, ayɣef akal yemmerni sɣur yiwen amtawa yettwazmel s Lucius Aurelius Cotta.
+
+Imi tribunus plebis Publius Servilius Rullus yesenteg isuḍaf tigranin ines deg useggwas 63 uq. S.-Ɛ., akal agi, yettufken s usakran i ugdud aṛumani sɣur Scipio Afriqi, ur yenza ara, ayen yessenker urfan n Cicero ("De lege agraria", I. 4, II. 22). Ɣef leḥsab n Suetonius, ("Caesar", 71), Hiempsal II yeḥkem dima ar 62 uqbel Ɛisa..
+
+Ɣef leḥsab n Sallustius ("Yuɣurten", 17), d amaru n udlis ɣef Amezruy n Tafriqt s tutlayt tapunikit.
+
+Ungal Ungal
+
+Ungal d tawsit taseklant, yettwaɛqalen s wullis asugnan ɣezzifen ddeqs-is. Amur ameqqran yettwaǧǧan i usugen yeteffɣed seg kra n tinfaliyin am « D ungal ! » neɣ deg kra n inumak n urbib « aneglan » yetceggɛen ar ufeɣnami n udmawen, n lḥalat neɣ n taddest. 
+
+Ungal, yettwarun s ifyar n tseɣrut deg timiḍi wis 12 uqbel ad yettwaru s tesrit deg tazwara n timiḍi wis 13, yetsbadu daɣen s userken ines ar tɣuri tamsimant, d umgerrad ɣef tamacahut yellan deg taneṣlit d asɣelyazen atlay.At Sidi Braham At Sidi Braham
+
+Aqerru (tafekkarut) Aqerru (tafekkarut)
+
+D aḥric n tfekka n wemdan akk d iɣersiwenSuq Lḥedd Suq Lḥedd
+
+Suq Lḥedd d yiwet taɣiwant taqbaylit deg twilayt n Bumerdas deg tdayra n Tizi n At Ɛica. Deg 2008, zedɣen-tt azal n 6693 imezdaɣen. 
+
+Taɣiwant-agi tezga-d ar 60 km si Ledzayer tamanaɣt deg ul n Tmurt n Leqbayel, ɣef yiwen wegni aydeg medden kerrzen ager (tafellaḥt) fell-as. 
+
+Suq Lḥad mechur-t af tazemmurt-ines, llan aṭas n izemmuren iqburen deg-s, tarebbit-is tgerrez di Suq Lḥed xaṭer akal-is ed aman-is yelhan i trebbit n tizemmurin. 
+Timeẓrit (Bumerdas) Timeẓrit (Bumerdas)
+
+Timeẓrit d yiwet n temdint taqbaylit n twilayt n Bumerdas, deg tdayra n Yesser. Iweɛzunen ay yellan d adeg-aɣella (chef-lieu) n tɣiwant.
+At Ɛisa At Ɛisa
+
+At Ɛisa d yiwet taɣiwant i yellan deg twilayt n Bumerdas, deg Tmurt n Leqbayel. Deg 2008, zedɣen-tt azal n 7,685 imezdaɣen. 
+
+
+Uqbel 1984, At Ɛisa zgan-d deg twilayt n Tizi Wezzu, sakkin qqnen af twilayt n Bumerdas i yellan tawilayt tamaynutt imir-nni. 
+Taɣzut (Tubiret) Taɣzut (Tubiret)
+
+Taɣzut d yiwet taɣiwant n twilayt n Tubiret deg twilayt n Tubiret di Tmurt n Leqbayel. Deg 2008, zedɣen-tt azal n 13,203 imezdaɣen. 
+
+Qadireyya Qadireyya
+
+Qadireyya neɣ s yisem-is n tidet At Xelfun d yiwet taɣiwant n twilayt n Tubiret deg Tmurt n Leqbayel. 
+
+Ḥizar Ḥizar
+
+Ḥizar d taɣiwant n twilayt n Tubiret deg Tmurt n Leqbayel ar uḍar n wedrar n Ǧerǧer. Deg 2008, zedɣen-tt azal n 17,719 imezdaɣen. 
+
+Tigdit Tigdit
+
+Tigdit d tamdint n wenẓul n twilayt n Tubiret di Tmurt n Leqbayel. Deg 2008, zedɣen-tt azal n 10,562 imezdaɣen. 
+Zbarbar Zbarbar
+
+Zbarbar neɣ Aserriw d tamdint n twilayt n Tubiret, deg 2008 zedɣen-tt azal n 3,768 imezdaɣen. 
+
+Buderbala Buderbala
+
+Buderbala d taɣiwant n ugafa n twilayt n Tubiret di Tmurt Leqbayel. Deg 2008, zedɣen-tt azal n 17,589 imezdaɣen.
+
+Tuddar n tɣiwant-agi llan : 
+At Leɛziz At Leɛziz
+
+At Leɛziz d yiwet taɣiwant n ugafa (nord) n twilayt n Tubiret di Tmurt n Leqbayel. Deg 2008, zeden-tt azal n 14,430 imezdaɣen. 
+
+
+Aɛǧiba Aɛǧiba
+
+Aɛǧiba d yiwet n tɣiwant n Tmurt n Leqbayel i d-yezgan deg twilayt n Tubiret.
+
+Tḥud-itt deg ugafa twilayt n Tizi Wezzu ɣer tama n Wegwilal, deg ugafa-wegmuḍ tella taɣiwant n Ṣaharij (Tawilayt n Tubiret),deg wegmuḍ s tiɣiwanin n Imceddalen ed Weḥnif, deg wenẓul s tiɣiwanin n At Leqṣer ed At Raced, deg utaram (ouest) s tɣiwant n Beclul.
+
+
+Lmeqrani Lmeqrani
+
+Lmeqrani (zik "Lmajen") d taɣiwant n tawilayt n Tubiret. Deg 2008, zedɣen-tt azal n 3,961 imezdaɣen. 
+
+
+Zik qqaren taɣiwant-agi s yisem n "Lmajen", sakkin "Lmeqrani" s tejmilt i Ccix Ameqran. 
+
+Leṣnam Leṣnam
+
+Leṣnam d yiwet taɣiwant n twilayt n Tubiret deg ul n wezrar n Ǧerǧer di Tmurt n Leqbayel. Deg 2008, zedɣen-tt azal n 13,213 imzedaɣen.
+
+Dagi i yellan taddart n Tigejda.
+
+Arezqi Ijerwiden Arezqi Ijerwiden
+
+Arezqi Ijerwiden ilul deg 17 yunyu 1955 di taddart iflisen di Tmurt n leqbayel, yella d aselway-anemhal amatu n tkebbanit Go Fast anda tella ebabae waffug Aigle Azur.
+
+Yemmut ass n 23 yebrir 2016 di lparis, fransa. Yeǧǧa-d 3 n ddarya .
+Friedrich Maximilian Klinger Friedrich Maximilian Klinger
+
+Friedrich Maximilian Klinger ilul g 17 yebrir 1752 , immut g 25 yebrir 1831. D amedyaz alimani.
+Isiwan Isiwan
+
+Isiwan (taɛrabt : "واحة سيوة Wāḥat Sīwah") d yiwen wemda di tmurt n Miẓra i imezdaɣen-is d imaziɣen yettmeslayen s Tasiwit. 
+
+Isiwan zgan-d deg wetrim (umalu) n tmurt n Maṣer, teqrib tilisa af Libya yerna teggug (tebɛed) azal n 560 km seg Taqahirt. D amda i-d yezgan deg ugafa akkw di Maṣer di tidikelt n Qeṭṭara. Deg ugafa, ar 300 km, illa usagen n Merṣa Maṭruḥ af yiri n Yilel Agrakal. 
+
+Imaziɣen n Isiwan zedɣen-t si zikenni deg teglest. Dinna llan ifakanen (temples) n Wammun.
+
+Timura n Wadda Timura n Wadda
+
+Tagelda n Tmura n Wadda neɣ Timura n Wadda (Tannerlandit : "Koninkrijk der Nederlanden" , "Nederlands") d yiwet n tmurt i-d yezgan di Turuft af yiri n Yilel n Ugafa. Deg 2013, zedɣen-tt azal n 16,828,996 imezdaɣen. 
+Tamaneɣt-is d Amsterdam (tin yugaren tiyaḍ akkw deg Tmura n Wadda), maca useqqamu n udabu ed Tegrawt taɣelnawt llan di temdint n Den Haag. 
+
+Llan iɣrman imqqranen nniḍen deg-s: Rotterdam, Den Haag (asusru : Den Hax), Utrecht (yettsuser am Utrixt), d Eindhoven (yettsuser am Ayndhufn).
+
+Timura n Wadda llant ɣur-es 12 n tmnaḍin (s Tannerlandit: "Provincies") :
+
+Xalifa bin Zayed Al Nahyan Xalifa bin Zayed Al Nahyan
+
+Xalifa bin Zayed Al Nahyan (ilul deg 25 yennayer 1948 deg Al Ɛayn) d aselway n Limarat Taɛrabin Yeddukklen yerna d lamir n limara n Abu Ḍabi. Yeṭṭef imukan-a deg 3 wember 2004.
+Al Ɛayn Al Ɛayn
+
+Al Ɛayn d tamdint n Limarat Taɛrabin Yeddukklen, tezga-d deg wegmuḍ (ccerq) n tmurt. Zedɣen-tt 374.000 n yimezdaɣen. Deg temdint-a ay ilul uselway n tmurt, Xalifa bin Zayed Al Nahyan.
+Kungu Kungu
+
+Kungu d tamurt n utaram n Tefriqt tasebgast. Tajumma-nnes 342.000 km2. Zedɣen-tt 3.686.000 n yimezdaɣen (Ikunguliyen). Tamaneɣt-nnes d Brazzaville. Aselway n tmurt d Denis Sassou Nguesso.
+Brazzaville Brazzaville
+
+Brazzaville d tamaneɣt n Kungu. Zedɣen-tt 1.018.541 n yimezdaɣen (deg temdint-nni s timmad-nnes) neɣ amelyun ed wezgen mi ara d-nernu imezdaɣen n yegmamen (quartiers) ay d-yezzin fell-as.
+Denis Sassou Nguesso Denis Sassou Nguesso
+
+Denis Sassou Nguesso d aselway n Kungu seg 1997. Ilul deg 1943 deg taddart n Edu, deg ugezdu n Oyo.
+Edu Edu
+
+Edu d taddart n Kungu, deg wakal n tewsit (lɛerc) n Yembociyen, deg ugezdu n Oyo (talemmast n tmurt).
+Kincasa Kincasa
+
+Kincasa d tamaneɣt n Tegduda Tamegdayt n Kungu. Zedɣen-tt 10.076.099 n yimezdaɣen.
+Tagduda Tamegdayt n Kungu Tagduda Tamegdayt n Kungu
+
+Tagduda Tamegdayt n Kungu d tamurt n Tefriqt tasebgast. Tajumma-nnes 2.345.409 km2 (ikilumitren imkuẓen). Zedɣen-tt 70.916.439 n yimezdaɣen (Ikunguliyen). Tamaneɣt-nnes d Kincasa. Aselway-is Joseph Kabila.
+Joseph Kabila Joseph Kabila
+
+Joseph Kabila d aselway n Tegduda Tamegdayt n Kungu (seg 2001). Ilul deg 4 yunyu 1971 deg Ankoro, d tamdint tamecṭuḥt deg tama n Fizi (tamnaḍt n Kivu n Wenẓul).
+Ankoro Ankoro
+
+Ankoro d tamdint tamecṭuḥt ay d-yezgan ɣef wasif n Kungu, deg wegmuḍ n Tegduda Tamegdayt n Kungu. Deg temdint-a ay d-ilul uselway Joseph Kabila deg 1971.
+Taqa Taqa
+
+Taqa d yiwet taddart n tmurt taqbaylit tɣiwant n At Yeḥya, deg tdayra n Uṣqif n Ṭmana di twilayt n Tizi Wezzu. 
+
+Taddart tezga-d ar 10 km seg Aṣqif n Ṭmana ed 50 km seg Tizi Wezzu. 
+
+Zikenni, Taqa n At Yeḥya am akkw tuddar n Yiqbayliyen ɣur-es imir-a 7 n txelajatin : 
+
+Tafrawt – Iṣendlen – Agni n Yesɛed - Lemxarda - At Si Ɛmara - At Buteččur ed At Ḥmed, si zik qaren as Taqa n sebɛa iwegiḍen. 
+
+Llan kkuẓ (4) iderman di Taqa :
+
+- At Mlula ay d adrum meqquren akk wiyaḍ di Taqa, s tiwaculin agi : At Wares, At Maḥyu, At Ḥemmu, At Lefqi, At Ccix, At Sɛada, At Qasi, At Lqaḍi, At Seɛdi…
+
+- Iɛezuzen : wis sin akwd At Hebuc, Iɛezuzen, At Ɛmer, Attaɛyaṭ , At Mesɛud, Ɛezzi...
+
+- Lemxarda : akwd twaculin n At Ɛli, At Qasi Weɛli, At Ḥamudi, At Ḥemmu ɛli, At Ɛli u Yeḥya
+
+- At Leḥsen : At Ḥammaduc, At Ɛemara, At Saɛid, Iweǧhanen, At Yeḥya.
+
+Llant azal n 13 taliwin deg Taqa n At Yeḥya : Tala n Weẓru, Meqqucca, Agwni Ḥegini, Akhemchane, Tala n Yilef, Tala n Tirḍa, Lɛinṣer, Budmuyen, Ɛebbas, Tala Ybuba, Amcerir, Afarzal, Tala Lemxarda.
+Adrar n Dduɣ Adrar n Dduɣ
+
+Adrar n Dduɣ d adrar id yezgan deg azrar amedrar n weṭlas anewrir i yeflalen (yeɛlayen) s wazal n 1008 imetren af yilel, Adrar-a yuded f temdint n Buna (Ɛennaba). Taqacuct-is i yugaren tiyaḍ d Bu Zizi di tɣiwant n Sraydi. 
+Azrar n Dduɣ yeɣzef si Iɣef n tuguẓt ("Cap de Garde") ar Iɣef n wuzzal ("Cap de Fer").
+Virginia Tutrimt Virginia Tutrimt
+
+Virginia Tutrimt d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 62,809 km2 (yikilumitren imkuẓen). Zedɣen-t n 1,854,304 yimezdaɣen. Tamaneɣt-nnes d tamdint n Charleston.
+Wyoming Wyoming
+
+Virginia d yiwen seg Yiwunak Yeddukklen, yezga-d deg utaram (umalu) n tmurt. Tajumma-nnes 253,338 km² (yikilumitren imkuẓen). Zedɣen-t 563,626 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Cheyenne.
+Rhode Island Rhode Island
+
+Rhode Island d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ-ugafa (nord-est) n tmurt. Tajumma-nnes 4,002 km2 (yikilumitren imkuẓen). Zedɣen-t 1,052,567 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Providence.
+New Hampshire New Hampshire
+
+New Hampshire d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 24,239 km2 (yikilumitren imkuẓen). Zedɣen-t 1,316,470 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Concord.
+New Jersey New Jersey
+
+New Jersey d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 22,608 km2 (yikilumitren imkuẓen). Zedɣen-t 8,791,894 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Trenton.
+Connecticut Connecticut
+
+Connecticut d yiwen seg Yiwunak Yeddukklen, yezga-d deg wegmuḍ (ccerq) n tmurt. Tajumma-nnes 12,560 km2 (yikilumitren imkuẓen). Zedɣen-t 3,574,097 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Hartford.
+Delaware Delaware
+
+Delaware d yiwen seg Iwunak Yeddukklen, yezga-d deg wegmuḍ n tmurt. Tajumma-nnes 6,452 km2. Zedɣen-t 897,934 n yimezdaɣen. Tamaneɣt-nnes d tiɣremt n Dover.
+Indiana Indiana
+
+Indiana, d yiwen seg Yiwunak Yeddukklen, yezga-d deg ugafa-wegmuḍ (nord-est) n tmurt, ɣef yiri n ugelmim n Michigan. Tajumma-nnes 94,321 km2 (yikilumitren imkuẓen). Zedɣen-t 6,483,802 n yimezdaɣen. Tamaneɣt-nnes d Indianapolis.
+Miksik Amaynut Miksik Amaynut
+
+Miskik Amaynut d yiwen seg Yiwunak Yeddukklen, yezga-d deg wenẓul-utrim (sud-ouest) n tmurt. Tajumma-nnes 315,194 km2 (yikilumitren imkuẓen). Zedɣen-t 2,059,179 yimezdaɣen. Tamaneɣt-nnes d Santa Fe ma d tamdint tameqrant d Albuquerque.
+Georgia Georgia
+
+Georgia d awanak n wenẓul-agmuḍan (sud-est) n Yiwunak Yeddukklen, yezga-d ɣef yiri n Ugaraw Aṭlasi. Tajumma-nnes 154,077 km2 (yikilumitren imkuẓen). Zedɣen-t 9,687,653 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Atlanta.
+Louisiana Louisiana
+
+Lousiana (Tafrensist : "Louisiane") d awanak n wenẓul-agmuḍan (sud-est) n Yiwunak Yeddukklen, yezga-d ɣef yiri n Ubagu n Miksik. Tajumma-nnes 135,382 km² (yikilumitren imkuẓen). Zedɣen-t 4,625,470 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Bâton-Rouge.
+Alabama Alabama
+
+Alabama d awanak n wenẓul-agmuḍan (sud-est) n Yiwunak Yeddukklen, kra n wakal-is yezga-d ɣef yiri n Ubagu n Miksik. Tajumma-nnes 135,765 km2 (yikilumitren imkuẓen). Zedɣen-t 4,779,736 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Montgomery, ma d tamdint tameqrant d Birmingham.
+Kentucky Kentucky
+
+Kentucky d yiwen seg Yiwunak Yeddukklen, yezga-d deg tlemmast tagmuḍant (centre-est) n tmurt. Tajumma-nnes 104,749 km2 (yikilumitren imkuẓen). Zedɣen-t 4,339,367 n yimezdaɣen. Tamaneɣt-nnes d tamdint n Frankfort, ma d tamdint tameqrant d Louisville.
+Huntington Huntington
+
+Huntington d tamdint n ugafa-agmuḍan (nord-ouest) n Yiwunak Yeddukklen, tezga-d deg uwanak n New York yerna zedɣen-tt 195.289 n yimezdaɣen.
+Barack Obama Barack Obama
+
+Barack Hussein Obama yella d aselway n Yiwunak Yeddukklen seg 2009 ar 2017. Ilul deg 4 Ɣuct 1961 deg temdint n Honolulu (tigzirin n Hawaii).
+Honolulu Honolulu
+
+Honolulu d tamaneɣt n Tegzirin n Hawaii (deg Yiwunak Yeddukklen). Zedɣen-tt 374,701 n yimezdaɣen.
+
+Imdanen yettwassnen ay ilulen deg Hawaii:
+
+Barack Obama (aselway n Yiwunak Yeddukklen)
+Roma Roma
+
+Roma d tamaneɣt n Ṭṭalyan yerna d yiwet seg temdinin tiqburin akk deg umaḍal ay mazal ttwazedɣent ar ass-a. Zedɣen-tt 2.754.440 n yimezdaɣen.
+Vincent van Gogh Vincent van Gogh
+
+Vincent Willem Van Gogh (ilul deg Zundert, Timura n Wadda, deg 30 meɣres 1853 - yemmut deg Auvers-sur-Oise, Fransa, deg 29 yulyu 1890), d amekla (peintre) ahulandi ay iḍefren aɣanib n "deffir temsamzunt". 
+
+Leqdicat-nnes d wid ay yezraren (influencer) mliḥ taẓuri n lqern wis 20, ladɣa s usseqdec n yiniten (llwan) iqesḥanen akked tugniwin ay yessewliwilen ul n yemnezzeh. Arma ay qrib ad yaweḍ 30 n yiseggasen ay yebda Van Gogh amecwar-nnes deg teklut, yerna amur ameqran seg leqdicat-nnes n tẓuri iga-ten deg sin n yiseggasen ineggura n tmeddurt-nnes. Van Gogh iga-d ugar n 2.000 n yiqeddicen n tẓuri, gar-asen 900 n tfelwiyin (tableau) ed 1.100 n wunuɣen (dessins) ed yibeckilen (esquisses).
+
+D acu kan, tanefsit n Van Gogh tella tcewwel mliḥ yerna yella, seg-a ɣer da, ad t-id-taweḍ tisselbi. Deg tgara yenɣa iman-nnes asmi ay yesɛa 37 n yiseggasen, yerna asmi ay yemmut, amur ameqran deg medden llan werɛad ur ssinen leqdicat-nnes ifazen.
+
+Arma ay d asmi ay yemmut ay bdan medden ttessnen ayen d-yejja. Ass-a, llan aṭas ay t-yettwalin d yiwen seg yinuẓar imeqranen akk deg umaḍal yerna d yiwen seg yimeqranen ay yettekkan deg ussebded n tẓuri tatrart. Ass-a, aṭas seg yiqeddicen-nnes (gar-asent tifelwiyin n wudmawen, imeẓriyen [paysages] ed tjejjigin n umagriṭij) qqlen seg yiqeddicen ɣlayen aṭas akk deg umaḍal n tẓuri.
+Wlad Ɛeddwan Wlad Ɛeddwan
+
+Wlad Ɛeddwan d taɣiwant n twilayt n Sṭif deg tdyara n Ɛin Lekbira. Deg 2008, zedɣen-tt azal n 9,613 imezdaɣen. 
+
+Aselway n tegduda tatunsit Aselway n tegduda tatunsit
+
+Aselway n tegduda tatunsit d aɣella n Uwanak n Tagduda tatunsit seg assebded n tawuri ass n 25 yulyu 1957. Deg uzwel agi, yeḍebber adabu aselkam s unabaḍ yetsselwayen sɣur aɣella n unabaḍ. Ɣef leḥsab n umagrad 77 n Tamenḍawt tagdudant n wass n 10 fuṛaṛ 2014, yeḍebber daɣen anzaḍ aɛlayan n tidusiyin yettwassemregen.
+
+Ɣef leḥsab n Tamenḍawt, yetwafren s afran ameɣradi srid i anna n semmus iseggasen, ayzmaynu yiwet tikkelt kan. Seg assebded n tawuri, aten-id wid yeṭṭfen amkan nni :
+
+Burgiba dɣa Ben Ɛli sselwayen daɣen akabar deg udabu, yettwasemman Amay-Dustuṛ, Akabar anemlay adustuṛi dɣa Amsegraw amenḍawan amagday, seg azarug deg useggas 1956 ar tagrawla n 2011.
+
+Akabar amezwaru aɣelnaẓri, Dustuṛ, yettwassebdeden deg useggas 1920 yebɣa yakan asaselgam n yiwet tamenḍawt id tḍwelen ar tanaya timeẓwit dɣa imenzayen n udabu amagday war ad ḍḍesen ar umenzay n tagelda. Akkw am Amay-Dustuṛ yexeddmen agzam deg useggas 1934 ddaw tamehla n Ḥabib Burgiba, yettkemmel ad yessenfali tabbanit ines i unhil yellan deg tawuri. Aswir n Umay-Dustuṛ yellan di Sfax seg 15 ar 18 wamber 1955 yesnezgem : 
+
+Ɣef afermes n unhil sɣur amezdaɣ, Muḥsen Tumi yura : 
+Ihi, imi id yettwakmer kan id yezmel Lamine Bey ass n 29 dujamber 1955 tanaḍt id yesawelen ar tafrent n Ugraw ismatteran. Mɣar sakkin azarug d tafrent n Ugraw, tanarit tasertayt n Amay-Dustuṛ yessegrew ass n 10 yebrir 1956 yeḥettem agellid ad as yinni i Burgiba ad yessileɣ anabaḍ amezwaru n Tunes tazarugt. Ihi Burgiba yeddem amazrar n isuḍaf am taggara n iglamen n tawacult taḥusinit (tanaḍt n 31 mayyu 1956) neɣ tadbelt n taɣult tusligt n umuɣ aɣarim n bey (amarud amseggas id ttwafken i akkw imaslaḍen n tawacult tabeylikalt (taɛetmanit)) daɣen taɣult n uqacuc sɣur yiwen anedbal yetxeddmen deg aɣlif n teẓraf. Charles Debbasch yura ɣef waya: 
+
+I lmend n umulli wis sin n tuqqla ines ar Tunes, ass n 1 yunyu 1957, Ḥabib Burgiba yebɣa ad yesseɣret Tagduda, maca tazɣint n assaɣen iṛumiyen-itunsiyen id yussan seg uḥbas n tallalt n teẓraf n Fransa, yetwexxer tadyant. Ass n {22 yulyu]], tanarit tasertayt n Amay-Dustuṛ tesseɣret taseɣra n imazanen n Agraw ismatteran ar tiɣimit tafeɣnamit yettwassuddsen ass n 25 yulyu. Tiɣimit tebedda af 9 h 23 deg tazeɣɣa n usgeld n leqṣer n Bardo ddaw taselwit n Ǧelluli Fares d tihawt n tafekka tadiplumatit. Aneɣlaf amezwaru Ḥabib Burgiba d imaslaḍen n unabaḍ ines, slid Becir Ben Yahmed ur llan ara d awamni, qqimen ɣef uɣalad n imaslaḍen. Imi-d yeldi tiɣimit, Fares yederrer belli imaslaḍen ilaq ad innin anta talɣa is ilaqen i unhil. Ahmed Ben Salah, anmazul n uselway n Ugraw, yenna-d tidmi ines akagi : Awalen agi ttwasergegen sɣur tigermanin tidfirin. Af 15 h 30, Burgiba yebeḍḍa aẓmaẓ anarray n umnakel n beys, yerduten af ddell d taxendallast. Yeffuk deg tagara s taseɣrut n Tagduda: Deg taggara, afran s unemzel yeser anhil ageldan aqdim 252 iseggasen dɣa yessebded anhil agdudan yersan ɣef Amay-Dustuṛ kan. Aylaten n bey ttwakksen-as dɣa ṣleḥen i urẓam n umerwas n Uwanak. Burgiba yekcem srid deg tiwura-s n uselway deg timeṛjiwt n tirawt n Tamenḍawt id effken sin iseggasen sakkin tumast taselwayant n unhil amaynu.
+
+Ass n 8 wamber 1959 llant tifernin timezwura tiselwayin d timsuḍaf. Sakkin, sin isniɣesen agi ttwadrun deg unsay deg yiwen wass kan, ass n acer (lḥedd).
+
+Seg isniɣes amezwaru, Burgiba yesɛa-d abeḥri n umalway amszarug, netta kan i d-amazwar anwarmirm. Ad yeqqim akken armi d 1974, agmuḍ ines ur yeḥbes ara ad yerni seg 91 % deg 1959 ar 99,85 % deg 1974. Armi kan ass n 10 ctamber 1974 yella wayeḍ amazwar nniḍen i ɛerden ad yesssissen mgal aselway. Cadli Zwiten, aselway n Taxxamt tilemẓit tudmist n Tunes, yesseɣret aɣtas ines deg asseɣret ar taɣemsa yili yettwaḍfer sɣur alɣu n yiwen umaslaḍ n tiddukla nni yetssumelen aɣtas n uselway ines. Am yettwarǧu, tirtit ur tettwaḍḍef ara sɣur tasmilt ad hoc. Isniɣes agi ad yilli d aneggaru acku yettwaḍfer aseggas aḍfar sɣur taseɣrut n Burgiba am « aselway ar tudert ».
+
+Ilaq an arǧu snat n tmerwin iwakken an ẓer aneɛruḍ wis sin n Munsef Marzuqi, aselway anaffaɣ n Tamɣunt tatunsit n izerfan n wemdan, yebɣan ad yessissen mgal Ben Ɛli deg useggas 1994. Yili, ur yezmer ara ad yessegrew amḍan n izmalen yelaqen iwakken ad yettekki ar tafrent dɣa sakkin yettwaḥbes daɣen yettwagdel n upaspuṛ. Zdat isedrigen agi, ilaq ad rǧun isuḍaf imenḍawanen yetwadɣeren « s uzwel asɣasan », dɣa yeksalugen ar umagrad 40 n Tamenḍawt, i tifernin n 1999, 2004 d 2009, iwakken imazwaren nniḍen ad zemren ad ssissnen iman-nsen ar tinneflest tanafellat.
+
+Sakkin tagrawla id gweyn ar tagellawt n Ben Ɛli, Agraw ismatteran yefren aselway n Tagduda s taqiḍuft tuffirt, ass n 12 dujamber 2011, s tigti tamagdezt n imaslaḍen ines. Mraw imazwaren ssissnen-d maca, tam ur d ssegrewen ara mraw semmus izmalen yelaqen dɣa yiwen umazwar ur yesɛa ara leɛmeṛ yelaqen, yiwen kan yesɛan tiwtilin yelaqen i tirtit. Munsef Marzuqi yettwafren s 153 tuɣac, kraḍt mgal, snat taggalin d 44 idɣaren imellalen, yesmezri aken i Fuɛad Mebazɛa yellan deg tawuri am imedzi.
+
+Sakkin tuddma n Tamenḍawt tamaynut, adɣar yettwahel ass n 23 wamber 2014 i tafrent n uselway amaynu n Tagduda. Ass n 21 dujamber, sakkin tuzzya tis snat, Bejji Lqayed Ssebṣi, aneɣlaf aqdim ddaw Burgiba dɣa aselway n Taxxamt n imazanen ddaw Ben Ɛli, yettwafren deg tuzzya tis snat s 55,68 % n tuɣac, aselway Marzuqi yegweyd 44,32 %. D aselway amezwaru yettwafrenen s umagday deg tamurt.
+
+
+Imezzayen Imezzayen
+
+Imezzayen, imawlan n wakal n yiwen n lɛerc i yed-izzin i temdint n Bgayet am uzebgi: Seg Amsiwen deg tama n ugafa, alammi d Asif Aɛebbas ɣer wanẓul.
+
+Ayagi dayen illan alammi d tagara n tmidi wis 19 neɣ d tazwara n tmidi wis 20.
+
+Tamdint n Bgayet iɣef i yed-netmeslay dayi, dayen i yed-igran deg teɣremt i yessuli Naser n Walinas deg aseggas n 1067-1068, iwimi i yeqqar "Nnasiriyya". 
+
+Imezzayen bṭan ɣef qrad (tlata) n leṣnaf:
+
+1. Imadalen
+2. At Temsiyedt
+3. At Ɛmer Waɛli
+
+D yiwen n Rbaṭ neɣ n Tiɣremt wuɣur llant 6 Tewwura. Deg nneqma n yireqqasen n ssaɛa:
+
+
+Ɣef akken i yed-tɛawadden imeqranen neɣ akken i yed-necfa, ceffu n temẓi, nekni daɣen, ɣas akken mezziyi-yaɣ, „Tilist“ akken i yas-inna wyaẓiṭ[18] „d amnaṛ“: Iffeɣ umezdaɣ n temdint tewwura ayi, iwwi-d ad iruḥ qbala kan ɣer cceɣl-is. Ur ed-iwwi ad ir nnig n webrid, ur ed-iwwi ad irr ddaw n webrid! Acku akal ɣures imawlan-is, imawlan yettaran lbal fell-as. Caṭenṭ tlufa, maci d yiwet a t-ed-iḥku yiwn d ayi, i yed-ttawin imeqranen ɣef ayagi, ulamma d Lamir Ɛebelqader idda-d deg yiwet dey-sent. Teṭra deg Laɛzid Umɛemmer – ɣef yidis[19] n wemtiq iwimi qqaren Iḥeddaden ass-a.
+Phoenix Phoenix
+
+Phoenix d tamdint n Yiwunak Yeddukklen yerna d nettat d tamaneɣt n uwanak n Arizona. Zedɣen-tt 1.445.632 n yimezdaɣen (4.013.368 s yegmamen ay d-yezzin fell-as).
+Indianapolis Indianapolis
+
+Indianapolis, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n Indiana. Zedɣen-tt 1.756.221 n yimezdaɣen.
+Abagu n Miksik Abagu n Miksik
+
+Abagu n Miksik (s tanglizit: "Gulf of Mexico"; s Tespenyult: "Golfo de México") d abagu meqqren deg tlemmast n ugaraw Anaṭlas, yezga-d gar Yiwunak Yeddukklen, Miksik yakk d Kuba. Tajumma-ynes 1,6 [amelyun ticcert sḍis] km² (yikilumitren imkuẓen). Abagu-a ila tiɣbula (yesɛa lɛula) meqqren n upitṛul.
+Agaraw anaṭlas Agaraw anaṭlas
+
+Agaraw Aṭlasi d yiwen seg yigarawen n umaḍal. Yezga-d gar Temrikt (deg utaram), Turuft ed Tefriqt (deg wegmuḍ).
+Baṣra Baṣra
+
+Baṣra d yiwet temdint n tmurt n Ɛiraq, (taɛrabt : "البصرة"). D tamdint tis snat n tmurt-a, deffir Beɣdad, ay d tamaneɣt, akwd azal n 2,300,000 imezdaɣen deg useggwas n 2008. 
+Bufarik Bufarik
+
+Bufarik d yiwet taɣiwant n twilayt n Leblida deg wul n uzaɣar n Mettijet, tezga-d ar 14 km si temdint n Leblida ed 35 km si Dzayer tamanaɣt. 
+Sidi Belɛebbas Sidi Belɛebbas
+
+Sidi Belɛebbas d tamaneɣt n twilayt n Sidi Belɛebbas deg umalu n tmurt n Ledzayer. Deg useggas n 2008, ɣur-s azal n 212,000 imezdaɣen. 
+
+Tezga-d ar 80 km si Wehran deg yiwen uzaɣer i wumi qqaren-as Meqerra af yiri n wasif n Usarnu. Teqbreb af Idurar n Tesala daɣen. 
+Yennayer 1954 Yennayer 1954
+
+
+1954 1954
+
+Iɣil Wis Iɣil Wis
+
+Iɣil Wis d Taddart id yezgan di lɛerc n At Buɛisi ,taɣiwant n Tizi n Berber, deg tdyara n Aweqqas i yellan d amur n Tawilayt n Bgayet di Tamurt n Iqbayliyen. 
+San Marin San Marin
+
+San Marin d yiwen uwanek n Turuft n Wenẓul deg tmurt n Ṭelyan. Tezga-d deg udrar Titano deg tlemmast n Ṭelyan. Ɣur-s 25 000 imezdaɣ. Tettzuxxu imi d nettat i d Awanek aqdim yakk deg Turuft, i d-ilulen deg tmiḍi tis-4. 
+Malṭa Malṭa
+
+Malṭa d tamurt ed tigzirt aydeg illa 362 000 imezdaɣen. Tezga-d deg unẓul n Sqilya. Timunnent-is tewwi-tt deg useggas n 1964. Maca iserdasen igliziyen ur tt-ffiɣen ara almi d aseggas n 1979. Tamanaɣt-is d Valetta. 
+Vatikan Vatikan
+
+Vatikan d awanek amecṭuḥ yak deg umaḍal. Ɣur-s 770 imezdaɣ. D Vatikan i d lqebla n n wesɣan amasiḥi akatulik. Yusa-d deg tlemmast n Roma, tamaneɣt n Ṭelyan.
+Liechtenstein Liechtenstein
+
+Liechtenstein d yiwet tamurt tamecṭuḥt deg Turuft Talemmast yerna ɣur-s 30 000 imezdaɣ. Tezga-d ɣef yiri n wasif n Rhein, deg idurar n Alpen, ger Teswist akked Tutrict.
+Imeldiwen Imeldiwen
+
+Imeldiwen d tamurt deg wammas n Ugaraw Ahendi, 200 seg 2000 tegzirin n ugaraw ahendi i d-igan tamurt-a zedɣen-ten ala 181,000 n yimdanen. Tigzirin-a wwint timunnent-nsent sɣur Tagelda Yeddukklen deg 1965. Tamaneɣt-is d tamdint n Male. 
+Grenada Grenada
+
+Grenada d tamurt deg yilel n Yikariben, imezdaɣ-is wwḍen 98 000. Teqreb ɣer Temrikt n Ugafa. Timunnent-is tewwi-tt deg 1974 sɣur Tagelda Yeddukklen.
+Saint Vincent ed Grenadines Saint Vincent ed Grenadines
+
+Saint Vincent ed Grenadines d yiwen tamurt deg Ikariben. Llan 109,000 n yemdanen i izedɣen tigzirin-a n Ikariben. Tagelda Yeddukklen tefka-yasent timunnent-nsent deg useggas n 1979. Tamaneɣt-is d Kingstown. 
+Saint Kitts ed Nevis Saint Kitts ed Nevis
+
+Saint Kitts ed Nevis d tamurt n Ikariben, i zedɣen 41,000 n medden, tewwi timunnent-is sɣur Tagelda Yeddukklen deg 1983.
+Rumanya Rumanya
+
+Rumanya d tamurt n Turuft Tagmuḍant. Tajumma-nnes 238,391 km2 (yikilumitren imkuẓen). Zedɣen-tt 19,779,963 n yimezdaɣen (Irumaniyen). Tamaneɣt-nnes d Bukarest.
+Sluvakya Sluvakya
+
+Sluvakya d tamurt d-yezgan di Turuft Talemmast, yerna d tamaslaḍt anegmuḍan (membre) seg Tdukli Turufit. Tamanaɣt ines d Bratislava. Tutlayt tunṣibt d Tasluvakit, yerna zedɣen-tt azal n 5,410,836 imezdaɣen deg 2013.
+Kruwatya Kruwatya
+
+Kruwatya d tamurt n wenẓul (sud) n Turuft, tezga-d deg Tzunegzirt n Balqan. Tajumma-nnes 56,594 km2 (yikilumitren imkuẓen). Zedɣen-tt 4,284,889 n yimezdaɣen. Tamaneɣt-nnes d Zagreb.
+Legrig Legrig
+
+Legrig d yiwet tamurt n wenẓul-agmuḍ n Turuft, deg wenẓul n Tzunegzirt n Balqan di tama n tmurt n Tturk ed Bulgarya.Zedɣen-tt 10,815,197 imezdaɣen. Tamaneɣt-is d Atena. Mechuret s umezruy-is deg Teglest s teɣrema Tagrigit taqburt.
+Munaku Munaku
+
+Tamurt n Munaku tusa-d sdat n Côte d’Azur n Fransa. Ɣas akken mecṭuḥet, nnig n 30 000 n yimdanen i tt-izedɣen. Tetwassen s yixxamen-is n turart (Casino) akked tgeldunt-is. Munaku tuɣal d tilellit deg tmiḍi tis-13.
+Venezuela Venezuela
+
+Venezuela d tamurt tameqrant ay d-yezgan deg ugafa n Temrikt n Wenẓul. Tajumma-nnes 916,445 km² (yikilumitren imkuẓen). Zedɣen-tt 30,206,307 n yimezdaɣen (Ivenenzuelaten).
+
+Tamurt-a tesɛi ilel n Ikariben ar ugafa-s. Seg utaram (lɣerb) tḥudd-itt-id Kulumbya, seg wenẓul Brazil. (nord) seg wegmuḍ (ccerq) tḥudd-itt-id tmurt n Guyana. Anezwi (climat) n tmurt-a d agrawi (humide) aṭas deg akk timiwa n tmurt yerna d akiwan deg udrar.
+Kulumbya Kulumbya
+
+Tagduda n Kulumbya d tamurt tameqqrant ay d-yezgan deg ugafa n Temrikt n Wenẓul. Tajumma-nnes 1,141,748 km2 (yikilumitren imkuẓen). Zedɣen-tt 47;847;177 n yimezdaɣen (Ikulumbyanen). 
+
+Tamurt-a tesɛa ilel n Ikarbien deg ugafa. Seg utaram (lɣerb) tḥudd-itt-id Panama, seg ugafa (nord) akked wegmuḍ (ccerq), tḥudd-itt-id Venezuela akked Brazil. Seg wenẓul, tḥudd-itt-id Ecuador akked Peru. Anezwi (climat) n tmurt-a d agrawi (humide) deg wegmuḍ yerna d akiwan deg idurar.
+
+Isem n tmurt n Kulumbya yekka-d seg isem n wawlal ameqqran Kristufuru Kulumbus neɣ (Cristóbal Colón) s tespanyulit, Christophorus Columbus s tlatinit.
+Yefka isem-agi af akk timura n umaḍal amaynut yellan ddaw leḥkem n Spanya i tikkelt tamezwarut agrawli n Venezuela Fransisku Miranda neɣ (Francisco de Miranda) s tespanyulit.
+Yuɣal d isem unṣib n Tagduda n Kulumbya deg useggas n 1886.
+Kusta Rika Kusta Rika
+
+Kusta Rika d tamurt n Temrikt Talemmast. Tajumma-nnes 51,100 km2 (yikilumitren imkuẓen). Zedɣen-tt 4,636,348 n yimezdaɣen. Tamaneɣt-nnes d San Jose.
+Honduras Honduras
+
+Honduras d tamurt n Temrikt Talemmast. Tajumma-nnes 112,090 km2 (yikilumitren imkuẓen). Zedɣen-tt 7,639,327 n yimezdaɣen. Tamaneɣt-nnes d Tegucigalpa.
+Panama Panama
+
+Panama d tamurt n Temrikt Talemmast. Tajumma-nnes 75,420 km2 (yikilumitren imkuẓen). Zedɣen-tt 3,460,462 n yimezdaɣen. Tamaneɣt-nnes d temdint n Panama. Tettwasnen s wadeg anda yella Targa n Panama i yellan d targa tagejdant akk i yimesniyen g umaḍal. 
+Tarjentint Tarjentint
+
+Tarjentint (isem unṣib : Tagduda n Terjentint), s tespanyulit : "Republica de Argentina" [reˈpuβlika aɾxenˈtina]) d tamurt tameqrant ay d-yezgan deg wenẓul n Temrikt n Wenẓul. Tajumma-nnes 2,780,400 km2. Zedɣen-tt 40,677,348 n yimezdaɣen ("Arjentinen").
+
+Tamurt-a ɣer-s ilel di tama n Ugaraw Aṭlasi. Seg utaram-ugafa tḥudd-itt-id Cili, seg ugafa d wegmuḍ, tḥudd-itt-id Brazil yerna deg ugafa-umalu tḥudd-itt Bolivia. Seg ugafa, tḥudd-itt Paragway. Seg wegmuḍ-alemmas tḥudd-itt Urugway Seg wenẓul, tḥudd-itt-id Ugaraw Aṭlasi. Anezwi n tmurt-a d agrawi deg wegmuḍ yerna d akiwan deg utaram.
+Tuvalu Tuvalu
+
+Tuvalu d tamurt i d-yemmugen s 09 tegzirin yeččuren d lmerǧan. Wwint tilelli-nsent sɣur Tagelda Yedduklen deg useggas 1978. Ass-a ɣur-sent 9,700 imezdaɣ.
+Tamentfust Tamentfust
+
+Tamentfust (s tefrensist: "Tamentfoust"), d tamdint tamecṭuḥt, tezga-d ɣef yiri n yilel, deg wegmuḍ (ccerq) n twilayt n Lezzayer (teqqen ɣer tɣiwant n Burj Lbeḥri). Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "La Pérouse".
+Kunakri Kunakri
+
+Kunakri d tamaneɣt n Ginya. Zedɣen-tt 1.931.184 n yimezdaɣen.
+Beɣdad Beɣdad
+
+Beɣdad d tamaneɣt n Uɛiraq, tezga-d deg tlemmast n tmurt. Zedɣen-tt 7,216,040 n yimezdaɣen deg useggas n 2011.
+Jurjya Jurjya
+
+Jurjya, d tamurt deg wenẓul-utrim (sud-ouest) n Asya, tezga-d deg tama n taftist n ill aberkan n yedraren n Quqaz. Tesɛa tilisa d Rusya, Tturk, d Arminya d Azerbijan. Tajumma-nnes 69,700 km2 (yikilumitren imkuẓen). Zedɣen-tt 4,585,874 n yimezdaɣen (Ijurjiyen). Tamaneɣt-nnes d Tbilisi.
+Muldavya Muldavya
+
+Muldavya d tamurt n Turuft Tagmuḍant. Tajumma-nnes 33,843 km2 (yikilumitren imkuẓen). Zedɣen-tt 3,656,843 n yimezdaɣen (Irumaniyen). Tamaneɣt-nnes d Chișinău.
+Seychelles Seychelles
+
+Tigzirin n Seychelles llant deg ugaraw ahendi uɣalent d tilelliyin seg Tgelda Yeddukklen deg useggas n 1976. Ass-a ɣur-sent 94.228 imezdaɣen.
+Mahatma Gandhi Mahatma Gandhi
+
+Mahatma Gandhi neɣ Mohandas Karamchand Gandhi, d imwelleh aruḥan di Lhend, yella daɣ d argaz aserti meqqren di lawan mi d-yekker umussu n teslullit deg tmurt-is ; ilul ass wis 2 deg tuber 1869 di Gujarat (Lhend), yettwanɣa ass n 20 yennayer 1948 di New Delhi. 
+
+Gandhi yeqdec d abugaṭu deg Tefriqt n Wenẓul, yerna din ay yessnen lbaṭel aberkan n tmeḥyaft gar yemdanen yemgerraden deg tneṣlit. Asmi ay d-yeqqel ɣer Lhend deg 1914, yebda yekkat i lmend n uzarug n tmurt-nnes ay yellan ddaw udabu abriṭani. 
+
+Ghandi yettwassen s ubrid i d-yewwi deg uqazem n weqmaḍ akked temsbaṭlit ala s weɛṣay aɣarim n wegdud ; aselḥu n tiẓri-a-ines deg umennuɣ yebna ɣef trekrriṭ (tarkriṭ = nonviolence), dɣa annect-a yettwaḥsab gar wayen yessawḍen tamurt n Lhend ad tḥelli timunent-is. Mzḥsub yella itteg ifadden i medden akken ad nnaɣen mgal tuṭṭfa tabriṭanit war ma sqedcen iɣil, d acu kan, leqdic-nnes deg tsertit yessaweḍ-it ad yettwaḥbes acḥal d tikkelt. Gandhi iwet daɣen akken ad iḥudd irunnilen (intouchables), wid yettwaḥeqren deg wesɣan (ddin) ahendusi. Asmi ay qrib ad tawey Lhend azarug-nnes, bdan-d yimenɣiyen imeqranen gar Yinselmen ed Yihendusiyen n Lhend, d wid aydeg mmuten aṭas n medden. 
+
+D aya ay yejjan Gandhi ad yeg taḥemla akken ad yeḥbes yimenɣi-a, yerna iga asunded (grève) n llaẓ i lmend n waya, dɣa d aya ay yessawḍen ixṣimen-nni ad ḥebsen imenɣi. D acu kan, Gandhi yenɣa-t yiwen n umeḍḍarfu ahendusi aɣlenaẓri deg wass n 30 Yennayer 1948,acku iwala-t d netta d ssebba n beṭṭu n tmurt ɣef snat (mi d-tlul Pakistan) d tuɣalin-is ɣer deffir deg tnezmar. 
+
+S tesnagt-is Ghandhi yeqqel d azamul n talwit ama deg Lhend, ama deg tmura n beṛṛa.
+Taqliɛt n At Ḥemmad Taqliɛt n At Ḥemmad
+
+Taqliɛt n At Ḥemmad d yiwet n temdint taqbuṛt ay d-yezgan deg tama n Msila, deg tlemmast n tmurt n Ledzayer. Ar ass-a, mazal nezmer ad nwali llsisan n kra n yexxamen, ɣas akken, kullci deg-s yessusem tura : ad as-tiniḍ werjin yeɛmiṛ wemkan-nni. D acu kan, Taqliɛt n At Ḥemmad, tella, zik-is, seg temdinin mechuṛen akk deg Tmazɣa. D tamaneɣt meqqren, yesɛan tasɣent s wazal-is deg umezruy n Yimaziɣen.
+
+D tamdint n Teqliɛt, yellan d tamaneɣt n temnaḍt-nsen, zik-nni, ay rran d tamaneɣt n uwanek-nsen. Ḥemmad yefka-as azal meqqren i tmaneɣt-is. Yebna-as isensa igerrzen ay deg sgunfuyen yemzenza ay d-yettasen seg tmiwa ibeɛden. Teqqel Teqliɛt d tamdint mechuṛen deg tnezzawt, d d ulzuz ameqqran ay ɣer d-ttasen medden seg yal tama. 
+
+Ḥemmad Ubuluɣin icebbeḥ-as diɣ timesgidiwin i Teqliɛt, ay yerra d tamdint n tmussni ay ɣer d-ttasen s waṭas yimassanen akken ad lemden u ad slemden deg-s. Maca, ayen icebḥen akk deg temdint n Teqliɛt, netta, d tamesgida-yines tameqqrant yakk ed xemsa leqṣur-nni ay yebna deg-s. Tamesgida tebna s yeẓra imeqqranen ay iselɣen s ljir, cebbḥen-tt s uɣanib n tmesgidiwin n Tmazɣa, bnan-as ṣṣumɛa d taɛlayant. Ma leqṣur-nni, gar-asen Leqṣer n Lumaṛa ed win n Lmanaṛ, d wid ay d-yesskanen alameɣ ay deg tella tettidir temdint-nni. Asmi teqqel Teqliɛt d tamaneɣt, teqqel d tamdint tanesbaɣurt yeddren acḥal n yiseggasen deg lehna ed liser.
+
+Tamazɣa yezga yegguni-tt ccwal. Tagnit ay deg tella tettidir ur terkid ara s tidet. Yuɣ lḥal, deg tallit-nni, timura n Tmazɣa, imi ur jhident ara, zgant ttidirent ddaw leɛnaya n tgeldiyin timeqqranin n Wegmuḍ. Tageldit n Yibadisen, yellan naqal s ddaw n tmaɣda n Yifaṭimiyen n Maṣer, qqlen s ddaw tin n Yiɛebbasiyen n Beɣdad. D ayen ay yesserfan aṭas axlif n Yifaṭimiyen n Taqahirt. Akken ad iɛaqeb Ibadisen, yuzen-asen-d tiqbilin taɛṛabin n Banu Hilal akken ad asen-d-kecmen tamurt, ad asen-tt-rwin. Ma d Iḥemmadiyen, imi qqimen ddaw tmaɣda tafaṭimit, menɛen, taswiɛt-nni, seg yixeṣṣaren n Banu Hilal. D acu kan, tamurt-nsen kecmen-tt-id waṭas n medden ay d-srewlen Yihilaliyen seg Tunes. Aṭas seg yimerwalen-a ay iṛuḥen ad zedɣen deg Teqliɛt, tamaneɣt taḥemmadit. Asmi yemmut Ḥemmad deg 1028, d mmi-s, Lqayed, ay yulin s amkan-is. Yemɛawan ed ugellid n Tunes akken ad nnaɣen mgal n Yihilaliyen. Asmi yemmut Lqayed deg useggas n 1054, yexlef-it-id mmi-s, Muḥsen. D acu kan, imi aṭas ay t-ikeṛhen, ur d-zzin ara fell-as ttesɛa wagguren, yenɣa-t mmi-s n ɛemmi-s, Buluɣin Umḥemmed. Bdan sakin Yihilaliyen, ay d-yettwaznen deg tazwara ɣer Tunes, ad d-ttaẓen cwiṭ, cwiṭ s ataram armi ay d-kecmen tamurt n Yiḥemmadiyen. I wakken ad ten-yerr Buluɣin Uḥemmad, yesdukel iɣallen-is ed Yimaziɣen Iznatiyen n utaram, yessaweḍ ad ten-yernu deg 1059. Yuɣ lḥal, xas ma yella Buluɣin Umḥemmed d argaz yesɛan tabɣest, yezmer i yiman-is, ur yettuɣal ara deg wawal, maca yewɛeṛ aṭas yernu ur yesɛi ara ṛṛeḥma, alammi ay qqlen ula d wigad-is keṛhen-t, ttagaden-t. Yiwwas, asmi yemmut gma-s, icikk d Tanemmirt, d tameṭṭut n gma-s-nni yernu d yelli-s n ɛemmi-s, ay t-yenɣan. Dɣa, ula d netta yenɣa-tt. Gma-s n tagi, Naṣer Walennas, xas iɣaḍ-it lḥal, ur d-yessebgen ara cceḥna-is imir-n kan i Buluɣin Umḥemmed ay yenɣan weltma-s. Deg useggas n 1062, iṛuḥ Buluɣin Umḥemmad ad yennaɣ ed Yemrabḍen n Merruk. Mi d-yuɣal seg yimenɣi, yeqqim-as-d, Naṣer Walennas, deg Tesala, deg tlemmast n Ldzayer, yenɣa-t.
+
+Yuɣal sakin deg wemkan-is d agellid n Yiḥemmadiyen. Seg wass-n, ur tufi tmurt-nsen talwit ed werkad am zik-nni. Yefreq Naṣer adabu n tmurt ed watmaten-is : yal yiwen yefka-as tama ara yeḥkem. Yerra igen s ddaw n udabu n gma-s, Lqasem. Naṣer yella yesɛa daɣen yiwen umatu iẓewren, isem-is Xaled. D netta ay d-iḥeṛṛen idurar n Zab ɣer tmurt n Yiḥemmadiyen. D acu kan, ur iɛeṭṭel ara Naṣer : yenɣa-t. Acuɣer ? Acku zzenzen-t-id icaweṛ kra ma yella ad kksen Naṣer i wakken ad d-rren Mɛemmeṛ, gma-s n Buluɣin Umḥemmed, deg wemkan-is.
+
+Yekker yimenɣi, deg useggas n 1065, ger teqbilin tihilaliyin. Naṣer yedda ed teqbilt n Atbaj, deg lweqt ay deg mmi-s n ɛemmi-s, agellid n Tunes, Temmin Umuɛezz, yedda ed teqbilt n Riyaḥ. Yeffeɣ Naṣer Walennas ad yennaɣ mgal n mmi-s ɛemmi-s deg tmurt n uneggaru-yagi deg 1084. Yewwi yid-s imsisan : kra d aɛṛaben, kra d Imaziɣen iznagen, wiyaḍ d Iznatiyen. Yennuɣ Naṣer yiwen yimenɣi meqqren deg Sbiba, sdat n Qayrawan, maca yettwarna imi t-xedɛen Yeznatiyen-nni yeddan yid-s. Yemmut-as-d din, i Naṣer Walennas, gma-s Lqasem, yernu din ay n-yejja diɣ igerrujen-is. ḍefren-t yexṣimen-is alammi d tama n ḥuḍna, syin ula ɣer tmaneɣt-is, Taqliɛt. Dɣa zzin-as-d i temdint : ur qbilen ad as-ttixren alammi ay yeqbel Naṣer ad asen-yefk imuren imeqqranen seg wakal n tmurt-is. Yegra-d Naṣer, yesṛuḥen amur ameqqran seg yiɣallen-is, ed yiserdasen ay as-d-yeqqimen. Widen, ɛyan, werɛad sgunfan seg wayen akk ay d-yeḍran yid-sen, i wakken ad qablen acengu nniḍen. Dinna ay ifuṛes tagnit Lmuntaṣir Uxezrun, yiwen Umaziɣ aznati (n utaram) akken ad d-yekcem s akal n Yiḥemmadiyen. Yeṭṭef tamdint n Msila, idurar n Zab ed tama n Riɣa. Naṣer Walennas, terra-t tmara yeqbel ad isemmeḥ deg tmiwa-yagi akken ad d-ters lehna deg tmurt. Ma d Lmuntaṣir Uxezrun, ur tent-iɣellet ara : akken kan yekcem ɣer Msila, yenɣa-t Ɛaṛus Usindi, yellan d amesnabaḍ n temdint-nni, d ameddakel n Naṣer.
+
+Asmi ay iwala Naṣer Walennas tageldit-is tezga tettidir deg tugdi ed umihi inuda ad yesserwel tamaneɣt-is. S wakka ay yefren Bgayet deg useggas n 1067 neɣ 68. Yuzen ɣer din iserdasen-is, yessebded dinna yiwet n temdint umi isemma ɣef yisem-is, Nnaṣiriyya. D acu kan, medden meṛṛa kemmlen ssawalen-as Bgayet. Ma d Taqliɛt, xas terna teqqim acḥal d iseggasen teɛmeṛ, mazal llan widak iḍemɛen ad d-teɣli ger yifassen-nsen. Ɣur Yiḥemmadiyen, Taqliɛt-nni yellan d agerruj ɣlayen, yeɣli imir-n wazal-is, d Bgayet ay cebbḥen deg umur-ines.
+
+Igelliden Iḥemmadiyen n Bgayet mgarraden deg tikli ay d-wwin. Llan wid yessawḍen ad as-d-rnun akal i tgeldit-nsen, ḥerzen ayen sɛan zik, rnan swesɛen-t. Llan wiyaḍ, ttwarnan, aṭas n wakal ay jjan i yexṣimen-nsen. Deg yiseggasen iqerben 1130, yennuɣ ugellid At Ḥemmad, Yeḥya Uɛebdelɛaziz ed ugellid n Tunes, Mulay Ḥasan. Teḍra-d twaɣit ed ugellid aḥemmadi. Yerẓa Mulay ḥasan iɣallen iḥemmadiyen, ihudd-asen tizemmar akken ur ttankaren. Ixeṣṣaren imeqqranen ay asen-yefka d tiɣrit ur nzeggel. Amek ? Asmi ifuk wemgaru, Uɛbedleɛziz yezder deg ṭṭlaba ar iri. Tadrimt ulac, awi-d ayen a yerr, yebra-d i waṭas n yiserdasen-is seg yigen : acku ur yesɛi ara s wayes ara ten-ixelleṣ. Yuɣal simmal ɣer deffir. Aɣerya ad d-yelhu ed uɛiwed n lebni n tmurt-is, netta yefka-tt i jjiḥ. Akessar d akessar... d agrireb ay isehlen. D agus-a yefsin ay d-igan abrid i teqbilin n Banu Hilal ad d-kecment s izuɣar n Lbuṛj Buɛṛiṛij, Mejjana ed Ɛin Taɣruḍt. Yewweḍ Uɛebdelɛaziz alammi ay isemmeḥ, deg useggas n 1148, ula deg Teqliɛt, mbeɛd mi d-yesserwel seg-s igerrujen n Yiḥemmadiyen ay d-yeqqimen din.
+
+Ṛebɛa yiseggasen sdeffir waya, deg 1152, kecmen-d Yimaziɣen Imweḥḥden n utaram ɣer uwanek aḥemmadi. ṭṭfen deg-s aṭas n wakal. Igen n Yiḥemmadiyen, yefcel seg yemgura iɛeddan, ur yessaweḍ ara ad yeṭṭef tuṭṭift sdat yiɣallen ijehden n Yemweḥḥden. Dɣa deg useggas-nni s timmad-is ay wwḍen Yemweḥḥden ɣer Bgayet. Teɣli tmaneɣt-a ay deg yifassen-nsen. Ma d tawacult n Yiḥemmadiyen terwel ɣer tmaneɣt-is taqbuṛt : Taqliɛt. Dɣa d win kan ay d amḍiq aneggaru ay deg zemren ad ffren, ad kemmlen ad qablen acengu. Akken ad ḥudden iman-nsen seg Yemweḥḥden, dduklen ed teqbilt tahilalit n Atbaj. D acu kan, d tadukli ur ten-nessemneɛ. Din din : yettwanɣa uɣella n teqbilt-a, Dahas, ttwarnan Yiḥemmadiyen. Teɣli temdint n Teqliɛt ger yifassen n Yemweḥḥden. Rewlen-d akk wid ay tt-izedɣen. Kecmen yiserdasen imweḥḥden : tamdint rwin-tt, ayen ufan wwin-t. Seg wass-nni ay teqqel Teqliɛt d tamdint yexlan. Ur yeɛriḍ ḥedd ad tt-yebnu s wadda tikkelt nniḍen. Ayen ur ihudd ara ufus n wemdan, ihudd-it zzman, kemmlen-as waman. Ass-a, ala kan d ṣṣumɛa ɛlayen n tmesgida tameqqrant n temdint ay d-mazal tebded. Deg 1980, qqlen yexriben n Teqliɛt n At Ḥemmad, ttuneḥsaben seg yisekta iqburen n umaḍal ay teḥrez tuddsa n Unesco. Isekta n Teqliɛt n At Ḥemmad seg yigerrujen n Tmazɣa. D inagan ara asen-yemmalen amezruy-nsen i warraw n Tmazɣa, tasuta deffir tayeḍ.
+At Ḥemmad At Ḥemmad
+
+At Ḥemmad, neɣ Iḥemmadiyen, d yiwet n twacult tamaziɣt n tallit talemmast. Isem-nsen yekka-d seg umaraw-nsen amezwaru, Ḥemmad, ay yeddren deg leqrun wis 10 ed wis 11 mbeɛd Sidna Ɛisa (Slam n Ṛebbi fell-as). Deg useggas n 973, d Imaziɣen n Ikutamen ed Yeẓnagen ay iɛawnen tawacult n yigelliden Ifaṭimiyen, yellan deg Tunes, akken ad nnaɣen mgal n Yiɛebbasiyen yellan deg Maṣer. Asmi ttwarnan Yiɛebbasiyen, yefka Lmuɛezz, agellid afaṭimi n Tunes, i Buluɣin Uziri adabu, n Tmazɣa seg Tunes alammi d talemmast n Tmurt n Ldzayer. Imir-n ay yerra Buluɣin tamdint n Ldzayer d tamaneɣt i tgeldit-is : imir-n ay d-tlul twacult n yigelliden Iziriyen.
+
+Yuɣ lḥal, deg tallit-nni, timura n Tmazɣa, imi ur jhident ara, zgant ttidirent ddaw leɛnaya n tgeldiyin timeqqranin n Wegmuḍ. Tageldit n Yibadisen, yellan naqal s ddaw n tmaɣda n Yifaṭimiyen n Maṣer, qqlen s ddaw tin n Yiɛebbasiyen n Beɣdad. D ayen ay yesserfan aṭas axlif n Yifaṭimiyen n Teqahirt. Akken ad iɛaqeb Ibadisen, yuzen-asen-d tiqbilin taɛṛabin n Banu Hilal akken ad asen-d-kecmen tamurt, ad asen-tt-rwin.
+
+Asmi yemmut Ḥemmad deg 1028, d mmi-s, Lqayed, ay yulin s amkan-is. Yemɛawan ed ugellid n Tunes akken ad nnaɣen mgal n Yihilaliyen. Asmi yemmut Lqayed deg useggas n 1054, yexlef-it-id mmi-s, Muḥsen. D acu kan, imi aṭas ay t-ikeṛhen, ur d-zzin ara fell-as ttesɛa wagguren, yenɣa-t mmi-s n ɛemmi-s, Buluɣin Umḥemmed. Bdan sakin Yihilaliyen, ay d-yettwaznen deg tazwara ɣer Tunes, ad d-ttaẓen cwiṭ, cwiṭ s ataram armi ay d-kecmen tamurt n Yiḥemmadiyen
+
+Iziriyen Iziriyen
+
+Iziriyen d yiwet tadinastit n yigelliden imaziɣen deg tallit talemmast. 
+
+Deg useggas n 996, d Badis, mmi-s n mmi-s n Buluɣin Uziri, ay yeqqlen d agellid n uwanek n Yiziriyen. Tuɣ imir-n, yufa-d lḥal, baba-s ed jeddi-s jjan-as-d akal d ameqqran, yewwet seg Ṭrables, deg Libya, alammi d ataram n Ledzayer. Dɣa yebḍa Badis adabu n temnaḍin n tmurt-is ed leɛmum-is. Ḥemmad ed Irufet, yefka-asen ataram, ma d Felful yefka-as tama n Ṭrables. Tegra-d ɣer Ḥemmad Ubuluɣin, yefren yiwet n tama ara yeḥkem, deg wenẓul n Temsilt akken ad yebnu tamaneɣt-is. Amḍiq ay yefren yezga-d ger n Temsilt ed yidurar n Ḥuḍna. D yiwen wegni ɛlayen ay deg yezmer ad yebnu tamdint ur nettishil ara i yicenga ad tt-awḍen. Dɣa, deg useggas n 1007 ay yebda ibennu tamaneɣt-is. Yernu, ɣef wakken ay d-yenna Ɛebderreḥman Uxeldun (Ibn Xeldun), sin yiseggasen kan ay yekka deg lebni-s.
+
+Sin seg leɛmum n Badis, Muḥsen ed Zawi, ur qbilen ara timura ay ten-id-iṣaḥen. Dɣa dduklen ed Felful, amesnabaḍ n Ṭrables, kkren-d mgal mmi-s n gma-tsen. D acu kan, Ḥemmad, ɛemmi-s-nni iḥekmen ataram, iɛawen Badis akken ad yennaɣ mgal n leɛmum-is ay as-d-yeqqlen d icenga. Yessaweḍ Ḥemmad ad ten-yernu. Yuɣ lḥal, seg wasmi ay d-kkren ɣur-s leɛmum-is, yeqqel Badis ur yettamen yiwen. D annect-nni ay t-yejjan ad yerr mmi-s, xas d agrud n setta yiseggasen kan deg leɛmeṛ-is, d agellid ɣef tmurt. Akken ad yesteɛṛef ugellid n Yifaṭimiyen s wannect-a, yefka-as Badis tamdint n Qsenṭina ed weḥric seg wakal n ɛemmi-s-nni ay t-iɛawnen, Ḥemmad.
+
+Dɣa seg yimir-n ay iḥulfa Ḥemmad yexdeɛ-it mmi-s n gma-s, yernu yekkes-d tamurt-is seg udabu n Badis. Deg useggas n 1015, yekker wemgaru ger Badis ed ɛemmi-s, Ḥemmad. Xas yemmut Badis, ikemmel wemgaru ger Yiziriyen ed wid yeddan ed Ḥemmad alammi d aseggas n 1017. Deg useggas-nni, gan Yiziriyen amtawa ay deg bḍan tawacult-nsen ɣef snat n terbaɛin : Ibadisen (imɛiwnen n Badis) wwin tama tagmuḍant n Tmazɣa (Tunes), ma d Iḥemmadiyen (imɛiwnen n Ḥemmad) wwin tama tutrimt (agmuḍ ed tlemmast n tmurt n Ledzayer).
+
+Even Stevens Even Stevens
+
+Even Stevens (s tanglizit : "Even Stevens") sulfen-t-id imarikanien aseggas n 2000 sɣur Matt Dearborn. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2000.
+Cavemen Cavemen
+
+Cavemen (s tanglizit : "Cavemen") sulfen-t-id imarikaniyen aseggas n 2007 sɣur Joe Lawson. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2007.
+Zoboomafoo Zoboomafoo
+
+Zoboomafoo (s tanglizit : "Zoboomafoo") sulfentid imarikanien aseggas n 1999 sɣur Chris, Martin Kratt, g Leo Eaton. Tɛedda deg telenẓar i tikkelt tamenzut ass n 1999.
+The Bernie Mac Show The Bernie Mac Show
+
+The Bernie Mac Show (s tanglizit : "The Bernie Mac Show") sulfen-t-id imarikaniyen aseggas n 2001 sɣur Larry Wilmore. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2001.
+Hollywood Hillbillies Hollywood Hillbillies
+
+Hollywood Hillbillies (s tanglizit : "Hollywood Hillbillies") sulfen-t-id imarikaniyen aseggas n 2014 sɣur Mike Pack. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2014.
+Wimzie's House Wimzie's House
+
+Wimzie' House (s tanglizit : "Wimzie's House") sulfen-t-id imarikaniyen aseggas n 1995. Tɛedda deg telenẓar i tikkelt tamenzut ass n 1995.
+Mind of Mencia Mind of Mencia
+
+Mind of Mencia (s tanglizit : "Mind of Mencia") sulfen-t-id imarikaniyen aseggas n 2005 sɣur Carlos Mencia. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2005.
+Pertti Kurikan Nimipäivät Pertti Kurikan Nimipäivät
+
+Pertti Kurikan Nimipäivät, neɣ s yisem ameẓyan PKN d tarbaɛt n ccna punk seg tafinland iwumi imcarken sɛan aṭṭan n leɛqel.
+
+G 28 n furar 2015, rebḥen la final nasional n tafinland "Uuden Musiikin Kilpailu 2015", ttreprizentin tafinland di l'Autriche s ccnu "Aina mun pitää" ("mkull ass ilaq").
+
+patisipin g nnefṣ n dmi-final, di 19 Mayyu 2015.
+
+Nura Nura
+
+Nura (isem ameqqren ines: "Faṭim Zzhra Baji") d tacennayt tadzayrit. tlul deg 1942, tmmut deg 2014.
+Gurbanguly Berdimuhamedow Gurbanguly Berdimuhamedow
+
+Gurbanguly Mälikgulyýewiç Berdimuhamedow (s trusit : Гурбангулы Мяликгулыевич Бердымухамедов, yettwaru aka "Gourbangouly Mialikgoulyïevitch Berdymoukhamedov", d talɣa timeẓwit. Ilul ass n 29 yunyu 1957) d aselway n Turkministan. Yeṭṭfed afrisem n Arkadag (amɛellem amastan) dɣa yebna aɛbad ines n tugna.
+Aferrun Aferrun
+
+Yekka-d seg uẓar (FRN).Ur d-nufi ara anamek n yisem-a akked unamek n uẓar-is. Llan kra n yimsulɣeyen i aɣ-d-yennan isem-agi aferrun yekka-d seg yisem Ferɛun (ferrun = ferɛun). Qqaren-as akka acku yewɛer, Yeǧhed yerna yeḥṛec aṭas. Amdan ara t-yewten, neɣ ara t-yjerḥen ad as-yeṭṭef cceḥna; mkul mi ara yeḍgger acebbak-is deg yilel akken ad d-igmer iselman, ad as-t-yefri akk.Aferrun d amsuṭṭaɣ. D netta akk i iḥercen gar yiɣersiwen n umaḍal.Yesɛatafekka d taɣezzfant.Yezmer ad yaweḍ deg teɣzi alamma d sebɛa n yiɣallen(talata n lmitrat d wezgen), ma deg taẓeyt yettaweḍ 150 n kilu. Aqerruy-is iṛuḥd imdewer, ur yesɛi ara aqamum. Yettemcabi aṭas ɣer uddenfil.Ini-s amyiɣiɣden neɣ d aberkan; tikwal iseɛɛu ccwami d ticebḥanin.
+Abbaɣaṛ Abbaɣaṛ
+
+Yekka- d seg uẓar (BƔR). Ur d-nufi ara anamek n yisem akked unamek n uẓar-is. Sawalen-as daɣen afaɣru.Abbaɣar d aslembuyiɣes.Yesɛa deg teɣzi gar tardast akked yiɣil d terdast (si20 ar 70 isuntimen).Ma deg taẓeyt yezmer ad yaweɣ armi d 30 n kilu.Yettili anda yella Lmennil (uṭ 49) d Yiciɣer (uṭ 44). Ini-s iṛuê d axuxi, isɛa ciṭṭuḥ n uzegzaw ddaw uqemmuc-is.
+Ablaɣ Ablaɣ
+
+Ablaɣ (Assaɣ ussnan: "Alosa") d tawsit iselman iminigen (id yettalin seg yilel ar wasif i wakken ad yessers iglayen) yeṭṭafaren tawacult n trengin ("Clupeidae") dgi yella daɣen tildut yakk d Irengi
+
+Seg Yebrir ar Yulyu, Ableɣ yessentay (ibeddu) inig-is s walluy seg yilel ar isafen i wakken ad yessers timellalin-is (iglayen), mi ara ad tili teẓɣelt n waman 18° awtem d tewtemt ttalin ar tiggi, tt-gin iman-nsent udem ar wudem sin akin kkaten aman s tsaccafin-nsen ayen id yessnulfayen aṭas n wahit (lḥess d zzehir), Dɣa ahit-a iga d taɣuri i wmercel 
+
+Aserdun Aserdun
+
+Aserdun (assaɣ usnan: "Equus mule") d aɣersiw aregnan seg tegmart d uwtem n weɣyul, Aserdun yeṭṭafar tawacult n igmariyen, Dɣa Aserdun iteddem igelman (ṣṣifat) n wayis d weɣyul acku aserdun yuddes (igder), gezzil yerna yettazal
+
+Yessefk usemgirred gar n userdun d userdɣyul acku aserdun d aɣersiw aregnan seg tegmart d uɣyul, ma d aserdɣyul d aɣersiw aregnan seg wayis d teɣyult
+Acaddi Acaddi
+
+Yekka-d seg uẓar (DW), yemmal-d anamek n uɣersiw n lber (ibki). Ma d aslem-agi qqaren- as akka acku d aberkan am ucaddi n lber. Acaddi d aslem bu yiɣes.Yesɛa deg teɣzi azal n yimi n wuccen (10 isuntimen).D aslem amecṭuḥ, maca yegget. Yesɛa snat n tferrawin sufella n uɛrur- is, snat niɣen deg yibeṛdiyen- is, ǧehdent mliḥ, yis- sent i yettɛummu. Yettili anda zeqqlit waman ɣer yiri n yilel, deg yixemǧan n yejdi, neɣ gar yeẓra.Ma d arraw yessefṛuṛux si 15000 armi d 20000 n tmellalin.Itett izelmamen, ijeɣlalen akked yibelɛac imecṭaḥ.
+Alefsiw Alefsiw
+
+Alefsiw (Assaɣ ussnan: "Squalus squatina") d tagrawt n iweqqasen deg tewsit n ilefsiwen ("Squatina"), Tafekka n ukefsiw-a d tufrict yettidir deg yijdi n wadda waman (deg tilqi n yilel s 150 m), Talmest-a tettwasismel d talmest yettwaggzen s umihi n wengar ɣer Tiddukla tagreɣlant i taggaẓt n tgama
+
+
+Category iɣersiwen iwlalen
+Azyam Azyam
+
+Azyam d assaɣ imezdi id yesskanayen kra n temsuṭad tiwlalin d tsafin yeṭṭafaren tafesna n tzemkiyin, Llan wazal n 40 n telmas n izyamen yeẓẓunin ɣef 17 n tewsitin 
+
+Deg kra n yideggan n umadal aksum n uzyam d win yettwaččen. Maca agla ameqran s wacu yettwassen uzyam d tigzi (tiḥerci) meqqren ayen yeǧǧan afgan ad t-yessexdem i wsedhu d wurar 
+Tasiwelt n uẓar Tasiwelt n uẓar
+
+Tasiwelt n uẓar d yiwet taɣara iwakken ad n semmi i ufaris yettwelqeḍen neɣ yettwaxdamen deg yiwen amkan aguccal, s tṛumit qaren-as "appelation d'origine".Tafekka talsant Tafekka talsant
+
+Tafekka talsit d igmamen yettilin deg ufgan, Yal agman s twuri-ynes
+
+Star Wars Star Wars
+
+Star Wars ur n i fkan tawtilt imi seg later atan mazal azaran ahat kecmen talalit uqbel Darth Vader azal ar n Lucasfilm d wid akk anda George Lucas.
+Axennaq n Sidi Naji Axennaq n Sidi Naji
+
+Axennaq n Sidi Naji (s tefransist: "Khenguet Sidi Nadji"), d taɣiwant n twilayt n Tibeskert, zedɣen-tt 3,040 n yimezdaɣen. 
+Ḥemmam Debbaɣ Ḥemmam Debbaɣ
+
+Ḥemmam Debbaɣ (s tefrensist: "Hammam Debbagh"), d taɣiwant n Galma, zedɣen-tt 16.391 n yimezdaɣen. 
+Buqayed Buqayed
+
+Buqayed, d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 8.843 n yimezdaɣen. 
+Mɛaḍid Mɛaḍid
+
+Mɛaḍid d ywiet tɣiwant n twilayt n Temsilt. Deg 2008, ɣur-es azal n 22.274 imezdaɣ.
+Ɛemmari Ɛemmari
+
+Ɛemmari (s tefrensist: "Ammari"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 7,841 n yimezdaɣen.
+Recgun Recgun
+
+Recgun neɣ Arecgun/Arecgul (tafrensist: "Rachgoun"), d taddart di tɣiwant n Bni Ṣaf di twilayt n Ɛin Timucent, zedɣen-tt azal n 2000 n yimezdaɣen yerna tusa-d af yeɣzer n Tafna. Mechur-tt af yeftisen-is yerna teqreb Takembrit aydeg tella tamanaɣt n ugellid amaziɣ Sifaqs. 
+Taqeṛṛabt Taqeṛṛabt
+
+Taqeṛṛabt d yiwet taddart n tɣiwant n Yiɣil Ɛli.
+Butlilis Butlilis
+
+Butlilis (s tefrensist: Boutlelis), d taɣiwant n twilayt n Wehran, zedɣen-tt 23.920 n yimezdaɣen. 
+Iɣasiren Iɣasiren
+
+Iɣasiren (s tefransist: Ghasira), d taɣiwant n twilayt n Tbatnet, zedɣen-tt 7.327 n yimezdaɣen. 
+
+Tadayṛa n At Wertilan Tadayṛa n At Wertilan
+
+At Wertilan d asun i d-yezgan deg tama ufella n ugezdu n Sṭif. Imezdaɣ-is akk d Iqbayliyen
+
+At Wertiran d asun yessegrawen gar 4 n tɣiwanin:
+
+At Wertilan tetwasen s usemmiḍ yal tagrest anda tiseddarin n wezɣal ttawaḍent alma d 10 ddaw n umya (-10) rnu fellas agris, aqerrif yakk d wadfel.
+Janduba Janduba
+
+Janduba (s taɛrabt : "جندوبة"), d tamdint n utaram (lɣerb) n Tunes, tezga-d ɣef yiri n wasif n Majerda. Zedɣen-tt 43,997 n yimezdaɣen deg useggwas n 2004.
+Ṣfaqes Ṣfaqes
+
+Ṣfaqes (s tefṛensist: "Sfax"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 265,131 n yimezdaɣen.
+Munastir Munastir
+
+Munastir neɣ Mistir (s tefṛensist: "Monastir"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 71,546 n yimezdaɣen.
+Taǧnant Taǧnant
+
+Taǧnant (Djinet s tṛumit seg tasehrest taṛumit, s taɛrabt, ) d tamdint n twilayt n Bumerdas, deg Tadayra n Lburǧ n Yemnayen.
+
+Taǧnant d tamdint tamecṭuḥt yellan deg tafsirt n tadayra n Lburǧ n Yemnayen, tettwafreg sɣur entourée par Lburǧ n Yemnayen, Sidi Dawed d Ilegwaḍen. Tella ar 15 km deg Ugafa-Agmuḍ n Lburǧ n Yemnayen, tamdint tameqrant ugaren tiyaḍ nniḍen deg umkan nni, dɣa ar 25 km n udeg-aɣella n twilayt. 
+
+Tamdint tesɛa 21 966 imezdaɣen seg uddun n umezdaɣ aneggaru (2008).
+
+Ilegwaḍen Ilegwaḍen
+
+Ilegwaḍen ( s taɛrabt ; Isserbourg imi tella tasehrest taṛumit) d yiwet n temdint n twilayt n Bumerdas, deg tadayra n Lburǧ n Yemnayen.
+
+Taɣiwant tella deg Ugafa-Agmuḍ n twilayt n Bumerdas.
+Amagraman Amagraman
+
+Amagraman (Dittrichia viscosa) d imɣi i iḥemlen imeṭqan i ittuneddan. Imusnawen n yimɣan, qqaren-ed, belli seg Lazi i yed-itac, akken ad yaɣ iri n yilel agrakal akked Lurup neɣ amadal s umata. Imɣi n umagraman ittak anzi ɣer imrɣi n "buzduz" akked "taysa": Ad ttwalem seg yiwet n txerrubt i d-cetlen. Iferrawen n umagraman d izegzawen. Tizegzewt nsen ḥemqit. Mayella d talɣa nsen truḥ s teɣzef. Teɣzef i yettuferyen afray n tuɣmest deg usettu n umdan.
+
+Amagraman d awal uddis ["taguri tamawalt tuddist"] i d-ikkan seg sin n wawalen: “ < <nowiki>"</nowiki>"amager<nowiki>"</nowiki> + <nowiki>"</nowiki>aman"<nowiki>"</nowiki>: Imɣi i ittmagaren aman. Taseklut ["Ccejra"] n umagraman qqaren-as medden <nowiki></nowiki>Tamagramant<nowiki></nowiki>." <br>Awal ayi n "umagraman" d amay amgut. Amedya: amṭiq ayi yeṭṭuqet s umagraman. Amgraman ur t-itett ara lmal; am uɣelmi, am ibeqri am umaɛiz."
+
+Amagraman d imɣi i iḥemlen imeṭqan i ittuneddan (< nda) = ["ideg llan waman"]; ɣas akken tikwal ittemɣay-ed deg iyufa (< "ayafa"). Amagraman iğğuğğuy deg anebdu. Iğğeğğiyen ines werriɣet. Imɣi n umagraman izmer ad yaweṭ alammi d wazal n lmitra d wezgen deg teɣzef; mayella deg tehri, adarnuc-is, izmer ad yaweṭ alammi d lmitra. Ifrawen n umagraman tminṭaṭen am llazuq.
+
+Imɣan-is tacen: imeqq-id ɣef yiri n yilel agrakal akken i yed-imeqqi deg Lurup akken mayella tella. 
+
+
+
+Amagraman d imɣi amdawi: Ifer n umagraman iskussum tiggest (lğerḥ). Zik, m’ara yigges yemdan, deg lexla - anida ur yelli la qej la waj - ama d argaz neɣ d tameṭṭut, d aqcic neɣ d taqcict, ad iḥuf tamagramant, ad ilwu iferrawen-is, imir ad ten-ig ɣef tiggest i t-yuɣen, ad t-en-iṭṭef tiremt - akken meqqer tiggest: azal n 5 alammi d 10 n dqayq -, imir ad tekkusem tiggest ines. 
+
+Assexzen, ssexzanent medden d taɣebbart, neɣ d asɣar (n iferrawen).
+
+Aẓar n umagraman iddukul akked dwa n iḥetwacen. Ttdawin medden yes tusut, turin, tgr.
+
+Rret tamawt: Imɣi ayinni ur d-iwwi ara ad t-sxedment lxalat i irefden akked tiden i iṣṣuṭuṭen. Siwama yella s ladan n ṭbib, ɣef usexṣer ines, am tuzla n tɛebbut, iriran akked ingaẓen n wammas.
+
+Tamagramant maci d imɣi i yeggaren iẓuran lqayen. D ayesmi qqaren madden i wayen yak ur nesɛi lmeɛna neɣ ur nebni yara ɣef ṣṣeḥ: Iẓuran n tamagramant.
+Benɛeknun Benɛeknun
+
+Benɛeknun (Taɛrabt : "بن عكنون", isem aqbur : "Ben Seḥnun") d taɣiwant n twilayt n Ldzayer, zedɣen-tt 18.838 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Ben Aknoun".
+Belwizdad Belwizdad
+
+Belwizdad (Taɛrabt : بلوزداد, isem aqbur : "Lḥamma Lɛinṣer") d taɣiwant n twilayt n Ldzayer, zedɣen-tt 44.050 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Belcourt".
+Ɛin Ṭaya Ɛin Ṭaya
+
+Ɛin Ṭaya (s tefṛensist: "Aïn Taya",Taɛrabt :عين طايه ), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer, ɣef yiri n Temda n Ldzayer. Zedɣen-tt 34.501 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Rassauta".
+Drarya Drarya
+
+Drarya (s tefrensist: "Draria", Taɛrabt : "درارية"), d taɣiwant n wenẓul-utrim n twilayt n Ldzayer, zedɣen-tt 44,141 n yimezdaɣen. Tezga-a ar 10 km seg wammas n Ledzayer Tamanaɣt. 
+Mɛalma Mɛalma
+
+Mɛalma d taɣiwant n utaram (lɣerb) n twilayt n Ldzayer. Zedɣen-tt 20.758 n yimezdaɣen.
+Hrawa Hrawa
+
+Hrawa (s tefrensist: "Harraoua"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer. Zedɣen-tt 27,565 n yimezdaɣen. Tezga-d ar yiri n Ugelmim n Rɣaya.
+Rrɣaya Rrɣaya
+
+Rrɣaya (s tefrensist: "Reghaïa", Taɛrabt :"الرغاية" ), d taɣiwant n wegmuḍ (ccerq) n twilayt n Ldzayer. Zedɣen-tt 27,565 n yimezdaɣen. Tezga-d ar yiri n Ugelmim n Rɣaya. 
+Rayes Ḥamidu Rayes Ḥamidu
+
+Rayes Ḥamidu d taɣiwant n utaram (lɣerb) n twilayt n Ldzayer, tezga-d ɣef yiri n yilel. Zedɣen-tt 28,451 n yimezdaɣen.
+Ssḥawla Ssḥawla
+
+Ssḥawla (s tefṛensist: Saoula, Taɛrabt : سحاولة), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 41,690 n yimezdaɣen.
+Baba Ḥasan Baba Ḥasan
+
+Baba Ḥasan (Tafrensist : "Baba Hassen") d taɣiwant n wenẓul n twilayt n Ldzayer, tezga-d deg tidurar n Ssaḥel n Ledzayer. Zedɣen-tt 23.756 n yimezdaɣen.
+Sṭawali Sṭawali
+
+Sṭawali (Taɛrabt : سطاوالي; s tefrensist: "Staoueli"), d taɣiwant n utaram (lɣerb) n twilayt n Ldzayer, tezga-d ɣef yiri n Yilel Agrakal. Zedɣen-tt 47.664 n yimezdaɣen.
+Wlad Cbel Wlad Cbel
+
+Wlad Cbel (Taɛrabt : "أولاد الشبل", s tefṛensist: "Ouled Chebel"), d taɣiwant n wenẓul n twilayt n Ldzayer, zedɣen-tt 30.575 n yimezdaɣen.
+Wlad Fayet Wlad Fayet
+
+Wlad Fayet (s tefrensist: "Ouled Fayet"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 27,593 n yimezdaɣen. 
+Tanegmuḍt Tanegmuḍt
+
+Tanegmuḍt nettat yiwet n tmnaḍt si 16 n tmnaḍin n Merruk. Tamanaɣt-is d Wejda. 
+Tanja-Tiṭṭawen Tanja-Tiṭṭawen
+
+Tanja-Tiṭṭawen nettat d yiwet n tmnaḍt si 16 n tmnaḍin n Merruk. Tamanaɣt-is d Tanja.
+Tadla-Aẓilal Tadla-Aẓilal
+
+Tadla-Aẓilal nettat d yiwet n tmnaḍt si 16 n tmnaḍin n Merruk. Tamanaɣt-is d Ayt Mellal.
+Merrakec-Tansift Lḥawz Merrakec-Tansift Lḥawz
+
+Merrakec-Tansift Lḥawz nettat d yiwet n temnaḍt si 16 n temnaḍin n Merruk. Tamanaɣt-is d Merrakec.
+Sus-Mast-Derɛa Sus-Mast-Derɛa
+
+Sus-Mast-Derɛa nettat tella d yiwet n temnaḍt si 16 n temnaḍin tiqdimin n Merruk. Tamanaɣt-is d Agadir.
+Ameknas-Tafilalt Ameknas-Tafilalt
+
+Ameknas-Tafilalt nettat d yiwet n tmnaḍt si 16 n tmnaḍin n Merruk. Tamanaɣt-is d Ameknas.
+Tamnaḍt n Anfa Aẓeṭṭaḍ Tamnaḍt n Anfa Aẓeṭṭaḍ
+
+Anfa Aẓeṭṭaḍ nettat d yiwet n tmnaḍt si 12 n tmnaḍin n Merruk. Tamanaɣt-is d Tigemmi Tamellalt.
+Aẓeṭṭaḍ Aẓeṭṭaḍ
+
+Aẓeṭṭaḍ (Taɛrabt : "سطات" ; s tefrensist :"Settat") d yiwet temdint i-d yuzgan deg tama n uzaɣar n Yicawiyen ed Tigemmi Tamellalt deg utaram n Merruk. Deg 2014, tesɛa azal n 240,511 imezdaɣen, i wumi neqqar Iẓeṭṭaḍen.
+Sidi Raced Sidi Raced
+
+Sidi Raced (s tefrensist: "Sidi Rached"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Tipaza, zedɣen-tt 11,062 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Montebello".
+Menzel Buzeyyan Menzel Buzeyyan
+
+Menzel Buzeyyan (s tefṛensist : "Menzel Bouzaiane") d tamdint ay d-yezgan deg wammas n Tunes di twilayt n Sidi Buzid. Zedɣen-tt 7,119 n yimezdaɣen.
+Tijikja Tijikja
+
+Tijikja (Taɛrabt : "تجكجة") d tamdint n wammas n Muriṭanya. Tamdint -a d tamanaɣt n temnaḍt n Tagant d teqbilt tamaziɣt taẓnagt n Id Aw Ɛli. Zedɣen deg-s azal n 13,532 imezdaɣen. 
+Ticcit Ticcit
+
+Ticcit (Taɛrabt : "تيشيت") d tamdint n wammas n Muriṭanya. Tamdint-a tezga-d di temnaḍt n Tagant. Zedɣen-tt deg-s azal n 3,158 imezdaɣen. 
+Sidi Berrani Sidi Berrani
+
+Sidi Berrani (Taɛrabt: سيدي برّاني) d tamdint tamecṭuht n Maṣer, tezga-d deg ugafa n tmurt, ɣef yiri n Yilel Agrakal. Zedɣen-tt 14,393 n yimezdaɣen. 
+Tezga-d ar 95km seg tilisa ɣef Libya, 240km seg temdint talibit n Ṭubruq deg temnaḍt n Barqa. 
+Isuknen Isuknen
+
+Isuknen (neɣ s taɛrabt : "سوكنة‎" neɣ daɣen "Sokna"), d tamdint n wammas n Libya, yerna d yiwet temdint n tgezdut (district) n Ljufra deg temnaṭ n Fezzan ("Tafezni" s tmaziɣt taneṣlit). Zedɣen-tt 9,887 n yimezdaɣen.
+
+Yerna imezdaɣen-is ttmeslyaen s tmaziɣt i wumi neqqar Tasuknit maca ulac aṭas n wedlisen af tmeslayt-nni, ula d wemda (oasis) n Lfuqḥet tettmeslay-itt ar ass-a. 
+Ṣerman Ṣerman
+
+Ṣerman (Taɛrabt : صرمان‎ neɣ daɣen "Sorman"), d tamdint n ugafa-utrim (nord-ouest) n Libya, deg tgezdut (district) n Zzaweyya af yiri n Yilel Agrakal. Zedɣen-tt 36.707 n yimezdaɣen.
+Tamluka Tamluka
+
+Tamluka (s tefrensist: Tamlouka, Taɛrabt : تاملوكة), d taɣiwant n Galma, zedɣen-tt 30.211 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensit, llan ɣɣaren-as "Montcalm".
+Wad Znati Wad Znati
+
+Wad Znati (Tafrensist: "Oued Zenati", Taɛrabt : "وادي زناتي"), d taɣiwant n Galma, zedɣen-tt 32.870 n yimezdaɣen. 
+Necmeyya Necmeyya
+
+Necmeyya (s tefrensist: "Nechmaya", Taɛrabt : "نشماية"), d taɣiwant n Galma, zedɣen-tt 9.964 n yimezdaɣen. 
+Lḥeǧǧaǧ Lḥeǧǧaǧ
+
+Lḥeǧǧaǧ (s tefṛensist: "Hadjadj", Taɛrabt : "حجاج"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 17.330 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Bosquet".
+Ɛin Sidi Crif Ɛin Sidi Crif
+
+Ɛin Sidi Crif (s tefṛensist: "Aïn Sidi Cherif", Taɛrabt : "عين سيدي شريف"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 9.748 n yimezdaɣen. 
+Larjem Larjem
+
+Larjem (s tefrensist: "Lardjem"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 25.217 n yimezdaɣen. Zik, deg lawan n Iṭurken, qqaren-as "Bni Sliman" neɣ "At Sliman" s tmaziɣt i wumi imzedaɣen-is meslayen armi iseggwasen n 1950. 
+Sidi Bu Tuccent Sidi Bu Tuccent
+
+Sidi Bu Tuccent (s tefrensist: "Sidi Boutouchent"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 4.224 imezdaɣen. 
+Wad Lɛetmaneyya Wad Lɛetmaneyya
+
+Wad Lɛetmaneyya (Taɛrabt : "وادي العثمانية", s tefransist: "Oued Athmania"), d taɣiwant n twilayt n Mila, zedɣen-tt 80.688 n yimezdaɣen.
+Ɛin Yusef Ɛin Yusef
+
+Ɛin Yusef (s tmaziɣt : Tala n Yusef), d taɣiwant n twilayt n Tlemsan, zedɣen-tt 24.350 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Lavayssière".
+Ceṭwan Ceṭwan
+
+Ceṭwan d taɣiwant n twilayt n Tlemsan, zedɣen-tt 47.600 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Négrier".
+Bensekran Bensekran
+
+Bensekran (s tefṛensist: "Bensekrane", Tamaziɣt : At Sikren), d taɣiwant n twilayt n Tlemsan. Zedɣen-tt 13,845 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Pont de l'Isser"
+Hennaya Hennaya
+
+Hennaya d taɣiwant n twilayt n Tlemsan, zedɣen-tt 33,356 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Eugène Étienne".
+Lexrub Lexrub
+
+Lexrub (s tefrensist: "El Khroub"), d taɣiwant n Qsenṭina, zedɣen-tt 179,033 n yimezdaɣen.
+Ḥasi Lɣella Ḥasi Lɣella
+
+Ḥasi Lɣella (s tefrensist: "Hassi El Ghella"), d taɣiwant n Ɛin Timucent, zedɣen-tt 12,118 n yimezdaɣen. 
+Sidi Xlifa Sidi Xlifa
+
+Sidi Xlifa (Taɛrabt : "سيدي خليفة",s tefrensist: "Sidi Khelifa"), d taɣiwant n twilayt n Mila, zedɣen-tt 4.746 n yimezdaɣen. 
+Buɛerfa Buɛerfa
+
+Buɛerfa (s tefrensist: "Bouarfa"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Leblida, rrif yedraren n Waṭlas Ablidi. Zedɣen-tt 35,910 n yimezdaɣen.
+Muzaya Muzaya
+
+Muzaya neɣ Imuzawiyen d yiwet tɣiwant n twilayt n Leblida deg uzaɣar n Mettijet. Teggug ar 14 km si weɣrem n Blida ed 59 km ar wenẓul si Dzayer Tamanaɣt. Deg useggwas n 2008, ɣur-es azal n 52,555 imezdaɣ.
+Cebli Cebli
+
+Cebli d yiwet tɣiwant n twilayt n Leblida deg uzaɣar n Mettijet. Teggug ar 23 km si weɣrem n Blida ed 29 km ar wenẓul si Dzayer Tamanaɣt. Deg useggwas n 2008, ɣur-es azal n 29.660 imezdaɣ.
+Wlad Slama Wlad Slama
+
+Wlad Slama (s tefrensist: "Ouled Slama", Taɛrabt : "أولاد سلامة"), d taɣiwant n wegmuḍ (ccerq) n twilayt n Leblida, rrif yedraren n Waṭlas Ablidi. Zedɣen-tt 29,291 n yimezdaɣen.
+Ɛin Rummana Ɛin Rummana
+
+Ɛin Rummana (s tefrensit: "Larbaa", Taɛrabt : "عين الرمانة", Tamaziɣt : "Tala n Trummant"), d taɣiwant n utaram n twilayt n Leblida, zedɣen-tt 12,529 n yimezdaɣen.
+Wad Lɛellayeg Wad Lɛellayeg
+
+Wad Lɛellayeg d yiwet tɣiwant n twilayt n Leblida deg uzaɣar n Mettijet. Teggug ar 10 km si weɣrem n Blida ed 44 km ar wenẓul si Lezzayer Tamanaɣt. Deg useggas n 2008, ɣur-s azal n 40,710 imezdaɣ.
+Abu Nuwas Abu Nuwas
+
+Abu Nuwas al-Ḥasan ben Hani Al-Ḥakami (ilul ahat deg Baṣra neɣ deg Dimecq deg 756 – yemmut deg 814), d yiwen seg yimedyazen imeqranen akk ay yessefran s taɛṛabt takelsakt, yerna yella yessefruy, tikkal, ula s tfarsit. 
+
+Baba-s d Aɛṛab, ma d yemma-s d Tafarsit. Abu Nuwas yella yessen ad yessefru deg waṭas n tewsatin (genres) n tmedyazt taɛṛabt, yerna yeqqel mechuṛ ladɣa imi ay d-yettwabder deg Wedlis n Wagim Waḍan ed Yiwen Yiḍ.
+Iɣẓer asemmaṭ Iɣẓer asemmaṭ
+
+Iɣẓer asemmaṭ (isem-is amaynu: Wad Bbared) d taɣiwant id yezgan deg ugafa alemmas n ugezdu n Sṭif di Tmurt n Iqbayliyen deg wasun n Iɛemmucen. Deg useggas n 2008, ɣur-s azal n 2,333 imezdaɣen.
+
+Ɛin Ṭṭurk Ɛin Ṭṭurk
+
+Ɛin Ṭṭurk neɣ Tala n Ṭṭerk d yiwet taɣiwant n ugafa (nord) n twilayt n Tubiret di Tmurt n Leqbayel. Deg 2008, zeden-tt azal n 7,849 imezdaɣen.
+
+Ccerfa (Ɛennaba) Ccerfa (Ɛennaba)
+
+Ccerfa (s tefrensist: Cheurfa), d taɣiwant n Ɛennaba. Zedɣen-tt 9.875 n yimezdaɣen. 
+Santa Cruz de Tenerife Santa Cruz de Tenerife
+
+Santa Cruz de Tenerife d yiwet seg tmunaɣ n Tegzirin Tiknaṛiyin. Tezga-d deg tegzirt n Tenerife. Zedɣen-tt 221,956 n yimezdaɣen.
+Tenerife Tenerife
+
+Tenerife d nettat ay d tigzirt tameqrant akk deg Tegzirin Tiknaṛiyin. Tajumma-nnes 2.034,38 km2 (ikilumitren imkuẓen). Zedɣen-tt 906.854 n yimezdaɣen. Deg tegzirt-a ay d-tezga Santa Cruz de Tenerife, yiwet seg tmunaɣ n Tegzirin Tiknaṛiyin.
+Ingolstadt Ingolstadt
+
+Ingolstadt d taddart deg wanẓul-agmuḍ n Lalman, s tama n wasif n Danaw deg uland n Bayern. 126.076 yemdanen zedɣen deg-s (aseggas : 2011).
+Köln Köln
+
+Köln d tamdint deg wanẓul-agmuḍ n Lalman, s tama n wasif n Rhein deg uland n Nordrhein-Westfalen. 1.057.327 yemdanen zedɣen deg-s (aseggas : 2011).
+Leipzig Leipzig
+
+Leipzig d tamdint deg wegmuḍ n Lalman, s tama n wasif n Pleisse ed Weiße Elste deg uland n Saksen. 544,479 yemdanen zedɣen deg-s (aseggas : 2014).
+Dover (Iwunak Yeddukklen) Dover (Iwunak Yeddukklen)
+
+Dover, d tamdint n Yiwunak Yeddukklen. D tamaneɣt n Delaware. Zedɣen-tt 162.310 n yimezdaɣen.
+Montpelier, Vermont Montpelier, Vermont
+
+Monpelier d tamdint n ugafa-agmuḍan (nord-est) n Yiwunak Yeddukklen yerna d tamaneɣt n uwanak n Vermont. Zedɣen-tt 7.705 n yimezdaɣen.
+Grand Prairie Grand Prairie
+
+Grand Prairie d tamdint Yiwunak Yeddukklen, tezga-d deg ugafa-agmuḍan (nord-est) n Texas, zedɣen-tt 153.812 n yimezdaɣen.
+Kalitus Kalitus
+
+Dali Brahim Dali Brahim
+
+Dali Brahim (s tefrensist: "Dely Ibrahim"), d taɣiwant n ugafa n twilayt n Ldzayer, zedɣen-tt 35.230 n yimezdaɣen.
+Ddwira Ddwira
+
+Ddwira (s tefrensist: "Douéra"), d taɣiwant n wenẓul-utrim n twilayt n Ldzayer, zedɣen-tt 56.998 n yimezdaɣen.
+Ddar Lbiḍa Ddar Lbiḍa
+
+Ddar Lbiḍa (s tefrensist: "Maison Blanche", s tmaziɣt : Axxam Amellal), d taɣiwant n wegmuḍ n twilayt n Ldzayer, zedɣen-tt 80.033 n yimezdaɣen.
+Buruba Buruba
+
+Buruba (s tefrensist: "Bourouba"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 71.661 n yimezdaɣen.
+Bir Murad Rayes Bir Murad Rayes
+
+Bir Murad Rayes (s tefrensist: "Bir Mourad Raïs" neɣ "Birmandeïs"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 45.345 n yimezdaɣen.
+Berraqi Berraqi
+
+Berraqi (s tefrensist: "Baraki"), d taɣiwant n twilayt n Ldzayer, zedɣen-tt 116.375 n yimezdaɣen.
+Wad Quric Wad Quric
+
+Wad Quric d taɣiwant n twilayt n Ldzayer, zedɣen-tt 46.182 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Climat-de-France".
+Reḥmaneyya Reḥmaneyya
+
+Reḥmaneyya d taɣiwant n wenẓul-utriman n twilayt Ldzayer, zedɣen-tt 7.396 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Sainte-Amélie".
+Muḥemmadeyya Muḥemmadeyya
+
+Muḥemmadeyya d taɣiwant n twilayt n Ldzayer, zedɣen-tt 62.555 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Lavigerie".
+Maqareyya Maqareyya
+
+Maqareyya d taɣiwant n twilayt n Ldzayer, zedɣen-tt 31.453 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Leveilley".
+Sidi Mḥemmed Sidi Mḥemmed
+
+Sidi Mḥemmed d taɣiwant n twilayt n Ldzayer, zedɣen-tt 67.873 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Mustapha".
+Lḥerrac Lḥerrac
+
+Lḥerrac d taɣiwant n twilayt n Ldzayer, zedɣen-tt 48.869 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Maison-Carrée".
+Tasala Lmerja Tasala Lmerja
+
+Tasala Lmerja (s tefrensist: "Tessala El Merdja"), d taɣiwant n twilayt n Ldzayer, tezga-d deg wenẓul-utrim n twilayt n Ldzayer. Zedɣen-tt 15.847 n yimezdaɣen.
+Taqubbet Taqubbet
+
+Taqubbet (s tefrensist: "Kouba"), d taɣiwant n twilayt n Ldzayer, tezga-d deg wenẓul-agmuḍan (sud-est) n Ldzayer Talemmast. Zedɣen-tt 104.708 n yimezdaɣen.
+Lebyar Lebyar
+
+Lebyar (s tefrensist: "El Biar;"), d taɣiwant n twilayt n Ldzayer, tezga-d deg utaram (lɣerb) n Lezzayer Talemmast. Zedɣen-tt 47.332 n yimezdaɣen.
+Sidi Musa Sidi Musa
+
+Sidi Musa (s tefrensist: "Sidi Moussa"), d taɣiwant n wenẓul n twilayt n Ldzayer, tezga-d deg uzaɣar n Mettijet. Zedɣen-tt 40.750 n yimezdaɣen.
+Ḥidra Ḥidra
+
+Ḥidra (s tefrensist: "Hydra"), d taɣiwant n twilayt n Ldzayer, tezga-d deg wenẓul-utaram (sud-est) seg temdint n Ldzayer Talemmast. Zedɣen-tt 31.133 n yimezdaɣen.
+Lɛacur Lɛacur
+
+Lɛacur (s tefrensist: "El Achour"), d taɣiwant n twilayt n Ldzayer, tezga-d deg wenẓul-utaram (sud-seg) seg Ldzayer Talemmast. Zedɣen-tt 41.070 n yimezdaɣen.
+At Messus At Messus
+
+At Messus (s tefrensist: "Beni Messous"), d taɣiwant n twilayt n Ldzayer, tezga-d deg utaram n twilayt-agi. Zedɣen-tt 36.191 n yimezdaɣen.
+Bac Jerraḥ Bac Jerraḥ
+
+Bac Jerraḥ (s tefrensist: "Bachdjerrah"), d taɣiwant n twilayt n Ldzayer, tezga-d deg wenẓul-agmuḍ (sud-est) n Ldzayer Talemmast. Zedɣen-tt 93.289 n yimezdaɣen.
+Taqṣebt Taqṣebt
+
+Taqṣebt (s tefrensist: "Casbah", Taɛrabt : القصبة yettwanṭaq s umata: "Lqeṣba"), d taɣiwant n twilayt n Lezzayer, tezga-d deg ul n Ldzayer Talemmast. Zedɣen-tt 36.762 n yimezdaɣen.
+Lezzayer Talemmast Lezzayer Talemmast
+
+Lezzayer Talemmast (s tefrensist: "Alger-Centre", Taɛrabt : "الجزائر الوسطى" ), d taɣiwant n twilayt n Lezzayer, tezga-d deg ul n temdint n Lezzayer tamaneɣt. Zedɣen-tt 75 541 n yimezdaɣen.
+
+Tiṭ Tawraɣt Tiṭ Tawraɣt
+
+Tiṭ Tawraɣt (عين الصفراء, Ɛin Ṣṣsefra s taɛrabt, "Aïn Sefra" s tefrensist d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 1.023,13 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 54.229 imezdaɣ. 
+Tyiwt Tyiwt
+
+Tyiwt d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 3.720 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 6.657 imezdaɣen. 
+At Tyiwt ssawalen (meslayen) tamaziɣt di weɣrem n Tyiwt am tin i yemeslayen imezdaɣen n Busemɣun deg twilayt n Lbeyyeḍ. 
+Busemɣun Busemɣun
+
+Busemɣun d yiwet n tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 586,10 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 3.795 imezdaɣ. Akk imezdaɣen meslayen s tmaziɣt deg weɣrem n Busemɣun i wumi qqaren "Tacelḥit". 
+Megrar Megrar
+
+Megrar d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 3.720 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 4.431 imezdaɣen. At Tyiwt ssawalen (meslayen) tamaziɣt di weɣrem n Tyiwt am tin i yemeslayen imezdaɣen n Busemɣun deg twilayt n Lbeyyeḍ ed tin n Tyiwt. 
+
+Asla Asla
+
+Asla d yiwet n tɣiwant yeṭṭafaren Agezdu n Nnɛama. Ɣures 2.071,25 km2 deg tjumma-s, yerna deg 2008 ɣur-s azal n 9.879 imezdaɣ. 
+At Asla ssawalen (tt-meslayen) tamaziɣt di weɣrem am tin n Tyiwt am tin i yemeslayen imezdaɣen n Busemɣun deg twilayt n Lbeyyeḍ. 
+Diduc Murad (Qsenṭina) Diduc Murad (Qsenṭina)
+
+Diduc Murad d taɣiwant n Qsenṭina, zedɣen-tt 33.266 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Bizot".
+Édith Piaf Édith Piaf
+
+Edith Piaf (tlul s yisem n Edith Giovanna Gassion deg 19 Dujember 1915 deg Belleville, Paris - temmut deg 11 Tuber 1963 deg Plascassier), d tacennayt tafṛensist ay yeqqlen d azamul n uẓawan (lmuziga) afṛensis deg umaḍal. Gar tezlatin-nnes yettwassnen: La Vie en rose (1946), Non, je ne regrette rien (Ala, ur ndimeɣ ɣef wacemma, 1960), Hymne à l'amour (Imseɣret n tayri, 1949), Milord (1959), La Foule (Lɣaci, 1957) akked Padam … Padam … (deg 1951).
+Melbourne Melbourne
+
+Melbourne d tamdint n wenẓul-agmuḍan (sud-est) n Ustralya, tezga-d deg uwanak n Victoria. Zedɣen-tt 4.442.919 n yimezdaɣen. D nettat ay d tamdint tis snat tameqrant akk deg Ustralya.
+Adelaide Adelaide
+
+Adelaide d tamdint n wenẓul-agmuḍan (sud-est) n Ustralya, tezga-d deg uwanak n Ustralya Tanẓulant. Zedɣen-tt 1.304.600 n yimezdaɣen. D nettat ay d tamaleɣt n uwanak n Ustralya Tanẓulant.
+Manchester Manchester
+
+Manchester d tamdint n ugafa-agmuḍan (nord-est) n Langliz, tezga-d deg temnaṭ n Langliz n Ugafa-Agmuḍan. Zedɣen-tt 514.417 n yimezdaɣen. D nettat ay d tamaleɣt n taẓunt taɣermant n Manchester Ameqran.
+Cercal Cercal
+
+Cercal (s tefrensist: "Cherchell", zik : "Sersal"), d taɣiwant n twilayt n Tipaza, zedɣen-tt 48,056 n yimezdaɣen.
+
+Larhat Larhat
+
+Larhat (s tefrensit: "Larhat"), d taɣiwant n wegmuḍ (ccerq) n Tipaza. Zedɣen-tt 12.000 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Villebourg".
+
+Burkika Burkika
+
+Burkika (s tefrensist: "Bourkika"), d taɣiwant n wenẓul n twilayt n Tipaza, zedɣen-tt 22,118 n yimezdaɣen. 
+
+Dwawda Dwawda
+
+Dwawda (s tefrensit: "Douaouda"), d taɣiwant n utaram (lɣerb) n Tipaza. Zedɣen-tt 22,408 n yimezdaɣen. 
+Raḥya Raḥya
+
+Raḥya d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 2,711 imezdaɣen deg 2008.
+Meskyana Meskyana
+
+Meskyana d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 28,315 imezdaɣen deg 2008.
+Ɛin Ḥsayneyya Ɛin Ḥsayneyya
+
+Ɛin Ḥsayneyya (s tefrensist: "Aïn Hassania"), d taɣiwant n twilayt n Galma. Zedɣen-tt 7,114 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Clauzel". Deg tɣiwant-a ay illul-d Hewwari Bumedyen.
+Wlad Maḍi Wlad Maḍi
+
+Wlad Maḍi d yiwet n temdint n twilayt n Temsilt, deg tdayra n Wlad Maḍi. Deg 2008, ɣur-s azal n 7,069 imezdaɣ. Deg tɣiwant-a ay illul-d uselway Muḥemmed Buḍyaf. 
+Rabeḥ Derdar Rabeḥ Derdar
+
+Rabaḥ Derdar (ilul deg 27 Ctember 1944) d amarir n tkurt n uḍar adzayri, yurar d amḥaddi deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1967 ed 1973.
+Murad Derriǧ Murad Derriǧ
+
+Murad Derriǧ (ilul deg 20 Yebrir 1950) d amarir n tkurt n uḍar adzayri, yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1967 ed 1973.
+Arezqi Kufi Arezqi Kufi
+
+Arezqi Kufi (ilul deg 16 Yennayer 1949) d amarir n tkurt n uḍar adzayri, yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1967 ed 1973.
+Ɛebdennur Berkani Ɛebdennur Berkani
+
+Ɛebdennur Berkani d amarir n tkurt n uḍar adzayri, yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel seg 1967 ɣer 1970.
+Dris Lqulli Dris Lqulli
+
+Dris Lqulli (ilul deg 17 Nwember 1944, deg Fas, Merruk), d amarir n tkurt n uḍar ameṛṛuki, yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel gar 1967 ed 1973.
+Muḥemmed Ṭalbi Muḥemmed Ṭalbi
+
+Mḥammed Ṭalbi (ilul deg 17 Ɣuct 1948 deg temdint n Ledzayer), d amarir adzayrin tkurt n uḍar. Yurar deg teɣlamt n Yilemẓiyen Inaddalen n Leqbayel (deg 1972-1973).
+Igelmimen Imeqranen Igelmimen Imeqranen
+
+Igelmimen Imeqranen (s tanglizit: "Great Lakes"; s tefrensist: "Grands Lacs"), d igelmimen n waman iẓidanen ay d-yezgan deg ugafa-agmuḍan (nord-est) n Temrikt n Ugafa, ɣef tlisa gar Kanada ed Yiwunak Yeddukklen. Llan semmus (5) n yigelmimen imeqranen: Agelmim Superior, agelmim Michigan, agelmim Huron, agelmim Erie akked win n Ontario. D ta ay d tagrawt tameqrant akk n yigelmimen seg yidis n tjumma (superficie), yerna tajumma-nsen, s ujemmal, tuweḍ ɣer 208.610 km2 (yikilumitren imkuẓen, ma d ableɣ (volume) n waman-nsen yuweḍ ɣer 22.560 km3 (yikilumitren igasasen). Igelmimen Imeqranen jemɛen 21% seg waman iẓidanen n umaḍal.
+Agelmim Superior Agelmim Superior
+
+Agelmim Superior (s tanglizit: "Lake Superi"or; s tefṛensist: "Lac Supérieur"), d netta ay d agelmim ameqran akk deg Yigelmimen Imeqranen yellan ɣef tlisa gar Kanada ed Yiwunak Yeddukklen. Seg ugafa (nord), tḥudd-it-id temnaḍt takanadit n Ontario akked uwanak amarikani n Minnesota. Seg wenẓul (sud), ḥudden-t-id yiwunak imarikaniyen n Wisconsin ed Michigan. Agelmim n Superior d netta d agelmim ameqran akk deg umaḍal seg yidis n tjumma (superficie): 127.700 km2 (yikilumitren imkuẓen).
+Agelmim Huron Agelmim Huron
+
+Agelimim Huron d yiwen seg Yigelmimen Imeqranen ay d-yezgan gar Kanada ed Yiwunak Yeddukklen. Seg wegmuḍ (ccerq), tḥudd-it-id temnaḍt takanadit n Ontario, ma seg utaram, iḥudd-it-id uwanak amarikani n Michigan. Agelmim-a yecrek aman-nnes akked ugelmim ameqran n Michigan. Tajumma-nnes 59.596 km2 (yikilumitren imkuẓen).
+Agelmim Michigan Agelmim Michigan
+
+Agelmim n Michigan d yiwen seg Yigelmimen Imeqranen n Temrikt n Ugafa, yerna d netta ay d agelmim awḥid gar yigelmimen-a ay d-yezgan s lekmal-nnes daxel wakal n Yiwunak Yeddukklen. Agelmim-a ḥudden-t-id yiwunak n Wisconsin, Illinois, Indiana ed Michigan. Tajumma-nnes 58.000 km2 (yikilumitren imkuẓen).
+Agelmim Erie Agelmim Erie
+
+Agelmim n Erie d yiwen seg Yigelmimen Imeqranen n Temrikt n Ugafa, yezga-d ɣef tlisa gar Kanada ed Yiwunak Yeddukklen. D netta ay d agelmim amecṭuḥ akk gar Yigelmimen Imeqranen n tama-a. Seg ugafa (nord), tḥudd-it-id temnaḍt takanadit n Ontario. Seg utaram (lɣerb), iḥudd-it-id uwanak amarikani n Michigan. Seg wenẓul (sud), ḥudden-t-id yiwunak imarikaniyen n Ohio, Pennsylvania ed New York. Deg ugelmim-a ay d-zgan yiceṛcuṛen imeqranen n Niagara. Tajumma-nnes 25.744 km2 (yikilumitren imkuẓen).
+Agelmim Ontario Agelmim Ontario
+
+Agelmim Ontario d yiwen seg Yigelmimen Imeqranen n Temrikt n Ugafa ay d-yezgan ɣef tlisa gar Kanada ed Yiwunak Yeddukklen. Agelmim-a tḥudd-it-id seg ugafa (nord) temnaḍt n Ontario, ma seg wenẓul (sud), iḥudd-it-id uwanak n New York. Aman-nnes tteddun deg wasif n Saint Laurent yerna ttenɣalen deg Ugaraw Aṭlasi. Tajumma-nnes 19.500 km2 (yikilumitren imkuẓen).
+Saint Laurent (asif) Saint Laurent (asif)
+
+Saint Laurent (s tanglizit: Saint Lawrence), d asif ameqran n Temrikt n Ugafa. D netta ay yessuffuɣen aman n Yigelmimen Imeqranen ɣer Ugaraw Aṭlasi. Asif n Saint-Laurent yekka ɣef temnaḍin tikanadiyin n Ontario ed Kebek, am wakken ay yekka ɣef tlisa gar Kanada ed uwanak amarikani n New York.
+Lemdiyyet Lemdiyyet
+
+Lemdiyyet (Taɛrabt : "المدية",Tafrensist : "Médéa") d yiwet tamdint n Ledzayer deg temnaṭ n Tiṭri di tama n Waṭlas Ablidi. Yerna, tamdint n Lemdiyyet d adel-aɣella (chef-lieu) n twilayt n Lemdiyyet. Deg 2008, zedɣen-tt azal n 138,355 imezdaɣen. 
+
+Lemdiyyet tezga-d ar 50 km ɣer Lexmis n Tmelyant, 24km ar wenẓul seg Leblida ed 80km ar ugafa seg Qṣer Lbuxari. 
+Taɣiwant-a tusa-d ar ugafa-utrim (nord-ouest) n twilayt. 
+Cclef Cclef
+
+Cclef d taɣiwant ed wadeg-aɣella n twilayt n Cclef af yiri n Wasif n Ccelif ed yidurar n Warsnis. Deg 2008, zedɣen-tt azal n 178,616 imezdaɣen. Deg tallit n tuṭṭfa tarumit, llan ɣɣaren-as "Orléansville". 
+Leblida Leblida
+
+Leblida d yiwet temdint yerna d adeg-aɣella n twilayt-agini deg uzaɣar n Mettijet af yiri n yidurar n Weṭlas Ameẓyan. 
+Deg useggwas n 2008, zedɣen-tt azal n 163,586 imezdaɣen i wumi qqaren-ten "Iblidiyyen". 
+Helsinki Helsinki
+
+Helsinki d tamaneɣt n Finland, tezga-d deg wenẓul n tmurt. Zedɣen-tt 602,200 n yimezdaɣen deg useggas n 2012.
+Dallas Dallas
+
+Dallas d tamdint Yiwunak Yeddukklen, tezga-d deg ugafa-agmuḍan (nord-est) n Texas, zedɣen-tt 1,241,162 n yimezdaɣen.
+Ṭehran Ṭehran
+
+Ṭehran d tamaneɣt n Iṛan, tezga-d deg ugafa n tmurt. Zedɣen-tt 8,846,782 n yimezdaɣen deg useggas n 2015.
+Tbilisi Tbilisi
+
+Tbilisi d tamaneɣt n Jurjya, tezga-d deg tlemmast n tmurt. Zedɣen-tt 1,473,551 n yimezdaɣen deg useggas n 2012.
+Oslo Oslo
+
+Oslo d tamaneɣt n Nuṛwij, tezga-d deg wenẓul n tmurt. Zedɣen-tt 666,759 n yimezdaɣen deg useggas n 2017.
+Zagreb Zagreb
+
+Zagreb d tamaneɣt n Kruwatya, tezga-d deg ugafa n tmurt. Zedɣen-tt 688,163 n yimezdaɣen deg useggas n 2011.
+Buenos Aires Buenos Aires
+
+Buenos Aires d tamaneɣt n Terjentint, tezga-d deg ugafa-wegmuḍ n tmurt. Zedɣen-tt 3,050,728 n yimezdaɣen deg useggas n 2007.
+Kuala Lumpur Kuala Lumpur
+
+Kuala Lumpur d tamaneɣt n Malizya, tezga-d deg tlemmast n tmurt. Zedɣen-tt 1,627,172 n yimezdaɣen deg useggas n 2010.
+San José San José
+
+San José d tamaneɣt n Kusta Rika, tezga-d deg tlemmast n tmurt. Zedɣen-tt 333,981 n yimezdaɣen deg useggas n 2015.
+Tacta Tazeggaɣt Tacta Tazeggaɣt
+
+Tacta Tazugaɣt (s taɛrabt تاشتة زقاغة) d taɣiwant i yellan ar 47 km af ugafa-umalu n uzegdu n Tawilayt n Ɛin n Defla.
+
+Tantala n imezdaɣ n taɣiwant agi d Tacenwit.
+
+Taɣiwant n Tacta Tazegaɣt teɣlid g tilisa ak d uzegdu n Cclef
+Tawilayt n Cclef Tawilayt n Cclef
+
+Tawilayt n Cclef (susru [ch.lef ]), (s teɛrabt: ولاية الشلف), d yiwet n twilayat tadzayrit i yellan g ugafa-umalu n tmurt n Taziri.
+Tawilayt n Ɛin n Defla Tawilayt n Ɛin n Defla
+
+Agezdu n Tala n Defla, (neɣ Agezdu n Tala n Ulili, s taɛrabt: ولاية عين الدفلى), d yiwen Agezdu Azayri i d ɣlin g ugafa n tmurt n Taziri.Baja Baja
+
+Baja d yiwet temdint n Tunes deg twilayt n Baja ar ugafa n tmurt gar wasif n Mejerda ed yilel. Deg useggwas n 2014, zedɣen-tt azal n 109,299 imezdaɣen. 
+Indunisya Indunisya
+
+Indunisya d tamurt n wenẓul-agmuḍan (sud-est) n Asya. Tajumma-nnes 1,904,569 km2 (yikilumitren imkuẓen). Zedɣen-tt 252 n yimelyunen n yimezdaɣen. Tamaneɣt-nnes d Jakarta.
+Kurya n Wenẓul Kurya n Wenẓul
+
+Kurya n Wenẓul d yiwet tmurt n ugafa-agmuḍan n Asya, deg tzungzirt n Kurya. Zedɣen-tt azal n 48,955,203 imezdaɣen deg useggwas n 2013, tajumma-s d 99,274 km² (ikilumitren imkuẓen). 
+Finland Finland
+
+Finland s talɣa taɣezfant tagduda n finland (s tfinit : "Suomen tasavalta" ; s tsewidit : "Republiken Finland") tamurt n ugafa n Turuft,tagmamt di tdukla n turuft zedɣen-tt azal n 5,486,198 imezdaɣen deg 2015. Tamanaɣt-is d Helsinki.
+
+tezga-d rrif n yilel abaltiq deg ugabu n botnie ɣer umalu ak d ugabu n finland ɣer unzul .
+Qubrus (tamurt) Qubrus (tamurt)
+
+Qubrus d tmurt ed tegzirt i-d yezgan deg Yilel Agrakal. Tebḍa deg sin i yimuran : yiwet Tagrikit deg wenẓul, yiwet taṭerkit deg ugafa. Qubrus d amaslaḍ n Tdukli Turufit, tamanaɣt-is d Niqusya. Deg useggwas n 2015, zedɣen-tt azal n 1,141,166 imezdaɣen. 
+Kurya n Ugafa Kurya n Ugafa
+
+Kurya n Ugafa d yiwet tmurt n ugafa-agmuḍan n Asya, deg tzungzirt n Kurya. Zedɣen-tt azal n 24,457,492 imezdaɣen deg useggwas n 2013, tajumma-s d 120,540 km² (ikilumitren imkuẓen). Tamanaɣt-is d Pyongyang. 
+Nabel Nabel
+
+Nabel (s tefṛensist: "Nabeul"), d tamdint n ugafa n Tunes, tezga-d ɣef yiri n Yilel Agrakal di twilayt n Nabel. Zedɣen-tt 56,387 n yimezdaɣen.
+Midun Midun
+
+Midun (s tefṛensist: "Midoun"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d deg tegzirt Ǧerba di twilayt n Mednin. Zedɣen-tt 50,459 n yimezdaɣen.
+Mednin Mednin
+
+Mednin (s tefṛensist: "Médenine"), d tamdint n wenẓul n Tunes, tezga-d deg uzaɣar n Lǧeffret di twilayt n Mednin. Zedɣen-tt 61,705 n yimezdaɣen.
+Maṭer Maṭer
+
+Maṭer (s tefṛensist: "Mateur"), d tamdint n ugafa n Tunes, tezga-d deg twilayt n Benzart. Zedɣen-tt 31,345 n yimezdaɣen.
+Lemḍila Lemḍila
+
+Lemḍila (s tefṛensist: "Mdhila"), d tamdint n wenẓul n Tunes, tezga-d deg wenẓul n Gafṣa di twilayt n Gafṣa. Zedɣen-tt 12,383 n yimezdaɣen.
+Zerzis Zerzis
+
+Zerzis (s teɛrabt "Jerjis", s tefṛensist: "Zarzis"), d tamdint n wenẓul n Tunes, tezga-d af yiri n Yilel Agrakal deg uzaɣar n Lǧeffret di twilayt n Mednin. Zedɣen-tt 75,382 n yimezdaɣen.
+Duz Duz
+
+Duz (s tefṛensist: "Douz"), d tamdint n wenẓul n Tunes, tezga-d af yiri n Ceṭṭ Ljarid di twilayt n Qbili. Zedɣen-tt 47,182 n yimezdaɣen.
+Seg Yidurar-nneɣ Seg Yidurar-nneɣ
+
+Seg Yidurar-nneɣ d yiwet tizlit taferfanant mechurent seg Amgaru n teslullit n Ledzayer (1954–1962).
+
+Awalen imaziɣen sɣur 
+
+Awalen aɛraben sɣur Muḥemmed Lɛid Lxalifa
+Ɛuqba Ibn Nafiɛ Ɛuqba Ibn Nafiɛ
+
+Ɛuqba Ibn Nafiɛ Al-Fihri (ilul deg 622 - yemmut deg tama n Tbeskert deg 683), d ajiniṛal aɛṛab, yuzen-it wexlif umawi Muawiya Amezwaru akken ad yessiweḍ Lislam ɣer Tefriqt n Ugafa deg 670. Deg useggas-nni, yesbeded-d tamdint n Qayrawan deg Tunes. Yemmut deg yiwen n yimenɣi akked ugellid amaziɣ Aksil.
+Sidi Ɛuqba Sidi Ɛuqba
+
+Sidi Ɛuqba (s tefṛensist: "Sidi Okba"), d taɣiwant n twilayt n Tbeskert, zedɣen-tt 26.139 n yimezdaɣen. Deg temdint-a ay yettwamḍel Ɛuqba Ibn Nafiɛ. Aẓekka-nnes yezga-d deg tmesgida n temdint-a yerna ttasen-d aṭas n medden ad t-zuren.
+Wardanin Wardanin
+
+Wardanin (s tefṛensist: "Ouerdanine"), d tamdint n wegmuḍ n Tunes, tezga-d af yiri n Yilel Agrakal di twilayt n Munastir. Zedɣen-tt 18,852 n yimezdaɣen.
+Ɣardimaw Ɣardimaw
+
+Ɣardimaw (s tefṛensist: "Ghardimaou"), d tamdint n ugafa n Tunes, tezga-d af yiri n tilsa akwed Ledzayer di twilayt n Janduba. Zedɣen-tt 19,688 n yimezdaɣen.
+Zeɣwan Zeɣwan
+
+Zaɣwan (s tefṛensist: "Zaghouan"), d tamdint n ugafa-agmuḍan n Tunes di twilayt n Zaɣwan. Zedɣen-tt 16,037 n yimezdaɣen.
+Ɛin Drahem Ɛin Drahem
+
+Ɛin Drahem (s tefṛensist: "Aïn Draham"), d tamdint n ugafa-ataram n Tunes, tezga-d deg Yidurar n Xmir di twilayt n Janduba. Zedɣen-tt 40,372 n yimezdaɣen.
+Tuzer Tuzer
+
+Tuzer (s tefṛensist: "Tozeur"), d tamdint n wenẓul n Tunes, tezga-d deg wenẓul n Gafṣa di twilayt n Tuzer. Zedɣen-tt 32,400 n yimezdaɣen.
+Benzart Benzart
+
+Benzart (s tefṛensist: "Bizerte"), d tamdint n ugafa n Tunes, di twilayt n Benzart. Zedɣen-tt 142,966 n yimezdaɣen. Benzart ay d tamdint i-d yezgan ar ugafa akk deg temdinin n Tefriqt.
+Taburba Taburba
+
+Taburba (s tefṛensist: "Tebourba"), d tamdint n ugafa n Tunes, tezga-d ar 30km seg temdint n Tunes di twilayt n Manuba. Zedɣen-tt 43,499 n yimezdaɣen deg useggwas n 2004.
+Tabursuq Tabursuq
+
+Tabursuq (s tefṛensist: "Téboursouk"), d tamdint n ugafa-utrim n Tunes di twilayt n Baja. Zedɣen-tt 22,115 n yimezdaɣen deg useggwas n 2014.
+Silyana Silyana
+
+Silyana (s tefṛensist: "Siliana"), d tamdint n ugafa n Tunes, tezga-d af yiri n Wad Silyana di twilayt n Silyana. Zedɣen-tt 59,140 n yimezdaɣen.
+Sejjnan Sejjnan
+
+Sejjnan (s tefṛensist: "Sejnane"), d tamdint n ugafa n Tunes, di twilayt n Benzart. Zedɣen-tt 4,737 n yimezdaɣen.
+Sbaytla Sbaytla
+
+Sbaytla (s tefṛensist: "Sbeïtla"), d tamdint n wammas n Tunes, di twilayt n Lgasrin. Zedɣen-tt 20,253 n yimezdaɣen. Llan aṭas n texribin tirumanin deg temnaṭ-a. 
+Rades Rades
+
+Rades (s tefṛensist: "Radès"), d tamdint n ugafa-agmuḍan n Tunes, tezga-d di twilayt n Ben Ɛeruṣ. Zedɣen-tt 44,857 n yimezdaɣen.
+Qlibya Qlibya
+
+Qlibya (s tefṛensist: "Kélibia"), d tamdint n ugafa-agmuḍan n Tunes, tezga-d af yiri n Yilel Agrakal di twilayt n Nabel. Zedɣen-tt 43,209 n yimezdaɣen deg useggwas n 2004.
+Qerṭaj Qerṭaj
+
+Qerṭaj (s tefṛensist: "Carthage"), d tamdint n ugafa n Tunes, tezga-d deg ugafa-wegmuḍ seg temdint Tunes tamaneɣt di twilayt n Tunes tamanaɣt. Zedɣen-tt 15,922 n yimezdaɣen.
+Nfiḍa Nfiḍa
+
+Nfiḍa neɣ Ddar Lbay (s tefṛensist: "Enfidha"), d tamdint n twilayt n Susa. Zedɣen-tt 9,981 n yimezdaɣen.
+Aṭar Aṭar
+
+Aṭar (Taɛrabt :أطار) d tamdint n ugafa n Muriṭanya. Tamdint-a tezga-d di temnaḍt n Wedrar. Zedɣen-tt deg-s azal n 26,144 imezdaɣen.
+Emmanuel Kant Emmanuel Kant
+
+Emmanuel Kant d afelsuf almani (illul-d deg 22 yebrir 1724 di Königsberg - immat deg 12 furar 1804 di Königsberg, Prusen agiuḍan). Yettwasnen am tmeddurt talemmast n tfelsuft tatrart. 
+Hillary Clinton Hillary Clinton
+
+Hillary Diane Rodham Clinton d tasertayt tamerikanit seg Ukabar Amegday, d tamazwart i tfernin tiselwayanin n Yiwunak Yeddukklen n 2016. 
+Ass-agi tella d tamurt n uwanak i tasertit tawerdanit n Yiwunak Yeddukklen. 
+Umuɣ n timdinin n Merruk Umuɣ n timdinin n Merruk
+
+I umuɣ s amizwer n amḍan n imezdaɣen af timdinin timeqqṛanin n Merruk, ẓeṛ umuɣ n timdinin timeqqṛanin n Merruk.
+
+
+
+Xuribga Xuribga
+
+Xuribga (s tefṛensist: "Khouribga"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Ayt Mellal-Xnifra. Zedɣen-tt 210,000 n yimezdaɣen.
+Accawen Accawen
+
+Accawen (s tefṛensist: "Chefchaouen"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Ṭanja-Tiṭṭawin-Lḥusima. Zedɣen-tt 35,709 n yimezdaɣen.
+Tijdit (Lḥusima) Tijdit (Lḥusima)
+
+Tijdit, neɣ Taɣzut s tarifit, neɣ Biya (s taɛrabt : "Lḥusima", s tefṛensist: "Al Hoceïma"), d tamdint n ugafa n Umerruk, tezga-d deg temnaṭ n Ṭanja-Tiṭṭawin-Lḥusima deg Arrif. Zedɣen-tt 100,000 n yimezdaɣen.
+Ayt Mellal Ayt Mellal
+
+Ayt Mellal (s tefṛensist: "Beni Mellal"), d tamdint n wammas n Merruk, tezga-d deg temnaṭ n Ayt Mellal-Xnifra. Zedɣen-tt 489,248 n yimezdaɣen.
+Asfi Asfi
+
+Asfi (s tefṛensist: "Safi"), d tamdint n utaram n Merruk, tezga-d deg temnaṭ n Merrakec-Asfi. Zedɣen-tt 600,000 n yimezdaɣen.
+Bulman Bulman
+
+Bulman (s tefṛensist: "Boulemane"), d tamdint n wammas n Merruk, tezga-d deg temnaṭ n Fas-Bulman. Zedɣen-tt 6,910 n yimezdaɣen.
+Azemmur (Amerruk) Azemmur (Amerruk)
+
+Azemmur (s tefṛansist: "Azemmour"), d tamdint n utaram n Umerruk, tezga-d deg temnaṭ n Anfa-Aẓeṭṭaḍ. Zedɣen-tt 36,722 n yimezdaɣen.
+Sefru Sefru
+
+Sefru (s tefṛensist: "Séfrou"), d tamdint n wammas n Merruk af yiri n Weṭlas Alemmas, tezga-d deg temnaṭ n Fas-Bulman. Zedɣen-tt 64,006 n yimezdaɣen.
+Tiznit Tiznit
+
+Tiznit (s taɛrabt : تزنيت ) d tamdint tamaziɣt tezga deg wenẓul n tamurt n Ameṛṛuk , g tasga n Sus-Massa .
+
+Imezdaɣen n Tiznit ttmeslayen s tmaziɣt tacelḥit. Ugar n 74 699 n medden zeddɣen deg temdint n Tiznit .
+
+Imezdaɣen qqaren-asen n Tiznit "" Ait Tznit "" s tamaziɣt .
+
+Tiznit tezga-d 15 km seg Agaraw Aṭlasi , g 81 km i anẓul n Agadir , g 203 km  i anẓul n Mugadur, g 271 km i anẓul utrim n Amurakuc d g 553 km i anẓul n Rbaṭ .
+
+S abrid, Tiznit tella g 99 km i Agadir, g 271 km i Mugadur, g 320 km i  Amurakuc d g 620 km i Rbaṭ .
+Imi n Tanut Imi n Tanut
+
+Imi n Tanut (s tefṛensist: "Imintanoute"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Merrakec-Asfi. Zedɣen-tt 17,051 n yimezdaɣen.
+Sla Sla
+
+Sla (s tefṛensist: "Salé"), d tamdint n utaram n Merruk, tezga-d deg temnaṭ n Rbaṭ-Sla-Qniṭra. Zedɣen-tt 890,403 n yimezdaɣen.
+Tawnat Tawnat
+
+Tawant (s tefṛensist: "Taounate"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Fas-Meknas. Zedɣen-tt 36,587 n yimezdaɣen.
+Tarudant Tarudant
+
+Tarudant (s tefṛensist: "Taroudant"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Sus-Mast deg uzaɣar n sus. Zedɣen-tt 71,133 n yimezdaɣen.
+Ayt Mellul Ayt Mellul
+
+Ayt Mellul (s tefṛensist: "Aït Melloul"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Sus-Mast deg uzaɣar Sus. Zedɣen-tt 130,370 n yimezdaɣen.
+Meknas Meknas
+
+Meknas (s tefṛensist: "Meknès"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Fas-Meknas. Zedɣen-tt 850.000 n yimezdaɣen.
+Jrada Jrada
+
+Jrada (s tefṛensist: "Jérada"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 43,916 n yimezdaɣen.
+Xmisat Xmisat
+
+Xmisat (s tefṛensist: "Khémisset"), d tamdint n wammas n Merruk, tezga-d deg temnaṭ n Rbaṭ-Sla-Qniṭra. Zedɣen-tt 185,124 n yimezdaɣen.
+Xnifra Xnifra
+
+Xnifra (s tefṛensist: "Khénfira"), d tamdint n wammas n Merruk, tezga-d deg temnaṭ n Ayt Mellal-Xnifra. Zedɣen-tt 270,000 n yimezdaɣen.
+Imetɣaren Imetɣaren
+
+Imetɣaren (s taɛrabt: "Errachidia"), d tamdint n wenẓul n Umerruk, tezga-d deg temnaṭ n Derɛet-Tafilalt. Zedɣen-tt 80,100 n yimezdaɣen.
+Lefjuj Lefjuj
+
+Lefjuj (Tafrensist : "El Fedjoudj", Tamaziɣt : "Tizza") d taɣiwant n twilayt n Galma. Zedɣen-tt azal n 9.122 imezdaɣen deg useggwas n 2008. 
+Um Lebwaqi Um Lebwaqi
+
+Um Lebwaqi (Taɛrabt :"أم الـبـواقي" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 80,359 imezdaɣen deg 2008.
+At Zway At Zway
+
+At Zway (Taɛrabt :"اولاد زواي" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 4,998 imezdaɣen deg 2008.
+Lebḥir Ccergi Lebḥir Ccergi
+
+Lebḥir Ccergi (Taɛrabt :"بحير الشرقي" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 1,904 imezdaɣen deg 2008.
+Berric Berric
+
+Berric (Taɛrabt :"بريش") d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 17,609 imezdaɣen deg 2008.
+Leblala Leblala
+
+Leblala (Taɛrabt :"البلالة" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 2,477 imezdaɣen deg 2008.
+Lḥermaleyya Lḥermaleyya
+
+Lḥermaleyya (Taɛrabt :"الحرملية" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 8,036 imezdaɣen deg 2008.
+Fkirina Fkirina
+
+Fkirina (Taɛrabt :"فكيرينة" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 12,318 imezdaɣen deg 2008.
+Zzurg Zzurg
+
+Zzurg (Taɛrabt :"الزرق" ) d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt azal n 2,281 imezdaɣen deg 2008.
+Tifkert Tifkert
+
+Tifkert (Taɛrabt: "عين فكرون"), d taɣiwant n twilayt n Um Lebwaqi, zedɣen-tt 55,282 n yimezdaɣen. 
+Beccar Beccar
+
+Beccar (s Taɛrabt: "بشار"), d tamanaɣt n twilayt n Beccar. Zedɣen-tt 165,627 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Colomb-Béchar".
+Iqnadsen Iqnadsen
+
+Iqnadsen (s Taɛrabt: "قنادسة"), d taɣiwant n twilayt n Beccar. Zedɣen-tt 14,060 n yimezdaɣen. 
+Kerzaz Kerzaz
+
+Kerzaz (s Taɛrabt: "كرزاز"), d taɣiwant n twilayt n Beccar. Zedɣen-tt 10,076 n yimezdaɣen. 
+Izeggaɣen Izeggaɣen
+
+Izeggaɣen (s Taɛrabt: "االحمر"), d tamanaɣt n twilayt n Beccar. Zedɣen-tt 2,061 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "El Ahmar".
+Igli (taɣiwant) Igli (taɣiwant)
+
+Igli (s Taɛrabt: "إقلي"), d taɣiwant n twilayt n Beccar ɣef ugersif n yiɣzer n Zusfana d yiɣzer n Gir. Zedɣen-tt 6,833 n yimezdaɣen. Imezdaɣen n Igli d icelḥiyen i yemeslayen Tabledit. 
+Bukayes Bukayes
+
+Bukayes (s Taɛrabt: "بوقايس"), d taɣiwant n twilayt n Beccar. Zedɣen-tt 937 n yimezdaɣen. Imezdaɣen n Bukayes d icelḥiyen i yemeslayen Tabledit. 
+Timudi Timudi
+
+Timudi (s Taɛrabt: "تيمودى"), d taɣiwant n twilayt n Beccar. Zedɣen-tt 2,452 n yimezdaɣen. 
+Umiɣil Umiɣil
+
+Umiɣil neɣ Muɣal (s Taɛrabt: "موغل"), d tamanaɣt n twilayt n Beccar. Zedɣen-tt 616 n yimezdaɣen, akk deg-sen meslayen tamaziɣt. 
+At Ixlef At Ixlef
+
+At Ixlef neɣ Ayt Ixlef (s Taɛrabt: "بنى يخلف"), d tamanaɣt n twilayt n Beccar. Zedɣen-tt 2,488 n yimezdaɣen. 
+
+Fruḥa Fruḥa
+
+Fruḥa (s tefrensist: "Froha"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 13,769 n yimezdaɣen.
+Benyan Benyan
+
+Benyan (s tefrensist: "Benian"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 5,581 n yimezdaɣen. 
+Welten Welten
+
+Welten d yiwet n tɣiwant n twilayt n Temsilt, deg tdayra n Busɛada. Deg 2008, ɣur-es aval n 2,289 imezdaɣen. 
+Busɛada Busɛada
+
+Busɛada d ywiet tɣiwant n twilayt n Temsilt, deg tdayra n Busɛada, yerna adeg-aɣella-s d Leqṣer n Busɛada di tama-yagi. Deg 2008, ɣur-es azal n 125.573 imezdaɣen. 
+Ɛin Zzitun Ɛin Zzitun
+
+Ɛin Zzitun (s tefrensist: "Aïn Zitoun"), d taɣiwant n Um Lebwaqi, zedɣen-tt 5,948 n yimezdaɣen.
+Yabus Yabus
+
+Yabus (s tefrensist: "Yabous"), d taɣiwant n twilayt n Txencelt, zedɣen-tt 10,402 n yimezdaɣen. 
+Bir Ljir Bir Ljir
+
+Bir Ljir (s tefrensist: "Bir El Djir"), d taɣiwant n twilayt n Wehran, zedɣen-tt 171,883 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Arcole".
+Lkerma Lkerma
+
+Lkerma (s tefrensist: "El Karma"), d taɣiwant n twilayt n Wehran, zedɣen-tt 25,636 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Camp du Figuier" dɣa "Valmy".
+Tagast (Suq Ahṛas) Tagast (Suq Ahṛas)
+
+Tagast (s teɛrabt : "Suq Ahras", s tefrensist : "Souk Ahras"), d taɣiwant n twilayt Suq Ahras, zedɣen-tt 155,259 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Souk Ahras".
+Ɛbadla Ɛbadla
+
+Ɛbadla (s Taɛrabt: "العبادلة"), d tamanaɣt n twilayt n Beccar. Zedɣen-tt 13,636 n yimezdaɣen. 
+Aneẓruf Utrim Aneẓruf Utrim
+
+Aneẓruf Utrim (neɣ Tiniri Tutrimt, Ṣṣeḥra Taɣerbit), d akal/tamurt ay d-yezgan deg utaram n Tefrikt n Ugafa. Tajumma-nnes 266.000 km2 (ikilumitren imkuẓen). Zedɣen-tt 513.000 n yimezdaɣen. Zik tella teṭṭef-itt Spenyul. Deg 1975, ffɣen-tt Yespenyuliyen dɣa teṭṭef-itt tmurt n Amerruk. Tamaneɣt-nnes d Leɛyun. D aselway n tegduda taɛrabt tamegdayt d Muḥemmed Ɛebdelaɛziz.
+Aneẓruf Ameqran Aneẓruf Ameqran
+
+Aneẓruf Ameqran d taneẓruft tameqrant akk deg umaḍal, yezga-d deg ugafa n Tefriqt yerna tajumma-ynes tesduri ugar n 8 n imelyunen n ikilumitren imkuẓen. Aneẓruf Ameqran yeṭṭef akal seg Aṭlas aneẓraf arma d Tafriqt taberkant, seg Ugaraw Aṭlasi arma d Ilel Azeggaɣ. 
+Timura ay yettekkan deg-s nitenti d Amerruk, Aneẓruf Utrim, Dzayer, Tunes, Libya, Maṣer, Sudan, Ččad, Nijir, Mali akked Muriṭanya. Aneẓruf Ameqran d tama yekkawen mliḥ (ala 100 n yimilimitren n wenẓar ay d-yekkaten deg-s yal aseggas), dɣa d aya ay t-yejjan ad yeqqim d akal ur yeṣliḥen i tfellaḥt. Imezdaɣen-nnes zemren ad sfullḥen ala cwiṭ-nni n wakal ay d-yezzin i yimedwen (oasis), anda ay ttɣelliten tizdayin n tini. Ala d Nil ay d asif ameqran ay izegren Aneẓruf.
+
+Talemmast ed wegmuḍ (ccerq) n Uneẓruf Ameqran d akal ɛlayen, yeccuṛ d idraren yerna llan deg-s ula d kra n yiburkanen (Ahaggar, Ayer ed yedraren n Tibesti). Deg ugafa (nord) n Uneẓruf Ameqran, yella yejdi (Areg Ameqran) ed yizuɣar imeqranen yeccuṛen d aẓru. Azal n umelyun ed wezgen n medden ay izedɣen deg Uneẓruf Ameqran. Zik, amur ameqran seg-sen llan d imeksawen imessukal, maca ass-a, tenqes tkessawt deg tama-a, yerna amur ameqran seg yimezdaɣen zedɣen deg yimukan irekden. Tamguri (industrie) icaɛen deg Uneẓruf Ameqran nettat d assuffeɣ n upitṛul ed lgaz.
+
+Aṭas n yeɣsan n yiɣersiwen akked tɣawsiwin ay sqedcen yemdanen n zik ay d-ufan deg Uneẓruf Ameqran, yerna aya yesskanay-d tama-a tella d tazegzawt yerna tejjujjeg deg-s tmeddurt deg tallit n uzarmezruy. Deg tallit n Wegles (Antiquité), Aneẓruf Ameqran yebda yettkaw. Imezdaɣen-nnes ay yellan, naqal, kessen iysan (iɛudiwen), jjan iɣersiwen-a, yerna bdan kessen ileɣman deg lqern wis sin qbel Sidna Ɛisa. Seg lqern wis 7 sdeffir Sidna Ɛisa, d asawen, bdan Yinselmen keccmen-d ɣer Uneẓruf Ameqran yerna skecmen amur ameqran seg yimezdaɣen-nnes ɣer Lislam. Deg lqern wis 19, Ifṛensisen ssawḍen ad ṭṭfen cwiṭ, cwiṭ, akal n Uneẓruf Ameqran, yerna deg 1894, uwḍen arma ay d Timbuktu (deg Mali). Deg 1884, Ispenyuliyen ṭṭfen akal n Uneẓruf Utrim. Deg 1911-1912, Iṭalyaniyen ṭṭfen Libya. Maca gar 1951 ed 1976, akk timura n Uneẓruf Ameqran ffɣent-tent tmura tuṛufiyin.
+Tigzirt n Ugafa Tigzirt n Ugafa
+
+Tigzirt n ugafa (s tanglizit: "North Island"), d yiwet seg snat-nni n tegzirin timeqranin n Ziland Tamaynut. Tajumma-ynes 113.729 km2 (yikilumitren imkuẓen). Zedɣen-tt 3.328.700 n imezdaɣ. Deg tegzirt-a ay d-tezga Wellington igan d tamenrut (tamaneɣt) n tmurt.
+Qamar Qamar
+
+Tigzirin n Qamar d tamurt ay d-yezgan deg wenẓul-agmuḍan n Tefriqt. Tajumma-nnes 2.034 km2 (ikilumitren imkuẓen). Zedɣen-tt 1.071.229 n yimezdaɣen (2017). Tamaneɣt-nnes d Moroni.
+Moroni Moroni
+
+Moroni d tamaneɣt n Tegzirin n Qamar. Zedɣen-tt 60.200 n yimezdaɣen. Ula d tigzirt ayɣef d-tezga isem-nnes Moroni.
+Long Island Long Island
+
+Long Island (anamek s tmaziɣt: "Tigzirt Taɣezfant"), d tigzirt ay d-yezgan deg wegmuḍ (ccerq) n temdint n New York (yerna aḥric seg temdint-a yezga-d deg-s). Tajumma-nnes 3.629 km2 (yikilumitren imkuẓen). Zedɣen-tt 7.559.372 n yimezdaɣen.
+Seyul Seyul
+
+Seyul d tamaneɣt n Kurya n Wenẓul yerna d nettat ay d tamdint tameqrant akk deg tmurt-a. Zedɣen-tt 10,140,000 n yimezdaɣen (s yegmamen ay d-yezzin fell-as).
+Belfast Belfast
+
+Belfast d tamaneɣt n Irland n Ugafa di Tgelda Yeddukklen. Zedɣen-tt 483.418 n yimezdaɣen.
+Tala n Teɣrudt Tala n Teɣrudt
+
+Tala n Teɣruṭ d yiwet taɣiwant deg twilayt n Burǧ Bu Ɛerirǧ, di tdayra n Tikstar. Deg 2008, zedɣen-tt azal n 12,906 imezdaɣen. 
+Ḥaleb Ḥaleb
+
+Ḥaleb (neɣ s taɛrabt : "ﺣﻠﺐ", "Halep" s taṭerkit) d tamdint n ugafa n Surya, nettat ay d tamdint yugaren tiyaḍ di tmurt-nni, zedɣen-tt 2,132,100 n yimezdaɣen di 2004 sdat Wemagaru aɣarim asuri.
+Naqal di tmiḍi tis 20, llant deg-s tigrawin tintin am Waɛraben, Iṭerkmanen, Ikurdiyen, Acuriyen (Isuryanen) , Arminiyen, Ičerkesen, Udayen ed Igrikiyen
+Yerna Ḥaleb tettwasnen s Teqṣebt-is ed uṣabun-is. 
+Tin Buktu Tin Buktu
+
+Tin Buktu (s tmahaq : "Tin Buktu", Taẓnagt : "Timbukt", s tefrensist: "Tombouctou") d tamdint n Uẓawad deg tuṭṭfa n uwanak n Mali. Zedɣen-tt azal n 54,453 imezdaɣen. 
+Game of Thrones Game of Thrones
+
+Game of Thrones ("Game of Thrones") sulfent-i-d imarikaniyen aseggas n 2011 sɣur George RR Martin. Iḥekku-d taqsit n twaculin yebɣan ad ḥekmen Westeros, gar At Stark, Lannister, Baratheon. Jon Snow i ikecmen ar "taɛsast n yiḍ" (Night's watch). Akk d Daenerys Targaryen di Essos, tesɛa 3 les dragons. yellis n uselway n Westeros i-t-wanɣan. nettat tebɣa ad tuɣal tageldunt.
+
+Taqsit agi tesɛa aṭas "les personnages", gar-asen:
+
+At Stark: Ticin di Winterfell
+
+Eddard , tameṭṭut-is Catelyn, arraw-nsen : Robb, Sansa, Arya, Bran, Rikon. Akk d Jon Snow.
+
+At Lannister : Tiicin di Casterly Rock
+
+Tywin akk d warraw-is : Cersei, Jaime, Tyrion. Cercei akud Jaime sɛan arraw-nsen stufra; Joffrey, Myrcella akud Tommen
+
+At Targaryen: ala Daenerys id mazal
+
+Daenerys akk d gma-s Viserys, babat-sen d Aerys II, sɛan gmat-sen ameqqran yemmut; Rhaegar. yella daɣen Mestre Aemon di taɛsast n yiḍ (La garde de nuit).
+
+At Baratheon:
+
+Renly akud sin wetmaten imuqranen; Robert, Stannis yesaa yellis Shireen.
+
+At Tyrell : di High Garden
+
+Olenna, mmi-s d Mace, arraw n mmi-s d Margaery akk d Loras.
+
+At Greyjoy: The iron islands 
+
+Balon greyjoy. Arraw-is d Theon akk d Yara. Yesɛa gma-s amecṭuḥ; Euron.
+
+At Mormont:
+
+Jorah akk d baba-s Geor. Tella yiwet taqcic tameẓyant isem-is Lyanna.
+
+Wiyaḍ:
+
+Melissandre, Sandor Clgane, Missandei, Khal Drogo, Mestre Pycelle, Mestre Luwin, Sam Tarly, Brienne n Tarth.
+Łobez Łobez
+
+Łobez d taddart deg wanẓul-agmuḍ n Lapologne. 10.409 yemdanen zedɣen deg-s (aseggas : 2015).
+Lhacmiyya Lhacmiyya
+
+Lhacmiyya d yiwet n tɣiwant n Tmurt n yiqbyliyen id yezgan deg twilayt n Tubiret. Deg 2008, zedɣen-tt azal n 17322 n yimezdaɣ.
+Bir Ɣbalu Bir Ɣbalu
+
+Bir Ɣbalu d yiwet taɣiwant n utaram (ouest) n twilayt n Tubiret di Tmurt n Leqbayel. Deg 2008, zeden-tt azal n 11,016 imezdaɣen.
+Galisya Galisya
+
+Galisya d timetti tafulmant (communauté autonome) n Spenyul, tezga-d deg ugafa-agmuḍan (nord-west) n tmurt. Tajumma-nnes 29.574,4 km2. Zedɣen-tt 2.748.695 n yimezdaɣen. Tamaneɣt-nnes d Santiago de Compostela.
+Xmisa Xmisa
+
+Xmisa (s tefrensist: "Khemissa"), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 3.517 n yimezdaɣen. Deg tallit n tuṭṭfa tarummantt, llan ɣɣaren-as 'Thubursicu Numidarum'.
+Tifac Tifac
+
+Tifac (s taɛrabt: "تيفاش" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 6,037 n yimezdaɣen. 
+Ddriɛa Ddriɛa
+
+Ddriɛa (s tefrensist: "Dréa" neɣ s taɛrabt : "الدريعة"), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 6,408 n yimezdaɣen g useggwas n 2008. 
+Ɛin Ṣendel Ɛin Ṣendel
+
+Ɛin Ṣendel (s tefrensist: "Aïn Sandel" neɣ s taɛrabt : "عين صندل"), d taɣiwant n Galma, zedɣen-tt 4.760 n yimezdaɣen. 
+Sidi Mezɣic Sidi Mezɣic
+
+Sidi Mezɣic (s tefrensist: "Sidi Mezgiche"), d taɣiwant n Skikda, zedɣen-tt 25.593 n yimzadaɣen.
+Tamalus Tamalus
+
+Tamalus (s tefrensist: "Tamalous"), d taɣiwant n Skikda, zedɣen-tt 51.262 n yimzadaɣen. 
+Qenwaɛ Qenwaɛ
+
+Qenwaɛ (s tefrensist: "Kanoua"), d taɣiwant n Skikda, zedɣen-tt 6.995 n yimzadaɣen. 
+Um Ṭṭub Um Ṭṭub
+
+Um Ṭṭub (s taɛrabt: "أم الطوب"), d taɣiwant n Skikda, zedɣen-tt 34.458 n yimzadaɣen. 
+Xeneq Mayyum Xeneq Mayyum
+
+Xeneq Mayyum (s taɛrabt: "خنق مايوم"), d taɣiwant n Skikda, zedɣen-tt 4,587 n yimzadaɣen. 
+Ɛin Zwit Ɛin Zwit
+
+Ɛin Zwit (s taɛrabt: "عين زويت"), d taɣiwant n Skikda, zedɣen-tt 1,977 n yimzadaɣen. 
+Ɛin Qecra Ɛin Qecra
+
+Ɛin Qecra (s taɛrabt: ""عين قشرة""), d taɣiwant n Skikda, zedɣen-tt 24,572 n yimzadaɣen. 
+Ɛin Cercar Ɛin Cercar
+
+Ɛin Cercar (s taɛrabt: "عين شرشار"), d taɣiwant n Skikda, zedɣen-tt 15,725 n yimzadaɣen. 
+Ccrayeɛ Ccrayeɛ
+
+Ccrayeɛ (s taɛrabt: "الشرائع"), d taɣiwant n Skikda, zedɣen-tt 18,759 n yimzadaɣen. 
+Ṣaleḥ Bu Ccɛur Ṣaleḥ Bu Ccɛur
+
+Ṣaleḥ Bu Ccɛur (s taɛrabt: "صالح بو الشعور"), d taɣiwant n twilayt n Skikda, zedɣen-tt 29,764 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Gastonville".
+Bin Lwidan Bin Lwidan
+
+Bin Lwidan (s taɛrabt: بين الويدان), d taɣiwant n Skikda, zedɣen-tt 21.629 n yimzadaɣen. 
+Leɣdir Leɣdir
+
+Leɣdir (s taɛrabt: "الغدير"), d taɣiwant n Skikda, zedɣen-tt 6,458 n yimzadaɣen. 
+Zrizer Zrizer
+
+Zrizer (s tefrensist: "Zerizer"), d taɣiwant n Ṭṭaref, zedɣen-tt 11.064 n yimezdaɣen. 
+Nadruma Nadruma
+
+Nadruma (s tmaziɣt : Indrumen neɣ Tandrumt), d taɣiwant n twilayt n Tlemsan, zedɣen-tt 32,498 n yimezdaɣen. 
+Sanya Sanya
+
+Sanya (s tefrensist: "Es-Senia"), d taɣiwant n twilayt n Wehran, zedɣen-tt 97.500 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "La Sénia".
+Mecreyya Mecreyya
+
+Mecreyya (s tefrensist : Mecheria, s taɛrabt : مشرية) d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 736.25 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 66,465 imezdaɣen. 
+Ṣfiṣfa Ṣfiṣfa
+
+Ṣfiṣfa (s tefrensist : Sfissifa, s taɛrabt : سفيسيفة) d yiwet tɣiwant n twilayt n Nnɛama. Tesɛa 2 347.5 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 7,210 imezdaɣen. 
+Sidi Uryac Sidi Uryac
+
+Sidi Uryac (s tefrensist: "Sidi Ouriache"), d taɣiwant n Ɛin Timucent, zedɣen-tt 6.082 n yimezdaɣen.
+Tiliẓṛi n Tmaziɣt Tiliẓṛi n Tmaziɣt
+
+Berbère Télévision neɣ Berbère TV d tilizri tazzayrit s tutlayt n teqbaylit. Le siège-ines yezga-d di temdint n Montreuil g tmurt n Fransa.At Busɛid At Busɛid
+
+At Busɛid (tafrensist : "Beni Boussaid") d taɣiwant n twilayt n Tlemsan, zedɣen-tt 13,182 n yimezdaɣ. Deg tallit n tuṭṭfa tafrensist llan ttmeslayen s tmaziɣt s akkin Edmond Destaing deg udlis i umi qqaren "Etude sur le dialecte des Beni Snous" 
+
+Ar ussan-a, iwessaren zeddigh ssawalen s yis-s, imezyanen ahae... 
+Stukulm Stukulm
+
+Tamdint n Stukulm d tamanaɣt n tmurt n Sswid, din yettili unabaḍ akked ubarlman iswidiyen ; ternuḍ ula d tamdint n ugellid Carl wiss XVI.
+At Ǧaɛfer At Ǧaɛfer
+
+At Ǧaɛfer d yiwet taɣiwant n Tamurt Iqbayliyen deg twilayt n Burǧ Bu Ɛririǧ, di tdayra n At Ǧaɛfer. Deg 2008, zedɣen-tt azal n 7998 imezdaɣ.
+
+
+Burǧ Uxriṣ Burǧ Uxriṣ
+
+Burǧ Uxriṣ d taɣiwant n wenẓul (sud) n ugezdu n Tubiret, zedɣen-tt 10.467 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Bordj Oukhriss".
+Dirra Dirra
+
+Dirra d taɣiwant n wenẓul (sud) n ugezdu n Tubiret, zedɣen-tt 13.209 n yimezdaɣen.
+Suq Lexmis Suq Lexmis
+
+Suq Lexmis d taɣiwant n utaram (lɣerb) n ugezdu n Tubiret, zedɣen-tt 8,003 n yimezdaɣen. 
+Ɛin Leḥjar Ɛin Leḥjar
+
+Ɛin Leḥjar d taɣiwant n utaram (lɣerb) n ugezdu n Tubiret, zedɣen-tt 9,260 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Aboutville".
+Zzituna Zzituna
+
+Zzituna (s tefrensist: "Zitouna"), d taɣiwant n twilayt n Ṭṭaref, zedɣen-tt 9,736 n yimezdaɣen. 
+Ɛin Lkerma Ɛin Lkerma
+
+Ɛin Lkerma (s tefrensist: "Aïn Kerma"), d taɣiwant n twilayt n Ṭṭaref, zedɣen-tt 14,377 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Mondovi".
+Sebdu Sebdu
+
+Sebdu d taɣiwant n twilayt n Tlemsan, zedɣen-tt 39,800 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Tafrawa".
+Bni Behdel Bni Behdel
+
+Bni Behdel d taɣiwant n twilayt n Tlemsan, zedɣen-tt 2,801 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Beni Bahdel".
+Lfayja Lfayja
+
+Lfayja (s tefrensist: "Faidja"), d taɣiwant n Tihert, zedɣen-tt 6,794 n yimezdaɣen. 
+Lakwif Lakwif
+
+Lakwif (s tefrensist: "El Kouif"), d taɣiwant n Tbessa, zedɣen-tt 17,319 n yimezdaɣen.
+Ɛin Gezzam Ɛin Gezzam
+
+In Gezzam d taɣiwant n twilayt n Tmenɣest. Zedɣen-tt 7,045 n yimezdaɣen. 
+Aknul Aknul
+
+Aknul (s tefṛensist: "Aknoul"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Fas-Meknas di tama n Arrif. Zedɣen-tt 4,066 n yimezdaɣen.
+Ajdir (Lḥusima) Ajdir (Lḥusima)
+
+Ajdir d tamdint n ugafa n Merruk, tezga-d deg t Lḥusima as-Meknas]] di tama n Arrif. Zedɣen-tt 4,066 n yimezdaɣen.
+Driwec Driwec
+
+Driwec (s tefṛensist: "Driouch"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Tngemuḍt. Zedɣen-tt 51,000 n yimezdaɣen g useggas n 2012.
+Demnat Demnat
+
+Demnat (s tefṛensist: "Demnate"), d tamdint n wammas n Merruk, tezga-d deg temnaṭ n Ayt Mellal-Xnifra. Zedɣen-tt 23,459 n yimezdaɣen.
+Buɛerfa (Merruk) Buɛerfa (Merruk)
+
+Buɛerfa (s tefṛensist: "Bouarfa"), d tamdint n wegmuḍ n Merruk, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 25,947 n yimezdaɣen.
+Berkan Berkan
+
+Berkan neɣ Aberkan (s tefṛensist: "Berkane"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 109,237 n yimezdaɣen.
+Aḥfir Aḥfir
+
+Aḥfir (s tefṛensist: "Ahfir"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 19,482 n yimezdaɣen.
+Aẓru (Merruk) Aẓru (Merruk)
+
+Aẓru (s tefrensist: "Azrou"), d tamdint n wammas n Umerruk, tezga-d deg temnaṭ n Fas-Meknas. Zedɣen-tt 47,000 n yimezdaɣen di 2015.
+Temsaman Temsaman
+
+Temsaman (s tefṛensist: "Temsamane"), d taɣiwant n ugafa n Merruk deg Arrif, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 14,937 n yimezdaɣen.
+Tafersit Tafersit
+
+Tafersit (s tefṛensist: "Tafersit"), d tamdint n ugafa n Merruk deg Arrif, tezga-d deg temnaṭ n Tnegmuḍt. Zedɣen-tt 3,555 n yimezdaɣen.
+Aẓilal Aẓilal
+
+Aẓilal (s tefṛensist: "Azilal"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Ayt Mellal-Xnifra. Zedɣen-tt 27,719 n yimezdaɣen.
+Awlluẓ Awlluẓ
+
+Awlluẓ (s tefṛensist: "Aoulouz"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Sus-Mast. Zedɣen-tt 5,756 n yimezdaɣen.
+Arfud Arfud
+
+Arfud (s tefṛensist: "Arfoud"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Dra-Tafilalt. Zedɣen-tt 23,637 n yimezdaɣen.
+At Nṣar At Nṣar
+
+At Nṣar (s tefṛensist: "Beni Ensar"), d tamdint n ugafa n Merruk deg Arrif, tezga-d deg temnaḍt n Tnegmuḍt. Zedɣen-tt 31,800 n yimezdaɣen.
+Tiɣremt n Imgunen Tiɣremt n Imgunen
+
+Tiɣremt n Imgunen (s tefṛensist: "Kelaat-M'Gouna" neɣ "Tighremt N'Imgounen"), d tamdint d yiɣrem n wenẓul n Amerruk, tezga-d deg temnaṭ n Dra-Tafilalt. Zedɣen-tt 16,950 n yimezdaɣen.
+Qniṭra Qniṭra
+
+Qniṭra (s tefṛensist: "Kénitra"), d tamdint n ugafa n Merruk, tezga-d deg temnaḍt n Rbaṭ-Sla-Qniṭra. Zedɣen-tt 431,282 n yimezdaɣen.
+Muḥemmedeyya (Merruk) Muḥemmedeyya (Merruk)
+
+Muḥemmedeyya neɣ Fḍala (s tefṛensist: "Mohammédia"), d tamdint n utaram n Merruk, tezga-d deg temnaṭ n Tigemmi Tamellalt-Aẓeṭṭaḍ. Zedɣen-tt 208,612 n yimezdaɣen.
+Warzazat Warzazat
+
+Warzazat (s tefṛensist: "Ouarzazate") d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Dra-Tafilalt. Zedɣen-tt 147,360 n yimezdaɣen.
+Targist Targist
+
+Targist (s tefṛensist: "Targuist"), d tamdint n ugafa n Merruk, tezga-d deg temnaṭ n Ṭanja-Tiṭṭawin-Lḥusima. Zedɣen-tt 11,560 n yimezdaɣen.
+Tazaggurt Tazaggurt
+
+Tazaggurt (s tefṛensist: "Zagora"), d tamdint n wenẓul n Merruk, tezga-d deg temnaṭ n Dra-Tafilalt. Zedɣen-tt 52,168 n yimezdaɣen.
+Yusufeyya Yusufeyya
+
+Yusufeyya (s tefṛensist: "Youssoufia"), d tamdint n utaram n Merruk, tezga-d deg temnaṭ n Merrakec-Asfi. Zedɣen-tt 64,518 n yimezdaɣen.
+Buɛlam Buɛlam
+
+Buɛlam d yiwet tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 526,30 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 7.578 imezdaɣ. 
+Ḥsasna Ḥsasna
+
+Ḥsasna (s tefrensist: "Hassasna"), d taɣiwant n Ɛin Timucent, zedɣen-tt 4.184 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Oued-Berkèches".
+Zeɛḍuḍ Zeɛḍuḍ
+
+Zeɛḍuḍ (s tefransist: "Ain Zaatout"), d taɣiwant tacawit n twilayt n Tibeskert, zedɣen-tt 3,693 n yimezdaɣen. 
+At Jemmurt At Jemmurt
+
+At Jemmurt neɣ Jemmurt (s tefransist: "Djemorah"), d taɣiwant n twilayt n Tibeskert, zedɣen-tt 12,574 n yimezdaɣen. 
+Timsunin Timsunin
+
+Timsunin neɣ Himsunin(s tefransist: "M'Chouneche"), d taɣiwant n twilayt n Tibeskert, zedɣen-tt 10,107 n yimezdaɣen. 
+Bekkuc Lexḍer Bekkuc Lexḍer
+
+Bekkuc Lexḍer (s tefrensist: "Bekkouche Lakhdar"), d taɣiwant n Skikda, zedɣen-tt 15,176 n yimzadaɣen.
+Bni Zid Bni Zid
+
+Bni Zid (s tefrensist: "Beni Zid"), d taɣiwant n Skikda, zedɣen-tt 20,697 n yimzadaɣen.
+Ɛin Buzeyyan Ɛin Buzeyyan
+
+Ɛin Buzeyyan (s tefrensist: "Aïn Bouziane"), d taɣiwant n Skikda, zedɣen-tt 9591 n yimzadaɣen.
+Lmerṣa (Skikda) Lmerṣa (Skikda)
+
+Lmerṣa (s tefrensist: "El Marsa"), d taɣiwant n Skikda, zedɣen-tt 5,995 n yimzadaɣen.
+Bni Welban Bni Welban
+
+Bni Welban neɣ At Welban s tmaziɣt (s tefrensist: "Beni Oulbane"), d taɣiwant n Skikda, di tdayra n Sidi Mezɣic. Zedɣen-tt 25,074 n yimzadaɣen.
+Bni Lbacir Bni Lbacir
+
+Bni Lbacir neɣ At Lbacir (s tefrensist: "Beni Bechir"), d taɣiwant n Skikda, zedɣen-tt 9,640 n yimzadaɣen.
+Ben Ɛezzuz Ben Ɛezzuz
+
+Ben Ɛezuz (s tefrensist: "Ben Azzouz"), d taɣiwant n Skikda, zedɣen-tt 29,162 n yimzadaɣen.
+Filfila Filfila
+
+Filfila neɣ Ifilfien s tmaziɣt (s taɛrabt: "فلفلة"), d taɣiwant n twilayt n Skikda, zedɣen-tt 28,996 n yimzadaɣen. Adeg-aɣella-s d Wad Riɣa.
+Wad Zzhur Wad Zzhur
+
+Wad Zzhur (s tefrensist: "Oued Zehour"), d taɣiwant n twilayt n Skikda, zedɣen-tt 6,744 n yimzadaɣen.
+Wlad Ḥbaba Wlad Ḥbaba
+
+Wlad Ḥbaba (s tefrensist: "Ouled Hbaba"), d taɣiwant n twilayt n Skikda, zedɣen-tt 8,369 n yimzadaɣen.
+Kerkra Kerkra
+
+Kerkra d taɣiwant n twilayt n Skikda di tdayra n Tmalus, zedɣen-tt 27,177 n yimzadaɣen.
+Lḥerruc Lḥerruc
+
+Lḥerruc (s tamzight: lɛrruc s tefrensist: "El Harrouch", s taɛrabt :"الحروش" ), d taɣiwant n twilayt n Skikda, zedɣen-tt 48,994 n yimzadaɣen.
+
+Tezga-d ar 30 km seg Skikda, 50 km si Qsenṭina, 80 km si Galma et 90 km si Ɛennaba. Asif ameqran i yezger taɣiwant-agi d Asif Ansa (Wad Ansa).
+Tilaṭu Tilaṭu
+
+Taẓult (s tefransist: "Tilatou"), d taɣiwant n twilayt n Batnet, zedɣen-tt 3 004 n yimezdaɣen.
+Timgad Timgad
+
+Timgad d taɣiwant n twilayt n Batnet, zedɣen-tt 11,828 n yimezdaɣen.
+Tizi n Lɛabed Tizi n Lɛabed
+
+Tizi n Lɛabed (s tefransist: "Teniet El Abed"), d taɣiwant n twilayt n Batnet, zedɣen-tt 11,388 n yimezdaɣen.
+Tiɣanimin Tiɣanimin
+
+Tiɣanimin (s tefransist: "Tighanimine"), d taɣiwant n twilayt n Batnet, zedɣen-tt 6,800 n yimezdaɣen.
+Tiɣeɣar Tiɣeɣar
+
+Tiɣeɣar (s tefransist: "Tigherghar"), d taɣiwant n twilayt n Batnet, zedɣen-tt 6,800 n yimezdaɣen.
+Tagut Tagut
+
+Tagut (s tefransist: "Aïn Yagout"), d taɣiwant n twilayt n Batnet, zedɣen-tt 10,856 n yimezdaɣen.
+Tkukt Tkukt
+
+Tkukt neɣ Kukt (s tefransist: "T'Kout"), d taɣiwant n twilayt n Batnet, zedɣen-tt 11,161 n yimezdaɣen.
+At Sellam At Sellam
+
+At Sellam (s tefransist: "Ouled Sellam"), d taɣiwant n twilayt n Batnet, zedɣen-tt 19,635 n yimezdaɣen.
+At Faḍel At Faḍel
+
+At Faḍel (s tefransist: "Ouled Fadel"), d taɣiwant n twilayt n Batnet, zedɣen-tt 10,860 n yimezdaɣen.
+At Ɛmer At Ɛmer
+
+At Ɛmer (s tefransist: "Ouled Ammar"), d taɣiwant n twilayt n Batnet, zedɣen-tt 8,756 n yimezdaɣen.
+Arris Arris
+
+Arris (s tefransist: "Arris"), d taɣiwant deg ugezdu n Batnet, zedɣen-tt 30,207 n yimezdaɣen. Deg tɣiwant-a ig lul Musṭafa U Bulɛid di 1917. 
+Ixf n Talawin Ixf n Talawin
+
+Ixf n Talawin (s tefransist: "Ras El Aioun"), d taɣiwant n twilayt n Batnet, zedɣen-tt 22,551 n yimezdaɣen.
+Iɣzer n Taqqa Iɣzer n Taqqa
+
+Iɣzer n Taqqa zik isem-is d "Buhmar" (s tefransist: "Oued Taga"), d taɣiwant n twilayt n Batnet, zedɣen-tt 18,116 n yimezdaɣen.
+Mjezz Ɛmer Mjezz Ɛmer
+
+Mjezz Ɛmer (s tefrensist: "Medjez Amar"), d taɣiwant n twilayt n Galma. Zedɣen-tt 7,703 n yimezdaɣen.
+Ɛin Lɛerbi Ɛin Lɛerbi
+
+Ɛin Lɛerbi (s tefrensist: "Aïn Larbi"), d taɣiwant n twilayt n Galma. Zedɣen-tt 7,604 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Gounod".
+Buḥemdan Buḥemdan
+
+Buḥemdan (s tefrensist: "Bouhamdane"), d taɣiwant n twilayt n Galma. Zedɣen-tt 4,394 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Bou Hemdane".
+Wad Fraɣa Wad Fraɣa
+
+Wad Fraɣa (s tefrensist: "Oued Fragha"), d taɣiwant n twilayt n Galma. Zedɣen-tt 7,152 n yimezdaɣen.
+Ɛin Ben Lbiḍa Ɛin Ben Lbiḍa
+
+Ɛin Ben Lbiḍa (s tefrensist: "Aïn Ben Beida"), d taɣiwant n twilayt n Galma. Zedɣen-tt 9,492 n yimezdaɣen. 
+Isedraten Isedraten
+
+Isedraten (s tefrensist: "Sedata"), d taɣiwant n twilayt n Suq Ahras. Zedɣen-tt 53,218 n yimezdaɣen. 
+Ɛin Zana Ɛin Zana
+
+Ɛin Zana (s tefrensist: "Aïn Zana"), d taɣiwant n twilayt n Suq Ahras. Zedɣen-tt 7,499 n yimezdaɣen. 
+Ras Lɛegba Ras Lɛegba
+
+Ras Lɛegba (s taɛrabt : "راس العقبة"), d taɣiwant n twilayt n Galma. Zedɣen-tt 2,699 n yimezdaɣen. 
+Lɣasul Lɣasul
+
+Lɣasul d yiwet tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 564,10 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 7.880 imezdaɣ. 
+Tusmulin Tusmulin
+
+Tusmulin d yiwet tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 881,10 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 3,155 imezdaɣ. 
+Wlad Kiḥal Wlad Kiḥal
+
+Wlad Kiḥal (s tefrensist: "Ouled Kihal"), d taɣiwant n Ɛin Timucent, zedɣen-tt 3,601 n yimezdaɣen. 
+Ɛin Ccuhada Ɛin Ccuhada
+
+Ɛin Ccuhada (s tefrensist: "Aïn Chouhada"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 4.549 n yimezdaɣen. 
+Bni Yeɛgub Bni Yeɛgub
+
+Bni Yeɛgub (s tefrensist: "Beni Yagoub"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 9,940 n yimezdaɣen. 
+Ɛemmura Ɛemmura
+
+Ɛemmura (s tefrensist: "Amourah"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 7.754 n yimezdaɣen. 
+Tadmit Tadmit
+
+Tadmit d taɣiwant n twilayt n Jelfa. Zedɣen-tt 10.359 n yimezdaɣen. 
+Birin Birin
+
+Birin (s tefrensist: "Birine"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 30.913 n yimezdaɣen. 
+Legdid Legdid
+
+Legdid (s tefrensist: "El Guedid"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 12,833 n yimezdaɣen. 
+Lmuǧbara Lmuǧbara
+
+Lmuǧbara (s tefrensist: "Moudjebara"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 14.052 n yimezdaɣen.
+Lḥad Ṣṣeḥari Lḥad Ṣṣeḥari
+
+Lḥad Ṣṣeḥari (s tefrensist: "Had-Sahary"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 30,451 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Had-Sahary".
+Geṭṭara Geṭṭara
+
+Geṭṭara (s tefrensist: "Guettara"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 9,926 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Paul Cazelles".
+Gernini Gernini
+
+Gernini (s tefrensist: "Guernini"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 4,594 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ttinin-as "Paul Cazelles".
+Ḥasi Lɛecc Ḥasi Lɛecc
+
+Ḥasi Lɛecc (s tefrensist: "Hassi El Euch"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 11,692 n yimezdaɣen. 
+Lidriseyya Lidriseyya
+
+Lidriseyya (s tefrensist: "El Idrissia"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 32,900 n yimezdaɣen. 
+Lexmis (Jelfa) Lexmis (Jelfa)
+
+Lexmis (s tefrensist: "El Khemis"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 5,405 n yimezdaɣen. 
+Zakkar Zakkar
+
+Zakkar (s tefrensist: "Zaccar"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 1,809 n yimezdaɣen. 
+Leɛyun (Tisemsilt) Leɛyun (Tisemsilt)
+
+Leɛyun (s trumit : "Layoune", s tmaziɣt : "Tiliwin"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 20.579 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Taine".
+Tamellaḥt Tamellaḥt
+
+Tamellaḥt (s taɛrabt : "تاملاحت"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 7,645 n yimezdaɣen. 
+Sidi Ɛbed Sidi Ɛbed
+
+Sidi Ɛbed (s taɛrabt : "سيدي عابد"), d taɣiwant n twilayt n Tisemsilt, zedɣen-tt 5,213 n yimezdaɣen. 
+Swagi Swagi
+
+Swagi (s tefṛensist: "Souagui") d taɣiwant n wegmuḍ (ccerq) n Lemdiyyet, zedɣen-tt 15,536 n yimezdaɣen.
+Sidi Neɛman (Lemdeyyet) Sidi Neɛman (Lemdeyyet)
+
+Sidi Neɛman (s tefṛensist: "Sidi Naamane"), d taɣiwant n ugafa (nord) n Lemdiyyet, zedɣen-tt 17,803 n yimezdaɣen.
+Imeɣrawen (Lemdeyyet) Imeɣrawen (Lemdeyyet)
+
+Imeɣrawen (s tefṛensist: "Maghraoua"), d taɣiwant n wegmuḍ (ccerq) n Lemdiyyet, zedɣen-tt 5,647 n yimezdaɣen.
+Leɛwinat (Lemdeyyet) Leɛwinat (Lemdeyyet)
+
+Leɛwinat (s tefṛensist: "El Ouinet"), d taɣiwant n wenẓul (sud) n Lemdiyyet, zedɣen-tt 4,186 n yimezdaɣen.
+Qṣer Buxari Qṣer Buxari
+
+Qṣer Buxari (s tefṛensist: "Ksar Boukhari"), d taɣiwant n wenẓul (sud) n Lemdiyyet, zedɣen-tt 67,813 n yimezdaɣen.
+Wlad Brahim Wlad Brahim
+
+Wlad Brahim (s tefṛensist: "Ouled Brahim"), d taɣiwant n ugafa (nord) n Lemdiyyet, zedɣen-tt 10,847 n yimezdaɣen.
+Cellalet Leɛdawra Cellalet Leɛdawra
+
+Cellalet Leɛdawra (s tefṛensist: "Chellalet El Adhaoura"), d taɣiwant n wegmuḍ n Lemdiyyet, zedɣen-tt 57,300 n yimezdaɣen.
+Lgelb Lekbir Lgelb Lekbir
+
+Lgelb Lekbir (s tefṛensist: "El Guelb El Kebir"), d taɣiwant n wegmuḍ (ccerq) n Lemdiyyet, zedɣen-tt 12,782 n yimezdaɣen.
+Wlad Ɛenṭer Wlad Ɛenṭer
+
+Wlad Ɛenṭer (s tefṛensist: "Ouled Antar"), d taɣiwant n utaram (ouest) n Lemdiyyet, zedɣen-tt 2,216 n yimezdaɣen.
+Wlad Dris Wlad Dris
+
+Wlad Dris (s taɛrabt: "أولاد ادريس" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 11,303 n yimezdaɣen. 
+Ḥeddada Ḥeddada
+
+Ḥeddada (s taɛrabt: "الحدادة" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 7,351 n yimezdaɣen. 
+Mdawruc Mdawruc
+
+Mdawruc (s taɛrabt: "مداوروش" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 41,243 n yimezdaɣen. 
+Wlad Mumen Wlad Mumen
+
+Wlad Mumen (s taɛrabt: "أولاد مؤمن" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 4,682 n yimezdaɣen. 
+Lexḍara Lexḍara
+
+Lexḍara (s taɛrabt: "لخضارة" ), d taɣiwant n twilayt n Suq Ahras, zedɣen-tt 8,329 n yimezdaɣen. 
+Mazaɣran Mazaɣran
+
+Mazaɣran (s tefṛensist: "Mazagran", Taɛrabt : "مزغران"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 22,016 n yimezdaɣen di wenẓul si temdint n Mestɣanem. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Mazagran".
+Wad Lxir Wad Lxir
+
+Wad Lxir (s tefṛensist: "Oued El Kheir", Taɛrabt : "وادي الخير"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 17,359 n yimezdaɣen. 
+Ɛin Tadelles Ɛin Tadelles
+
+Ɛin Tadelles neɣ Tadellest (s tefṛensist: "Aïn Tedles", Taɛrabt : "عين تادلس"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 38,823 n yimezdaɣen. 
+Ṣur (Mestɣanem) Ṣur (Mestɣanem)
+
+Ṣur (s tefṛensist: "Sour", Taɛrabt : "صور"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 22,673 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist, llan ɣɣaren-as "Sour el Mitou" neɣ "Bellevue".
+Bugirat Bugirat
+
+Bugirat (s tefṛensist: "Bouguirat", Taɛrabt : "بوقيراط"), d taɣiwant n twilayt n Mestɣanem, zedɣen-tt 31.469 n yimezdaɣen. 
+Ḥasi Beḥbaḥ Ḥasi Beḥbaḥ
+
+Ḥasi Beḥbaḥ (s tefrensist: "Hassi Bahbah"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 86,421 n yimezdaɣen. 
+Sedd Reḥḥal Sedd Reḥḥal
+
+Sedd Reḥḥal (s tefrensist: "Sed Rahal"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 13,693 n yimezdaɣen. 
+Bwiret Lehdab Bwiret Lehdab
+
+Bwiret Lehdab (s tefrensist: "Bouira Lahdab"), d taɣiwant n twilayt n Jelfa. Zedɣen-tt 10,993 n yimezdaɣen. 
+Ṭulga Ṭulga
+
+Ṭulga (s tefransist: "Tolga"), d taɣiwant n twilayt n Tibeskert, zedɣen-tt 55 809 n yimezdaɣen. 
+Lqenḍert Lqenḍert
+
+Lqenḍert (s tefransist: "El Kantara"), d taɣiwant n twilayt n Tibeskert, zedɣen-tt 11,415 n yimezdaɣen. 
+Minar Zarza Minar Zarza
+
+Minar Zarza (Taɛrabt : "مينار زرزة",s tefrensist: "Minar Zarza"), d taɣiwant n ugafa n twilayt n Mila, zedɣen-tt 22,535 n yimezdaɣen. 
+
+Sidi Ɛebdeljebar Sidi Ɛebdeljebar
+
+Benyan (s tefrensist: "Sidi Abdeldjebar"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 4,190 n yimezdaɣen. 
+Sidi Ɛebdelmumen Sidi Ɛebdelmumen
+
+Sidi Ɛebdelmumen (s tefrensist: "Sidi Abdelmoumen"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 14,600 n yimezdaɣen. 
+Lmamuneyya Lmamuneyya
+
+Lmamuneyya (s tefrensist: "Mamounia"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 13,364 n yimezdaɣen. 
+Wad Tarya Wad Tarya
+
+Wad Tarya neɣ s tmaziɣt Iɣzer n Tarya (s tefrensist: "Oued Taria"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 15,901 n yimezdaɣen. 
+Hacem Hacem
+
+Hacem (s tefrensist: "Hachem"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 23,716 n yimezdaɣen. 
+Sejrara Sejrara
+
+Sejrara (s tefrensist: "Sedjerara"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 8,549 n yimezdaɣen. 
+Xalweyya Xalweyya
+
+Xalweyya (s tefrensist: "Khalouia"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 6,159 n yimezdaɣen. 
+Sidi Busaɛid Sidi Busaɛid
+
+Sidi Busaɛid (s tefrensist: "Sidi Boussaid"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 4,483 n yimezdaɣen. 
+Sigg Sigg
+
+Sigg (s tefrensist: "Sig"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 70,499 n yimezdaɣen. 
+Ɛuf Ɛuf
+
+Ɛuf (s tefrensist: "Aouf"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 7,887 n yimezdaɣen. 
+Lburj (Mɛesker) Lburj (Mɛesker)
+
+Lburj (s tefrensist: "El Bordj"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 20,711 n yimezdaɣen. 
+Ccerfa (Mɛesker) Ccerfa (Mɛesker)
+
+Ccerfa (s tefrensist: "Chorfa"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 2,608 n yimezdaɣen. 
+Tizi (Mɛesker) Tizi (Mɛesker)
+
+Tizi (s tefrensist: "Tizi"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 12,923 n yimezdaɣen. 
+Izelmaṭen Izelmaṭen
+
+Izelmaṭen (s tefrensist: "Zelmata"), d taɣiwant n twilayt n Mɛesker, zedɣen-tt 7,379 n yimezdaɣen. 
+Meẓraya Meẓraya
+
+Meẓraya (s tefṛensist: "Mezraya"), d taddart n wegmuḍ (ccerq) n Tunes, tezga-d deg tegzirt Ǧerba di twilayt n Mednin. 
+Ḥumt Suq Ḥumt Suq
+
+Ḥumt Suq (s taɛrabt: "حومة السوق"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d deg tegzirt Ǧerba di twilayt n Mednin. Zedɣen-tt 75,904 n yimezdaɣen.
+Iqellalen Iqellalen
+
+Iqellalen (s taɛrabt: "قلالة"), d tamdint n wegmuḍ (ccerq) n Tunes, tezga-d deg tegzirt Ǧerba di twilayt n Mednin. Zedɣen-tt 10,216 n yimezdaɣen.
+Lmeɛgula Lmeɛgula
+
+Lmeɛgula (s tefṛensist: "El Maâgoula"), d tamdint n ugafa-utrim n Tunes di twilayt n Baja. Zedɣen-tt 7690 n yimezdaɣen deg useggwas n 2014.
+Tasnilest Tasnilest
+
+Tasnilest d tussna i izerwen tameslayt akked tutlayt. Tasnilest temgarad ɣef tjeṛṛumt tamensayt imi, iswi n tussna-ya n yiles d asbadu n tutlayt. Ababat n Tesnilest nezmer ad d-nini d Ferdinand De Saussure, dɣa, Segmi i d-yeffeɣ udlis-is umi i semman wid i t-id-yessufɣen Timsirin n tesnilest tamatut.
+
+Aryana Aryana
+
+Aryana d tamdint n ugafa-agmuḍan (nord-est) n Tunes, zedɣen-tt 114,486 n yimezdaɣen.
+Rawad Rawad
+
+Rawad d tamdint n ugafa-agmuḍan (nord-est) n Tunes, zedɣen-tt 53,911 n yimezdaɣen.
+Taẓruk Taẓruk
+
+Taẓruk (s tefrensist: "Tazrouk"), d tamdint n wenẓul-agmuḍan (sud-est) n Ldzayer deg yidurar n Uhaggar. Zedɣen-tt 4,091 n yimezdaɣen.
+Tin Zawaten Tin Zawaten
+
+Tin Zawaten (s tefrensist: "Tin Zaouatine"), d tamdint n wenẓul (sud) n Ldzayer di wedrar n Yifuɣa. Zedɣen-tt 4,157 n yimezdaɣen.
+Idelles Idelles
+
+Idelles (s tefrensist: "Idlès"), d tamdint n wenẓul-agmuḍan (sud-est) n Lezzayer deg yidurar n Uhaggar. Zedɣen-tt 4,945 n yimezdaɣen.
+Ɛin Amgel Ɛin Amgel
+
+Ɛin Amgel (s tefrensist: "In Amguel"), d tamdint n wenẓul-agmuḍan (sud-est) n Ldzayer deg yidurar n Uhaggar. Zedɣen-tt 4,208 n yimezdaɣen.
+In Ɣar In Ɣar
+
+In Ɣar (s tefrensist: "In Ghar"), d tamdint n wenẓul-agmuḍan (sud-est) n Ldzayer. Zedɣen-tt 11,225 n yimezdaɣen.
+Timyawin Timyawin
+
+Timyawin d yiwet tɣiwant n twilayt n Wedrar deg yidurar n Yifuɣa, deg useggas n 2008 ɣur-s azal n 4,493 imezdaɣen. 
+In Zeɣmir In Zeɣmir
+
+In Zeɣmir d yiwet tɣiwant n twilayt n Wedrar di tama n Tawat, deg useggwas n 2008 ɣur-es azal n 16,185 imezdaɣen. 
+Tammast Tammast
+
+Tammast d yiwet tɣiwant n twilayt n Wedrar, deg useggwas n 2008 ɣur-es azal n 8,266 imezdaɣen. 
+Reggan Reggan
+
+Reggan d yiwet n tɣiwant n twilayt n Wedrar di tama n Tawat, deg useggas n 2008 ɣur-s azal n 20,402 imezdaɣen.
+Awlaf Awlaf
+
+Awlaf d yiwet tɣiwant n twilayt n Wedrar di tama n Tidikelt, deg useggwas n 2008 ɣur-es azal n 21,723 imezdaɣen. 
+Deldul Deldul
+
+Deldul d yiwet tɣiwant n twilayt n Wedrar, deg useggwas n 2008 ɣur-s azal n 8,647 imezdaɣen. 
+Carwin Carwin
+
+Carwin d yiwet tɣiwant n twilayt n Wedrar di tama n Tigurarin, deg useggwas n 2008 ɣur-es azal n 11,347 imezdaɣen. 
+Ugrut Ugrut
+
+Ugrut neɣ Awgrut d yiwet tɣiwant n twilayt n Wedrar di tama n Tigurarin, deg useggwas n 2008 ɣur-s azal n 11,784 imezdaɣen. 
+Tinerkuk Tinerkuk
+
+Tinerkuk d yiwet tɣiwant n twilayt n Wedrar di tama n Tigurarin, deg useggwas n 2008 ɣur-s azal n 15,980 imezdaɣen. 
+Talmin Talmin
+
+Talmin d yiwet tɣiwant n twilayt n Wedrar di tama n Tigurarin, deg useggwas n 2008 ɣur-s azal n 12,768 imezdaɣen. 
+Tamanṭit Tamanṭit
+
+Tamanṭit d yiwet tɣiwant n twilayt n Wedrar di tama n Tawat, deg useggwas n 2008 ɣur-es azal n 9,481 imezdaɣen. 
+Tiṭ (taɣiwant) Tiṭ (taɣiwant)
+
+Tiṭ d yiwet tɣiwant n twilayt n Wedrar di tama n Tidikelt, deg useggwas n 2008 ɣur-es azal n 4,417 imezdaɣen. 
+Fennuɣil Fennuɣil
+
+Fennuɣil d yiwet tɣiwant n twilayt n Wedrar di tama n Tawat, deg useggwas n 2008 ɣur-s azal n 11,793 imezdaɣen. 
+Luqṣur Luqṣur
+
+Luqṣur (s taɛrabt: "الأقصر", tameṣrit : "Logṣor", s teqebṭit : "Ipet reset") d tamdint tameqrant n Maṣer, tezga-d deg wenẓul (sud) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 451.318 n yimezdaɣen.
+Fayyum Fayyum
+
+Fayyum (s taɛrabt: "الأقصر", tameṣrit : "ilFayyum", s teqebṭit : " ̀Ⲫⲓⲟⲙ /Ⲡⲉⲓⲟⲙ epʰiom/peiom") d tamdint tameqrant n Maṣer, tezga-d deg utaram (ouest) n tmurt, d amda (oasis) akk i meqqren di tmurt-agi. Zedɣen-tt 349,883 n yimezdaɣen.
+Zagazig Zagazig
+
+Zagazig (s taɛrabt: "الزقازيق‎") d tamdint tameqrant n Maṣer, tezga-d deg wenẓul (ugafa) n tmurt, ɣef yiri n Asif n Nnill deg udelta-s. Zedɣen-tt 319,707 n yimezdaɣen.
+Aswan Aswan
+
+Aswan (s taɛrabt: "أسوان", s teqebṭit : "ⲥⲟⲩⲁⲛ Souan") d tamdint tameqrant n Maṣer, tezga-d deg wenẓul (sud) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 290,327 n yimezdaɣen.
+Damanhur Damanhur
+
+Damanhur (s taɛrabt: "دمنهور", s teqebṭit : "Dmỉ-n-Ḥr.w") d tamdint tameqrant n Maṣer, tezga-d deg ugafa (nord) n tmurt, ɣef yiri n Asif n Nnill deg udelta-s. Zedɣen-tt 242,700 n yimezdaɣen.
+Ismaɛileyya Ismaɛileyya
+
+Ismaɛileyya (s taɛrabt: "الإسماعيلية") d tamdint tameqrant n Maṣer, tezga-d deg wegmuḍ (est) n tmurt, ɣef yiri n Terga n Sweys. Zedɣen-tt 366,669 n yimezdaɣen.
+Asyuṭ Asyuṭ
+
+Asyuṭ (s taɛrabt: "أسيوط‎", s teqebṭit : "Syowt") d tamdint tameqrant n Maṣer, tezga-d deg wenẓul (sud) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 389,307 n yimezdaɣen.
+Minya Minya
+
+Minya (s taɛrabt: "المنيا", tameṣrit : "il-Minyā", s teqebṭit : "Men'at Xufu") d tamdint tameqrant n Maṣer, tezga-d deg wammas (centre) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 256,732 n yimezdaɣen. Azgen deg-sen d iqebṭiyen (imasiḥiyen imeṣriyen). 
+Suhaǧ Suhaǧ
+
+Suhaǧ (s taɛrabt: "سوهاج", tameṣrit : "Sūhāǧ") d tamdint tameqrant n Maṣer, tezga-d deg wammas (centre) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 201,339 n yimezdaɣen.
+Bani Swayf Bani Swayf
+
+Bani Swayf (s taɛrabt: "بني سويف", tameṣrit : "Baniswēf", s teqebṭit : "Panisōf") d tamdint tameqrant n Maṣer, tezga-d deg wammas (centre) n tmurt, ɣef yiri n Asif n Nnill. Zedɣen-tt 233,142 n yimezdaɣen.
+Baḥariyya Baḥariyya
+
+Baḥariyya (s taɛrabt: "الواحات البحرية") d amda deg uneẓruf n Maṣer, tezga-d deg utaram (ouest) n tmurt. Zedɣen-tt ugar n 30,000 n yimezdaɣen.
+Balṭim Balṭim
+
+Balṭim (s taɛrabt: "بلطيم") d tamdint n Maṣer, tezga-d deg ugafa (nord) n tmurt, ɣef yiri n Asif n Nnill deg udelta-s. Zedɣen-tt 43,398 n yimezdaɣen.
+Ḥumṣ Ḥumṣ
+
+Ḥumṣ (neɣ s taɛrabt : "حمص", "Humus" s taṭerkit) d tamdint n utaram n Surya, zedɣen-tt 200,000 n yimezdaɣen di 2016 asmi yeḍra Wemagaru aɣarim asuri.
+Maḍaya Maḍaya
+
+Maḍaya neɣ "Madaya" (s taɛrabt: مضايا‎) d tamdint n lɣerb n Surya, tezga-d ɣef yiri n Lubnan, zedɣen-tt 9,371 n yimezdaɣen di 2004, d isunniyen.
+Čanačer Čanačer
+
+Čanačer neɣ "Kanaker" (s taɛrabt: "كناكر‎" )d taddar n wenẓul (sud) n Surya, tezga-d deg tnebbaḍt n Rif Dimecq, zedɣen-tt 13,950 n yimezdaɣen di 2004.
+Ɣabaɣeb Ɣabaɣeb
+
+Ɣabaɣeb (s taɛrabt: "غباغب‎" , tinglizt: "Ghabaghib") d tamdint n wenẓul (sud) n Surya, zedɣen-tt 11,802 n yimezdaɣen di 2004.
+Laḍqeyya Laḍqeyya
+
+Laḍqeyya (s taɛrabt: "اللَاذِقِيَّة‎ al-Lādhiqīyah" ) d tamdint n utaram (lɣerb) n Surya, tezga-d ɣef yiri n Yilel Agrakal, zedɣen-tt 383,786 n yimezdaɣen di 2004, d iṣunniyen.
+Der Zzur Der Zzur
+
+Der Zzur (s taɛrabt: "دير الزور" , s tacurit: ܕܝܪܐ ܙܥܘܪܬܐ) d tamdint n wegmuḍ (est) n Surya, tezga-d ɣef yiri n wasif n Furat, zedɣen-tt 211,857 n yimezdaɣen di 2004, llan d iṣunniyen ed yimasiḥiyen.
+Ḥama Ḥama
+
+Ḥama (s taɛrabt: "حماة‎" ) d tamdint n utaram (lɣerb) n Surya, tezga-d ɣef yiri n wasif Aṣi, zedɣen-tt 312,994 n yimezdaɣen di 2004, d iṣunniyen ed yimasiḥiyen.
+Qariten Qariten
+
+Qariten (s taɛrabt: "القريتين‎" ) d tamdint n wammas n Surya, tezga-d ɣef yiri n Uneẓruf Asuri, zedɣen-tt 14,208 n yimezdaɣen di 2004, d iṣunniyen.
+Salamiyye Salamiyye
+
+Salamiyye (s taɛrabt: "سلمية‎" ) d tamdint n utaram n Surya, tezga-d ɣef yiri n Uneẓruf Asuri, zedɣen-tt 66,724 n yimezdaɣen di 2004. Tugti deg-sen d iciɛiyen ismaɛiliyen.
+Ḥarem Ḥarem
+
+Ḥarem (s teɛrabt: "حارم‎" ) d tamdint n ugafa-utaraman n Surya, ur teggug ara ɣef tilisa akked tmurt n Ṭṭerk, zedɣen-tt 21,934 n yimezdaɣen di 2004. 
+Mhin Mhin
+
+Mhin (s taɛrabt: "مهين‎") d tamdint n wammas n Surya, tezga-d ɣef yiri n Uneẓruf Asuri, zedɣen-tt 11,064 n yimezdaɣen di 2004, d iṣunniyen.
+Ḥuwwerin Ḥuwwerin
+
+Ḥuwwerin (s taɛrabt: "حوارين‎" ) d taddart n wammas n Surya, tezga-d ɣef yiri n Uneẓruf Asuri, zedɣen-tt 1,802 n yimezdaɣen di 2004.
+Ṣadad Ṣadad
+
+Ṣadad (s taɛrabt: "صدد‎" , taramit :"ܣܕܕ‎" ) d tamdint n wammas n Surya, tezga-d ɣef yiri n Uneẓruf Asuri, zedɣen-tt 15,000 n yimezdaɣen di 2004, d imasiḥiyen.
+Bugṭeb Bugṭeb
+
+Bugṭeb d yiwet tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 2 017,60 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 18,568 imezdaɣen. 
+Lxiter Lxiter
+
+Lxiter d yiwet tɣiwant n twilayt n Lbeyyeḍ. Tesɛa 1 023,10 km2 deg tjumma-s, yerna deg 2008 ɣur-es azal n 6.949 imezdaɣen. 
+Iɣzer Ugusim Iɣzer Ugusim
+
+Iɣzer Ugusim (s tefṛensist: "Oued Goussine"), d taɣiwant n ugezdu n Cclef, zedɣen-tt 6,453 n yimezdaɣen. Deg tɣiwant-a ttmeslayen akk s tmaziɣt i wumi qqaren Tacenwit 
+Lḥeǧǧaǧ (Cclef) Lḥeǧǧaǧ (Cclef)
+
+Lḥeǧǧaǧ (s tefṛensist: "El Hadjadj"), d taɣiwant n wenẓul n twilayt n Cclef af yiri n yidurar n Warsnis, zedɣen-tt 8,478 n yimezdaɣen. 
+Ṣubḥa Ṣubḥa
+
+Ṣubḥa (s tefṛensist: "Sobha"), d taɣiwant n twilayt n Cclef, zedɣen-tt 34,455 n yimezdaɣen. 
+Wlad Ɛebbas Wlad Ɛebbas
+
+Wlad Ɛebbas (s tefṛensist: "Ouled Abbas"), d taɣiwant n twilayt n Cclef, zedɣen-tt 8.578 n yimezdaɣen. 
+Wlad Fares Wlad Fares
+
+Wlad Fares (s tefṛensist: "Ouled Fares"), d taɣiwant n walemmas n twilayt n Cclef, zedɣen-tt 34,891 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Larbaa Ouled Farés" neɣ "Warnier".
+Sidi Ɛekkaca Sidi Ɛekkaca
+
+Sidi Ɛekkaca (s tefṛensist: "Sidi Akkacha"), d taɣiwant n twilayt n Cclef, zedɣen-tt 26,595 n yimezdaɣen. Deg tallit n tuṭṭfa tafṛensist llan ɣɣaren-as "Montenotte". Taɣiwant-a tusa-d (tezga-d) g uzaɣar deg wul n temnaḍt n Ddahret. 
+Sidi Ɛebderreḥman Sidi Ɛebderreḥman
+
+Sidi Ɛebderreḥman (s tefṛensist: "Sidi Abderrahmane"), d taɣiwant n ugafa n twilayt n Cclef, zedɣen-tt 4.349 n yimezdaɣen. 
+Lhamel Lhamel
+
+Lhamel d ywiet tɣiwant n twilayt n Temsilt, deg tdayra n Busɛada, yerna adeg-aɣella-s d Tareḥmanit. Deg 2008, ɣur-es azal n 11.018 imezdaɣen. 
+Ɛin Trid Ɛin Trid
+
+Ɛin Trid (s tefrensist: "Aïn Thrid"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 2,373 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Bonnier".
+Iẓerwalen Iẓerwalen
+
+Iẓerwalen (s tefrensist: "Zerouala"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 4.790 n yimezdaɣen. 
+Tasala (Sidi Belɛebbas) Tasala (Sidi Belɛebbas)
+
+"Tasala"' (s tefrensist: "Tessala"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 7,499 n yimezdaɣen. 
+Tanira Tanira
+
+Tanira (s tefrensist: "Tenira"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 10.049 n yimezdaɣen. 
+Sidi Yeɛqub (Sidi Belɛebbas) Sidi Yeɛqub (Sidi Belɛebbas)
+
+Sidi Yeɛqub (s tefrensist: "Sidi Yacoub"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 4.485 n yimezdaɣen.
+Sidi Brahim (Sidi Belɛebbas) Sidi Brahim (Sidi Belɛebbas)
+
+Sidi Brahim (s tefrensist: "Sidi Brahim"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 10,371 n yimezdaɣen. 
+Mulay Slisen Mulay Slisen
+
+Mulay Slisen (s tefrensist: "Moulay Slissen"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 5,672 n yimezdaɣen. 
+Lemṭar Lemṭar
+
+Lemṭar (s tefrensist: "Lemṭar"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 7,530 n yimezdaɣen. 
+Leɛmarna Leɛmarna
+
+Leɛmarna (s tefrensist: "Amarnas"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 11,293 n yimezdaɣen.
+Bir Lḥemmam Bir Lḥemmam
+
+Bir Lḥemmam (s tefrensist: "Bir El Hammam"), d taɣiwant yezgan di Sidi Belɛebbas deg tamurt n Dzayer, zedɣen-tt 2,668 n yimezdaɣen. 
+Mrin Mrin
+
+Mrin (s tefrensist: "Merine"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 7,705 n yimezdaɣen. 
+Ben Badis Ben Badis
+
+Ben Badis (s tefrensist: "Ben Badis"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 20,346 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Descartes".
+Belɛerbi Belɛerbi
+
+Belɛerbi (s tefrensist: "Belarbi"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 8,455 n yimezdaɣen. 
+Talaɣ Talaɣ
+
+Talaɣ (s tefrensist: "Telagh"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 44.000 n yimezdaɣen. 
+Tilmuni Tilmuni
+
+Tilmuni (s tefrensist: "Tilmouni"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 8.949 n yimezdaɣen. 
+Taɣalimt Taɣalimt
+
+Taɣalimt (s tefrensist: "Teghalimet"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 7.549 n yimezdaɣen. 
+Sidi Xaled (Sidi Belɛebbas) Sidi Xaled (Sidi Belɛebbas)
+
+Sidi Xaled (s tefrensist: "Sidi Khaled"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 7,167 n yimezdaɣen. 
+Mezawru Mezawru
+
+Mezawru (s tefrensist: "Mezaourou"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 6,870 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Rochambeau".
+Sidi Ḥemmaduc Sidi Ḥemmaduc
+
+Sidi Ḥemmaduc (s tefrensist: "Sidi Hamadouche"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 9.968 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist, llan ɣɣaren-as "Les Trembles".
+Buxanafis Buxanafis
+
+Buxanafis (s tefrensist: "Boukhanafis"), d taɣiwant n Sidi Belɛebbas, zedɣen-tt 10.520 n yimezdaɣen.
+Lḥsasna Lḥsasna
+
+Lḥsasna (s tefrensist: "El Hassasna"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 13.294 n yimezdaɣen. 
+Wlad Xaled Wlad Xaled
+
+Wlad Xaled (s tefrensist: "Ouled Khaled"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 30.484 n yimezdaɣen. 
+Wlad Brahim (Ssɛida) Wlad Brahim (Ssɛida)
+
+Wlad Brahim (s tefrensist: "Ouled Brahim"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 19.711 n yimezdaɣen. 
+Mulay Lɛerbi Mulay Lɛerbi
+
+Mulay Lɛerbi (s tefrensist: "Moulay Larbi"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 11.066 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Wagram".
+Sidi Ɛmer (Ssɛida) Sidi Ɛmer (Ssɛida)
+
+Sidi Ɛmer (s tefrensist: "Sidi Amar"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 10.906 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Franchetti".
+Sidi Ḥmed Sidi Ḥmed
+
+Sidi Ḥmed (s tefrensist: "Sidi Ahmed"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 14,592 n yimezdaɣen. 
+Yub (Ssɛida) Yub (Ssɛida)
+
+Yub (s tefrensist: "Youb"), d taɣiwant n twilayt n Ssɛida. Zedɣen-tt 17.355 n yimezdaɣen. Deg tallit n tuṭṭfa tafrensist llan ɣɣaren-as "Berthelot".Yella yiwen adeg isem-is Timẓiɣin aydeg ufan-d ixerban n zik-nni. 
+Buzina Buzina
+
+Buzina (s tefransist: "Bouzina"), d taɣiwant n twilayt n Batnet, zedɣen-tt 13,383 n yimezdaɣen.
+
+Sidi Ɛli Mellal Sidi Ɛli Mellal
+
+Sidi Ɛli Mellal (s tefrensist: "Sidi Ali Mellal"), d taɣiwant n Tihert, zedɣen-tt 7,193 n yimezdaɣen. 
+Bugara (Tihert) Bugara (Tihert)
+
+Bugara (s tefrensist: "Bougara"), d taɣiwant n Tihert, zedɣen-tt 7,047 n yimezdaɣen. 
+Qṣer Cellala Qṣer Cellala
+
+Qṣer Cellala (s tefrensist: "Ksar Chellala"), d taɣiwant n Tihert, zedɣen-tt 70,000 n yimezdaɣen. 
+Madna Madna
+
+Madna (s tefrensist: "Madna"), d taɣiwant n Tihert, zedɣen-tt 2,935 n yimezdaɣen. 
+Madrisa Madrisa
+
+Madrisa (s tefrensist: "Medrissa"), d taɣiwant n Tihert, zedɣen-tt 15,293 n yimezdaɣen. 
+Madrusa Madrusa
+
+Madrusa (s tefrensist: "Medroussa"), d taɣiwant n Tihert, zedɣen-tt 11,428 n yimezdaɣen. 
+Tusnina Tusnina
+
+Tusnina (s tefrensist: "Tousnina"), d taɣiwant n Tihert, zedɣen-tt 12,421 n yimezdaɣen. 
+Serɣin Serɣin
+
+Serɣin (s tefrensist: "Serghine"), d taɣiwant n Tihert, zedɣen-tt 5,316 n yimezdaɣen. 
+Tidda Tidda
+
+Tidda (s tefrensist: "Tidda"), d taɣiwant n Tihert, zedɣen-tt 3,669 n yimezdaɣen. 
+Imɣilen Imɣilen
+
+Imɣilen (s tefrensist: "Meghila"), d taɣiwant n Tihert, zedɣen-tt 3,062 n yimezdaɣen. 
+Tagdamt Tagdamt
+
+Tagdamt (s tefrensist: "Tagdemt"), d taɣiwant n Tihert, zedɣen-tt 4,543 n yimezdaɣen. 
+Ɛin Buceqqif Ɛin Buceqqif
+
+Ɛin Buceqqif (s tefrensist: "Aïn Bouchekif"), d taɣiwant n Tihert, zedɣen-tt 15,022 n yimezdaɣen. 
+Rio de Janeiro Rio de Janeiro
+
+Rio de Janeiro d tamdint deg wanẓul n Brazil.
+2 meɣres 2 meɣres
+3 meɣres 3 meɣres
+4 meɣres 4 meɣres
+7 meɣres 7 meɣres
+8 meɣres 8 meɣres
+9 meɣres 9 meɣres
+10 meɣres 10 meɣres
+11 meɣres 11 meɣres
+12 meɣres 12 meɣres
+14 meɣres 14 meɣres
+16 meɣres 16 meɣres
+17 meɣres 17 meɣres
+20 meɣres 20 meɣres
+25 meɣres 25 meɣres
+18 meɣres 18 meɣres
+19 meɣres 19 meɣres
+21 meɣres 21 meɣres
+28 meɣres 28 meɣres
+23 meɣres 23 meɣres
+24 meɣres 24 meɣres
+26 meɣres 26 meɣres
+27 meɣres 27 meɣres
+29 meɣres 29 meɣres
+30 meɣres 30 meɣres
+30 yebrir 30 yebrir
+Lezzayer (asegzi) Lezzayer (asegzi)
+
+Lezzayer yezmer ad iqṣed :Luṭayet Luṭayet
+
+Luṭayet (s Tafrensist : El Outaya, s taɛrabt "الوطاية") d yiwet tɣiwant n twilayt n Tbeskert. Deg 2008, ɣur-es azal n 11,155 imezdaɣen. 
+Padre padrone Padre padrone
+
+Padre padrone d asaru aṭalyani yettwasseḍrun sɣur Paolo d Vittorio Taviani, yeffɣed deg useggas 1977.
+
+
+Tadayṛa n Iwaḍiyen Tadayṛa n Iwaḍiyen
+
+Tadayṛa n Iwaḍiyen tezga ḍi Tawilayt n Tizi Uzzu deg nufa di Tamurt Taqbaylit N Dzayer. 
+
+Yerna adeg aɣella ines (chef-lieu) yezga deg Taɣiwant N Iwaḍiyen
+
+Tiɣiwanin Tadayṛa n Iwaḍiyen :
+Amezdaɣ : 55 377 meden ḍi ².
+
+Taɣiwant n tmurt leqbayel. Tezga deg twilayt n Tizi-wezzu.
+
+Daïra : OUADHIAS
+
+Tjumma : 139,5400 km²
+
+Amezdaɣ : 55 377 hab
+
+Densité : 397 hab/km²
+
+Tjumma : 32,8300 km²Amezdaɣ : 15 771 medDensité : 480 med/km²Isem : Awadhi ,Tawadhith .Iwaḍiyen s ujemmal tuweḍ ɣer 3283 hectares neɣ 32,83 km²(yikilumitren imkuẓen)<br>Tella ḍi tenat sfa N Tizi n Tlata, At Douala atuk Agwni Ggeɣran, 
+Taleqqayt tafellayt ar 425 mitra
+sexagésimales
+
+Adeg aɣella : El Hed Iwaḍiyen
+
+El Hed Iwaḍiyen machi tadarth iwaḍiyen. Ziɣ ḍeg souk ḍaya.
+
+
+Tjumma : 39,3000 km²
+
+Amezdaɣ : 14 435 hab
+
+Densité : 367 hab/km²
+
+Tjumma : 26,9000 km²
+
+Amezdaɣ : 15 479 hab
+
+Densité : 575 hab/km²
+
+Tjumma : 40,5100 km²
+
+Amezdaɣ : 9 692 hab
+
+Densité : 239 hab/km²
+
+Tiɣiwanin n tadayṛa n Iwaḍiyen Tiɣiwanin n tadayṛa n Iwaḍiyen
+
+Tadayṛa n Iwaḍiyen ḍi Tawilayt n Tizi Uzzu deg Tmurt Leqbayel tesɛa 4 tiɣiwanin. 
+
+Tafelwit agi, tettaked umuɣ n tiɣiwanin n tadayṛa n Iwaḍiyen, tettaked i yal taɣiwant : angal ONS ines, isem is, amezdaɣ ines d tajumma-s.
+
+
+Adeg-aɣella Adeg-aɣella
+
+Ma af tawilayt, ḍra Adeg Aɣella sta mṭhinte tamokrante anda tella tawilaytn ines naǧ Tiɣiwanin n ines
+
+Ma af tadayṛat, ḍra Adeg Aɣella sta mṭhinte tamokrante anda tella tadayṛat ines naǧ Tiɣiwanin n ines
+
+Ma af Taɣiwant, ḍra Adeg Aɣella sta mṭhinte tamokrante anda tella l APC ines naǧ Tudrin n inesAt Yiran At Yiran
+
+At Yiran d taddart n temdint n At Buɛadu.
+Tin Iggi (Ameṛṛuk) Tin Iggi (Ameṛṛuk)
+
+Tin Iggi neɣ Tingi neɣ ⵟⴰⵏⵊⴰ (s taɛrabt : "Ṭanja", s tafransist : "Tanger") d tamdint n ugafa n Umeṛṛuk deg Arrif.Abareɣ Abareɣ
+
+Abareɣ d aɣersiw aramman (Ytett ayen yufa), Aqerruyis d ahrawan deg unyir. Adammum-is d aɣezzfan, d amesdan. Iṭarren-is d igezzlanen sdid-it (rqiq-it). Aglim-is imal ar yini azeggaɣ d učinay
+
+Abareɣ yettidir ama deg yidurar, ama deg tẓegwa, ama deg uzaɣar. Asgʷen-is yeɣɣaz-it deg wakal neɣ yettaf-it deg yefran. Iburaɣ ur ttidiren ara d tarebbut (tarbaɛt), yal yiwen deg-sen yettidir iman-s. Yettwasen s tegzi d txidas, ulac win i t-yugaren seg yiɣersiwen.
+
+Asfugel n tefsut Asfugel n tefsut
+
+Di Tmurt n Leqbayel ak d waṭas n temnaḍin n Tmazɣa, zik-nni, sfugulen medden mi d-tewweḍ tefsut. Amagger n tefsut d ansay, yella assaɣ ak-d ugama. D tagnit ideg d-mmalen medden tumert-nsen imi d-yuki ugama seg umeɣrud n tegrest, ama d imɣan, ama d ibeɛɛac. Ansay-agi d asfillet i lɣella ak-d uǧuǧǧeg n tudert.
+
+Deg umenzu n tefsut, ttenkaren medden di tafrara akken ur yeggan ara sseɛd-nsen. Uqbel alluy n yiṭij, ad yebdu umeslay d unecreḥ. Tilawin ad serḥent i teɣratin akken ad d-sakint igerdan yeṭṭsen, yerna ad kksent tuggdi i yezgaren, ladɣa qqarent-asen ɣer umeẓẓuɣ : « Beccreɣ-ken ay izgaren tekcem tefsut, teffeɣ ccetwa. » Di kra n temnaḍin, ass-ni, ttagant tilawin timmi s yimeṭṭi n uzezzu neɣ tkeḥḥilent s taẓult.
+
+Tilawin d yigerdan ttarran tiɣrifin d tḍellaɛt, tteṭfen abrid ɣer lexlawi d tɣezza akken ad maggren tafsut. Ad leḥḥun ad cennun:
+
+Qqaren daɣen:
+
+Dinna di lexla, tilawin gemrent-d imɣan, igerdan tteksen-d tijeǧǧigin d texlulin. Kra seg yemɣan ad ten-sewwent d tiremt n wass-nni, kra niḍen ḥeǧǧbent-d yis-sen tistan akken ur asent-ittruḥu ara uyefki. Igerdan, ad ṭṭfen tixlulin-nni i d-kksen ad selfen yis-sent i wallen-nsen imir ad as-inin: Mi ɛyan di tikli d ccnawi d unecreḥ ad qqimen ad ččen tiɣrifin-nni ay uwin yid-sen. Imir ad d-uɣalen s axxam.
+
+Tagella i d-ttagan medden (ama i yimekli, ama i yimensi) deg umenzu n tefsut temgarad si tembaḍt ɣer tayeḍ. Sewwayen-d tiɣrifin neɣ taḥlult n tbidest d uwren iwumi qqaren « tabazint » neɣ « tiẓemmi ». Sewwayen-d seksu s uderyis, am wakken i d-sewwayen daɣen acewwaḍ s uyefki. Acewwaḍ-agi s uyefki d tgella swayes sfilliten ad yimɣur uqḍar, yerna ad ifukti uyefki. Nezmer daɣen ad d-nebder « aɣrum bu-leḥwal » neɣ « bu-yisufar », ttarran-as daxel aṭas n yimɣan: lebṣel, ticcert, ifelfel, nneɛneɛ, felgu, timejja, zzeɛter...
+
+
+Matsuo Basho Matsuo Basho
+
+Matsuo Basho ilul deg 1644 deg Ueno, Iga Japun, yemmut deg 28 wamber 1694 deg Osaka, d amaru japun.
+
+U. R. Ananthamurthy U. R. Ananthamurthy
+
+Udupi Rajagopalacharya Ananthamurthy ilul deg 21 Dujember 1932 deg Melige, Lhend yemmut deg 22 Ɣuct 2014 deg Bengalore, Lhend, d amaru Lhend.
+
+
+
+Taswist Taswist
+
+Taswist d tamurt i d-yezgan deg amenẓaw n turuft, maca ur tteki ara di tdukla n turuft, aqarid is macci d euro, maca d l frank n suiss ,tesɛa azal n 8.5 melyen imezdaɣ, ma d tajjuma ines 41 285 km2.
+Corbin Bleu Corbin Bleu
+
+Corbin Bleu Reivers, ilul ass n 21 fuṛaṛ 1989 di Brooklyn New York, d acennay, aceṭṭaḥ, amaru n tezlatin amarikani.
+One Piece One Piece
+
+Taqsiṭ n One Piece t-ḍerru di ddunit taneɣlant, anda tarakalt d igarawen ig-meqqṛen deg-s, di ddunit-agi ak iflisen ttidiren di tallit ideg ssaramen ad sɛun tilelli, tallit imi qqaṛen " "awetay awṛaɣ n yeflisen" ". Tallit-agi tebda s uselkem n Gol D.Roger, agellid n yeflisen. Uqbel ad itt-w-aselkem, Roger iberreḥ i ddunit meṛṛa akken medden ak zemren ad ṛṛuḥen ad an nadin-n ɣef igerrujen ak id icellef deg tudert-is, " One Piece ". Ɛeddan 22 iseggasen ɣef lmut n Roger taɣedweft n One Piece tett-enqaṣ cwiṭ cwiṭ, aṭṭas ig hebsen anadi fellas, llan maḍi wid id-yeqqaṛen akken ur yelli ara s tidet. Ɣas aken iflisen simal ttuɣalen d amizi ( danger ) ɣef yegduden n ddunit, Tagrima ( la marine ) tuɣal d tamlilt uggar mgal ẓedmat-nsen ɣef ukkuz n illelen ( "East Blue, North Blue, West Blue, ak d South Blue" ).
+
+Dagi i tebda teqsiṭ n Monkey D.Luffy, yiwen ilemẓi i yebɣan ad y-illi d amseḍfar n Roger, aka i yebda assikel deg igarawen, amesɣaṛu-ines ad yesɛu Aɣlam n yeflisen akken ad i-ṛṛuḥ deg ubrid n "Grand Line", anda aṭṭan n " "temdeswelt tameqṛant n iflisen" " mazal teqqaz uger, amekan ideg ɛummen iflisen imeqṛanen i yettnadin ɣef One Piece.
+
+Luffy iffeɣ-d si tegzirt ideg yella akken ad yuɣal d aflis seg asmi yemlal netta d Shanks bu uceččuy azeggaɣ, aɣella n uɣaṛabu n iflisen id-iɛeddan ɣef tadart-is, d netta it id-iselken seg yiwen n lweḥc n lebḥuṛ, almi ig sebbel afus-is di tedyant-agi. Seg ass-nni Luffy itt-rrusu tacacit is-yefka Shanks aken ad zemlen tagalit is-yexdem Luffy aken ad y-uɣal d-agellid n iflisen. Tacacit-agi d tin ara yuɣalen d azamal n uɣlam-ines. Di lawan-agi ideg y-ečča yiwen n ugumu n cciṭṭan i yellan ɣer Shanks, agumu n Gum Gum ( agumu ukawčču ) i y-erran tafeka-s d alwawaḍ.
+7 ctember 7 ctember
+
+Ass 7 ctember d ass 250 n useggas (251 deg iseggasen "bisekstil"). Llan 115 wussan deffir-s ar taggara n useggas.
+Tamdint Tamdint
+
+Tamdint d tawennaḍt taɣarant — tawennaḍt n uɣrem — andan yella amezdaɣ ameqran n ilsanen, tallunt tettwassuddes iwakken ad yilli yeshel armud dina.Tapirus kabomani Tapirus kabomani
+
+Tapirus kabomani (semman-as daɣen «Atapir ameẓyan aberkan») (assaɣ ussnan: "Tapirus kabomani") d yiwet seg semmus n telmas n utapir deg tamussni n tals, Talmest-a d tin meẓẓiyen maca tugar tiyaḍ n iden. Tettidir deg Tamrikt n Wenẓul s tuget deg tawennat n Tiẓgi n Amazuniya, tagrut ines teffeɣ-d deg useggwas 2013.
+1918 1918
+
+Ɛli Fergani Ɛli Fergani
+
+Ɛli Fergani, ilul ass n 21 ctamber 1952 di Onnaing (Fransa), seg twacult taqbaylit , d amarir n tkurt n uḍar aqbur n agraɣlan azzayri id-yuɣalen sakkin d asleɣmay n teɣlamt taɣelnawt tazzayrit.
+
+Yesɛa-d 64 tifrayin deg 64 teɣlamt taɣelnawt gar 1973 d 1986.21 ctember 21 ctember
+
+Ass 21 ctember d ass 264 n useggas (265 deg iseggasen "bisekstil"). 
+Ctember 1952 Ctember 1952
+
+
+Bill Gates Bill Gates
+
+William Henry "Bill" Gates III (ilul-d ass n 28 tuber 1955) d amdan n iweẓla ameqran amarikani, imsefti, ameskar d amuhak. Deg useggas 1975, Gates akked Paul Allen azdisbedden Microsoft, id yuɣalen d taṛmist n iseɣẓanen i iselkimen tameqqrant ugaren tiyaḍ nniḍen deg umaḍal. Deg umecwaṛ ines ɣer Microsoft, Gates yeṭṭf-d tanarit n uselway, aselway anemhal amatu (CEO) d aɣella amasdag n iseɣẓanen, daɣen d netta yesɛan aṭas tafulin ugaren wiyaḍ nniḍen armi d mayyu 2014. Gates has authored and co-authored several books.
+
+Seg useggas 1987, Bill Gates yekcem deg wumuɣ "Forbes" n imdanen inesbuɣar ugaren wiyaḍ nniḍen daɣen d netta yella d amdan anesbaɣur ugaren wiyaḍ nniḍen gar 1995 d 2007, daɣen tikkelt nniḍen deg useggwas 2009, daɣen seg 2014. Gar 2009 d 2014, tabaɣurt ines t-ulli seg 40 imelyaṛen ar ugar n 82 imelyaṛen. Gar 2013 d 2014, tabaɣurt ines terna s 15 imelyaṛen. Bill Gates ass-agi d anesbaɣur ugaren wiyaḍ nniḍen deg umaḍal s tabaɣurt n US$90 imelyaṛen ar waggur n ɣuct 2016.
+
+Bill Gates d yiwen aṛemmas n tagrawla taselkimant ugaren wiyaḍ nniḍen. Gates yeṭṭef-d aṭas n izaɣanen ɣef tataktit ines n iweẓla, ayen ttwalin medden am mgal anemsazwar, tannayt deg kra n tijṛa sseɣretentt aṭas izrafen n tinefra. Ticki deg umecwaṛ ines, Gates yeḍfar aṭas n isenfaren imuhaken, yefka-d tallayt tameqrant n iṣurdiyen i aṭas n tuddsiwin n ṣeddeq akked ahilen ussnanen n unadi seg Tasbeddit n Bill & Melinda Gates, ttwassebd-d deg useggas 2000.
+
+Gates ittixer leqdic ines n aselway anemhal amatu n Microsoft deg waggur yennayer 2000. Yeqqim d aselway, dɣa yesnulfa-d amahil n aɣella amasdag n iseɣẓanen i iman-is. Deg waggur n yunyu 2006, Gates yesseɣret ad iɛeddi seg wakud ummid di Microsoft ar wakud amuran, daɣen ad iɛeddi ar wakud ummid di Bill & Melinda Gates Foundation. Yessekki s ufesnan tiwura ines ar Ray Ozzie (aɣella amasdag n iseɣẓanen) d Craig Mundie (aɣella n unadi d tasuddest). Ozzie later left the company. Gates's last full-time day at Microsoft was June 27, 2008. Yettixer leqdic ines n aselway n Microsoft, deg waggur furar 2014, yeṭṭfed amahil amaynu n asemtar n tisnetwilin iwakken ad yedhel CEO amaynu Satya Nadella.
+Iwunak Yeddukklen n Temrikt Iwunak Yeddukklen n Temrikt
+
+Iwunak Yedduklen n Temrikt d isem unṣib n tmurt n Marikan. Tamanaɣt ines d Washington.
+
+Paris Paris
+
+Paris, s tisenfal ines Páris neɣ Pâris, ẓer daɣen Parys d isem uzzig id efkan i aṭas n imukan, udmawen n tidett neɣ isugnanen, imuhal inaẓuranen, tisɣunin, iɣerruba, imɣan.
+
+
+
+Llant kra n 22 timdinin yesɛan Paris am isem :
+
+
+
+Kallakurichi Melur Kallakurichi Melur
+
+Melur d taddart deg tɣiwant n Kallakurichi, Asun Viluppuram deg Awanak Ahendi n Tamil Nadu. Taddart agi tesɛa yiwet corporation bank (Tabanka tanwanakt), ammas n ussesfer agejdan (yettdawi ugar n 20 tudrin deg asun nni), yiwet tabanka tanmiregt d yiwen aɣerbaz agejdan.
+
+Tamdint tamezwarut iqerben d Kallakurichi dɣa taɣiwant tamezwarut d Salem.
+Siarkowiec Siarkowiec
+
+Siarkowiec d taddart deg asun udbil n Gmina Wiskitki, deg Żyrardów County, Województwo n Masovia, deg agmuḍ alemmas n Pulunya.
+
+<br>
+Ned Stark Ned Stark
+
+Eddard "Ned" Stark d awudem n talalest deg adlis amezwaru n George R. R. Martin. Yettwassidef deg uṛuman "A Game of Thrones" ("Tirart n usgeld" s teqbaylit) n useggwas 1996, Ned d lord n Winterfell, agadir aqbur deg the North (Agafa) n umenẓaw alalas n Westeros. Ɣas d awudem axatar n uṛuman d assezgi amazrar, tuttya n lḥala n Martin yerzan Ned t-uɣaled d amyewwat i imeɣriyen n uṛuman akkw d imeshanayen n umazrar n tliẓri.
+
+Ned yettwurar sɣur Sean Bean deg tasemhuyt tamezwarut n ussezgi HBO n umazrar, "Game of Thrones", dɣa imi d ameẓyan dɣa ilemẓi sɣur Sebastian Croft d Robert Aramayo deg tasemhuyt tis sḍis. Bean yettwafren i tafrayt n Saturn Award i Asegbar n tiliẓri i yifen wiyaḍ nniḍen dɣa i Scream Award i Asegbar n Fantasy i yifen wiyaḍ nniḍen i tamlilt is. Netta d isegbaren nniḍen n umazrar ttwafranen i tafrayt n Screen Actors Guild Awards i amlazmar agermaw sɣur taɣlamt deg amazrar n Drama deg useggwas 2011.
+
+Deg "A Game of Thrones" (1996), Ned Stark d aɣella amaẓul Wuxxam Stark dɣa d ababat n sḍis igerdan. Tabuṣult n taɣɣadt deg taḥkayt, lebɣi ines : ad yeqqim mebɛid n tiddas tuḥdiqin daɣen d aralwiwaḍ deg ṛṛay-is n takdit akkw d iseɣ. Anamek n isem n twacult ines, Stark, d azbu mgal asurdu n taɣɣadt, maca tilisa ines simal ttwaweḍent deg uṛuman. Yufa-d iman-is d asegbar axatar deg usenfuffed n tiddest tasertayt n King's Landing, imenɣiyen n Ned am anamek ines n iseɣ jebden-t ar igiten imeggufsa n tanefrut. Deg lxiḍ n taḥkayt, yebedda ad i ẓer tixxutert n taɣɣadt d amsefham iẓrilew iwakken ad iḥaz tuffɣa yelhan, dɣa di taggara iḥettem ad yexter gar taɣellist n twacult-is d waxeddim n ayen yellan d azref.
+
+Sean Bean yenna-d ɣef awudem ines, "d argaz yelhan yetɛerḍen ayen igerrzen deg wulemmas n usgufsu, d aḥutiw beṛṛa n waman, innum yella deg ugafa di Winterfell anda imezdaɣen llan d iḥerfiyen akkw d isekrawanen, dɣa yufa-d iman-is deg wumkan anda imezdaɣen ttleLeɛben timlilin d tixdeɛin … d argaz n imenzayen yetɛerḍen ad yeḍḍef tadukli. D assikel id yexdem alama takdit ttawey-t-id ar uɣelluy ines di taggara."
+
+"Publishers Weekly" yegred tamawt deg useggwas 1996 af, ɣas tagermant taṣeḥḥit n Ned Stark deg tasenbert tasertayt, "ula d kra n tasḍa neɣ nneyyat yelhan ur yezmer ad yeḍḍef tagelda ddaw aḥkam." Seg aflali ines amezwaru, Ned yettwaglem am asaḍ ahaggar dɣa yettwassidef iwakken ad yilli d wul n taḥkayt. S mraw semmus n iɣfawen yettwarun i ṛṛay-is, ugar n yal awudem deg uṛuman nni, yettwassissen am awudem agejdan deg umazrar, dɣa asinaṛyu agejdan n "A Game of Thrones", tamuggit di King's Landing, yettwaḥka seg iẓri-s. Deg "London Review of Books", John Lanchester yura-d belli ayen yellan ɣef Ned yettwaxdem i usserbeḥ n tibeddit i tamella, seg anamek ines ujhid n iseɣ. Tettawin imeɣriyen iwakken ad amnen belli Ned ad yilli d awudem agejdan n umazrar, maca di taggara netta yella, seg amnad aseklan, asaḍ ukellax akelsak. Sakin yeḥaṛeb iwakken ad qqimen netta d tagelda deg ubrid n tuzzma alama d asebter aneggaru n uṛuman, afran ayiwen kan yesɛa iwakken ad yessukkes tawacult ines ilaq ad yeǧǧ iseɣ ines ɣef tama; d ayen yexdem, maca yettwaxdeɛ ɣas akken. "The New York Times", isemma-d asselkem n Ned d "amyewwat", deg useggwas 2011 yenna-d belli aṛuman yella "mechuṛ iwakken ad yefk awudem imgerrez aṭas armi imeɣriyen ttwaɛqilen deg-es." Deg yiwet tadiwennit i "Entertainment Weekly", ameskar George R. R. Martin yenna-d ɣef taɣda agi tucciḍt :
+
+David Benioff, anfaras aslekman d amaru n ussezgi HBO, yenna-d i "Entertainment Weekly" belli imi-d yeɣra aṛuman nni :
+
+Deg yiwen azɣan n "Baelor" n aḥric n umazrar "Game of Thrones", James Poniewozik yura-d deg "Time" belli "asselkem n Eddard Stark d anzeryan i taḥkayt akkw d isental ines dɣa akkw ayen iḍeffeen, maca d meta-izen daɣen i umeɣri : Ur teddem ara kra am aken d ulkin d agi." James Hibberd n "Entertainment Weekly" yessekned belli akellex n umeshanay aken ad yesnezgem belli Ned d asaḍ dɣa nɣant, d waya id yerran taḥkayt n umazrar agi d amaway. Yura-d belli "aɣayan ameqran macci d lmut n Ned Stark, maca anwi i d asaḍen n tidett n "Game of Thrones"," Hibberd i ssekned belli amazrar yeslummes ar "tasuta tamaynut" n iɣellaten, deg umaẓlay tarwa n Stark maca daɣen Daenerys dɣa ahat Tyrion. Yenna-d:
+
+Aken yeɣser deg "A Game of Thrones", Eddard "Ned" Stark d mmis wis sin n Rickard Stark, Lord n Winterfell. Iseggwasen uqbel n uṛuman nni, asusam d imsetḥi Ned ilemẓi yettummager di Iɣzer n Arryn sɣur Jon Arryn. Deg tallit nni Ned yuɣal d ameddakel aqrib n Robert Baratheon, amekkasu ar Stormlands d yiwen ward nniḍen n Arryn. Robert yettuṛeggmen agaran i Lyanna weltma-s n Ned, maca uqbel ad yezmer ad yezwej yid-es, Ageldun amekkasu Rhaegar Targaryen (izewjen yagi dɣa yesɛa sin igerdan ilemẓiyen) yerwel s Lyanna. Baba-s n Ned akkw d Brandon, gma-s ameqran ṛuḥen ad ẓren Agellid Aerys II Targaryen dɣa ssuteren as ad yeslelli i Lyanna ; win i semman medden "Agellid Aderwec" yesselkem Rickard d Brandon, acku yettwaqenneɛ belli Stark tettnadin ad atakren. Ned, Robert d Arryn ssenkren tanekra, s tallalt n Axxam Tully s zzwaj n Ned d Catelyn Tully. Ned i ṛuḥ ar umgaru azekka nni n zzwaj ines.
+
+Deg imenɣi aferray n Trident, Robert yessiweḍ ad yeneɣ Ageldun Rhaegar dɣa yemewziwez igen n Targaryen. Robert yettwajreḥ deg imenɣi, ihi Ned yeddem anzaḍ dɣa yekemmel tikli ɣef tamaneɣt. Deg King's Landing, Ned yufa-d belli Axxam Lannister — seg taxeddɛit — yesswaɣ tamdint nni, dɣa yenɣa Aerys d akkw tawacult tageldant. Yegehem sɣur tanegzart timseɣlit, Ned yeṛuḥ ad yekkes asutel n Storm's End, agadir n Baratheon, dɣa sakkin, yeɛred ad yessukkes Lyanna maca yufa-ttid tettemtatt ; awalen is ineggura d "Ṛeggem-iyid Ned." Ned yuɣal ar Winterfell s mmi-s afɣul Jon Snow ; deg taswiɛt nni, Catelyn ttarwed i mmi-s d amekkasu n Ned, Robb.
+
+Sḍis iseggwasen sakkin taggara n uɣewwiɣ n Robert, Balon Greyjoy, Lord n Tigzirin n Wuzzal, yesseɣret azarug seg Asgeld n wuzzal. Ned yeɛiwned Agellid Robert ad i ssens "Aɣewwiɣ n Greyjoy". Balon yessers imrigen, dɣa amekkasu ines ayiwenand, Theon, yettwawey ar Winterfell am amummu d ameṛhun n Stark. Ned yeḍebbe Agafa i tẓa iseggwasen nniḍen uqbel tidyanin n tawezlant.
+
+Imi id yebdda "A Game of Thrones", Catelyn tesselɣu Ned belli aselmad (mentor) ines Jon Arryn yemmut, dɣa belli Agellid Robert yebɣa ad as yefk i Ned axeddim aqbur n Jon : Afus n Ugellid. Yeɛjeb imi-d yella mebɛid seg tiddas n tanefrut, Ned ikukra ar aqbal i usefk agi arma id yeḍḍef tabṛat n taǧǧalt n Arryn, tecikk belli d Axxam Lannister i s yefkan acecci i argaz ines. Umbeɛd Ned yeqbel axeddim i ammesten n Robert. Dɣa yessikel deg Wanẓul ar King's Landing s yessi-s Sansa d Arya. Catelyn ticki t-ussad ar tamaneɣt s uffir, ddaw leɛnaya n umeddakel is n tagerda Petyr "Aḍad Amecṭuḥ" Baelish, iwakken ad-as-t-ini i Ned belli yella aneɛruḍ n timenɣiwt mgal mmi-s ameẓyan Bran. Aḍad Amecṭuḥ yessaki-d ahareb aqdim n Ned mgal Axxam Lannister imi id as yenna belli d Tyrion Lannister i d amli n tafrut yettusseqdecen sɣur aneḍlib ameckuk. Simal yenneɣjaf si tiddas tisertayin di tibeddit, agaran Ned yettixer seg axeddim ines imi Robert yesseḥṛes iwakken, agrud aneggaru n Aerys i tteddren mazal, tilemẓit Daenerys Targaryen, ad tettwenɣ di lɣurba. Gar waya d wayen niḍen, Catelyn ttawey ameṛhun Tyrion ar Eyrie, dɣa i tiɣawyin Jaime Lannister yenṭeg ɣef Ned dɣa yejarḥ-it s tewɛaṛt deg yiwen wubriḍ uqbel netta d yessi-s kkren ad ṛuḥen ar King's Landing. Imi Robert i ṛuḥ ad i ẓer Ned yettwajerḥen, yerr-as axeddim n Afus.
+
+Agaran Ned yefhem belli akkw imekkusa n Robert s Cersei d iklucen, d agmuḍ n assaɣ amegdul gar nettat d gma-s iken Jaime. Ticki, Ned yecikk belli Arryn yettwacecci iwakken ad tffer tidett. Ned yesseqqabel Cersei s ayen id yufa dɣa yefka-yas-d talemmiẓt ad terwel di lɣurba s igerdan is. Uqbel Ned ad as yini i Ugellid, Robert yettwajraḥ asmi d-i-ṛuḥ ar agmar dɣa uqbel ad yemmet yesemma-d Ned am amastan n Tagelda, deg waxeddim n ameksaw alma "mmi-s" Joffrey ad yaweḍ ar leɛmeṛ ad yuɣal d agellid. Ned yebeddel tiɣest n Robert, yebeddel isem n Joffrey s "amekkasu uzrif inu" iwakken axlaf nni ad yilli d amenzar. S leqṣer deg tawernaḍt, Ned yegguma aṭas n issumren iwakken ad yemmerni adabu ines, wala ad yefren ad as yefk aqacuc i gma-s n Robert, Stannis Baratheon, iwakken ad yilli d agellid. Cersei, imil, tessiɣreyed Ned, dɣa Aḍad Amecṭuḥ aḥṛaymi yessuter i imḍiren n uɣaram ad sseḥbsen Ned wala Cersei. S akkw tawacult is tettwenɣ, Sansa d tameṛhunt d Arya di tarewla iman-is, Ned yettwatthem s tixeddaɛt. Ufan-d anmekni ayyes Ned ad yemneɛ dɣa ad yettuceggaɛ ar lɣurba ma yeqbel ad yesseɣret d agellid uzrif. Imi yugad i yissi-s, Ned yexddemed taseɣrut tanagdudt n "tixeddaɛt" ines. Amunner Joffrey, imil, yenɣat ɣas.
+
+
+Deg waggur n Yennayer 2007 targa HBO t-uɣa-d izerfan iwakken ad tessezg amazrar n Martin i tiliẓri. Imi timekkest tettuceggaɛ ar afares deg useggwas 2009, taseɣrut n casting tis tamezwarut tella af Sean Bean deg dduṛ n Eddard Stark. Tagensest tamezwarut tettwassihel deg useggwas 2011, "Los Angeles Times" yesemmi Ned n Sean Bean "the strong and brooding headliner of the series" (itri ujhid d abuḍḍlam n umazrar).
+
+Am deg tawezlant, Ned yetwaɣemmeḍ deg "Baelor", aḥric wis tẓa n tasemhuyt 1. Ula d angar n awudem is yettuhenna i tazrirt ines deg taɣerfa n taḥkayt nni, James Hibberd n "Entertainment Weekly" yenna-d ticki belli
+Hibberd yessared taseɣrut n unfaras n amazrar belli "tadyant agi tesbeḍ amedya amuggi i umazrar : ula d yiwen yesdari." Ye semmi waya d igi "amenci" iban ad yesɛerreq imeshanayen id ḍefren amazrar i Bean, maca ad yejbed widak i wehmen sɣur takayist n waya. Anfaras aslekman d ameskar D. B. Weiss yenna-d i "Entertainment Weekly" deg useggwas 2011 belli imi netta d Benioff xedmen pitch n umazrar i HBO, tadyant belli "awudem agejdan" Ned yessefray ad yemmet "d afakul amsenzi i nitni." Mi i wala targa nni tenɣa iwudam igejdanen deg imazraren nniḍen yesɛan lerbaḥ, yenna-d belli tanila nsen n umihi "yessuli aswir s waṭas ma yiwen awudem yella deg addad yeqenḍen ma teẓriḍ awudem nniḍen deg addad am winna, ur d-yettidir ara." Aselway n ussihel n HBO Sue Naegle teqbel, tenna-d belli lmut n Ned yerra-d amazrar ameɛjab ugar uqbel, t-erna-d belli "Aṛuman yeččur s iɣayanen d takunin. Hemmleɣ-d takti agi nebɣa ad nessegrew iwudam, dɣa ict n twala t-umneḍ iwudam n asaḍen, tekkseḍ tuga ddaw iḍarren nsen."
+
+Deg tasemhuyt 1, Agellid Robert Baratheon yessutred i ameddakel is aqbur Eddard "Ned" Stark, Lord n Winterfell dɣa Amḍif n Ugafa, ad yeqbel axeddim n Afus n Ugellid sakkin yemmut aselmad nsen, Jon Arryn. Ur yekna ara ɣer tasertit neɣ tiddas n tinefra, Ned yeqbel mgal tiɣest ines, yeqbel daɣen iwakken ad yaf amek yemmut Arryn. Robert yettweneɣ seg mi Ned yefhem belli kraḍ igerdan id yesɛa s Cersei ababat nsen d gma-s iken n tagellidt, Jaime. Uqbel Ned ad yezmer ad yesseḥbes Cersei dɣa ad yers gma-s n Robert, Stannis, ɣef asgeld ; yettwaxdeɛ sɣur Aḍad Amecṭuh, dɣa tagellidt tessḥebsit i tixeddaɛt. Ned yexeddmed taseɣrut tanagdudt iwakken ad yessukkes yissi-s seg urfan n Cersei, maca Joffrey yeɣemmeḍ-it ɣas.
+
+Deg aḥric "Axxam" n tasemhuyt 6, Bran yewala timeẓriwt n Ned (Sebastian Croft) imi d agrud s weltma-s akkw d gma-s, Lyanna d Benjen. Deg aḥric agi, "Amerẓaw n Tagallit", Bran d anagi n imenɣi gar Ned ilemẓi (Robert Aramayo) d amnay Ser Arthur Dayne di Taneḍḍaft n Lfeṛḥ. Di taggara, deg aḥric aneggaru "Ibeḥriyen n Tagrest" n tasemhuyt, Bran yewala Ned yettwassemlil s Lyanna (Aisling Franciosi) yettmettaten deg taneḍḍaft. Tessgall-as ad yeḥudd mmis (n nettat)—Jon Snow.
+
+Bean yetwasemmad i Saturn Award i Best Actor on Television dɣa Scream Award for Best Fantasy Actor i dduṛ ines. Netta d imaslaḍen nniḍen n taɣlamt twasemman i Screen Actors Guild Award i Outstanding Performance by an Ensemble in a Drama Series deg useggwas 2011.
+Awudem n talalest Awudem n talalest
+
+Awudem n talalest, d aterras asugnan id yeffɣen seg amahil aseklan. Yezmer ad yilli d amdan, persona, tamagit neɣ tayunt ayɣef taneṣlit n usnulfu ines yella deg umahil neɣ dduṛ n amahil n talalest. Nnig imdanen, iwudam zemren ad illin d tayunin tifɣagniyin am llant deg idles aɣerfan, des iɣersiwen, iyucen neɣ tigzi taragmawant.A Game of Thrones A Game of Thrones
+
+A Game of Thrones (s teqbaylit Tirart n isgelden) d adlis amezwaru n tamɛayt "A Song of Ice and Fire" yettwarun sɣur George R. R. Martin. Adlis, s iswaɣ n tallit talemmast, yeffeɣ-d deg lqem aneṣli deg useggas 1996, dɣa deg lqem taṛumit gar useggas 1998 d 1999. Yerbeḥ arraz Locus n uṛuman amaway n fantasy deg useggas 1997.
+
+Adlis yettwagzem s sin imuren sɣur umaẓrag Pygmalion :
+
+Sin isunaḍ agi twassuffɣen-d deg tiddi tamecṭuḥt sɣur umaẓrag J'ai lu :
+
+Sin isunaḍ nni ttwamlilen deg yiwen ableɣ yettwasemman "Le Trône de fer, l'intégrale 1" iwakken ad yecbu ar uṛuman aneṣli :George R. R. Martin George R. R. Martin
+
+George R. R. Martin, ilul ass n 20 ctamber 1948 di Bayonne (New Jersey), d amaru amarikani n tussna n ussugen dɣa n fantasy, daɣen d amessiyes akkw d anfaras n tiliẓri. Amahil ines yettwasnen ugar wiyaḍ nniḍen d "A Game of Thrones", yettwassezgan ar tiliẓri sɣur HBO ddaw azwel "Game of Thrones". Yerbeḥ aṭas n arrazen iseklanen dɣa yettwafren sɣur tasɣunt "Time" am yiwen n imdanen ugaren wiyaḍ nniḍen yesɛan tazrirt ɣef umaḍal deg useggas 2011. Ass agi yettwaḥsab am "Tolkien amarikani".
+World of A Song of Ice and Fire World of A Song of Ice and Fire
+
+Amaḍal asugnan aydeg iṛumanen "A Song of Ice and Fire" n George R. R. Martin dran yetwagzam s aṭas imenẓawen. Amur ameqran tedra deg umenẓaw n Westeros, neɣ Sat Tigeldiwin. Yesɛa idetti tẓat tigeldiwin (Agafa, Tigzirin n Uzzal, Akal n Isafen, Iɣzer, Akal n Ataram, Akal n Tizekkiwin, Targa, Akal n Tikuṛunin, d Dorne).
+
+Agafa (The North) d azgen n ugafa n Sat Tigeldiwin dɣa yettwaḥkem sɣur Axxam Stark seg Winterfell. Agafa d ameqran qrib anect sḍiset tigeldiwin nniḍen ttwassemlilent, maca yesɛa cwit kan n imezdaɣen. Martin yequren Agafa s Tikust. D asemmiḍ deg Ugafa; yekkat wadfel s uskir maca deg akkw tisemhuyin, yili tigersin ttwaglament am aken d tiweɛṛanin macci d kra. Talast tagafat n aẓi d New Gift, azawag n wakal n 80 km yettwammestenen sɣur Taɛessast n Iḍ.
+
+Winterfell d tamdint tazaykarawant n axxam Stark, inebbaḍen n ugafa n Westeros. Yettwabnu sɣur Brandon Stark « ameṣkaw » (""), d yiwen n igelliden imezwura n Ugafa, d netta yellan deg taneṣlit n Aɣrab. Ɣas anezwi n Ugafa, imezdaɣen n Winterfell ur tenyenɣa ara usemmiḍ acku tamdint tettwabnu ɣef tala n waman aḥmayan yettɛaddan gar iɣerban sɣur anagraw amegzu n iẓeṭwan n tregwa|, i ttsseḥmun aka tizeɣwin d tixxamin dɣa yetssinef tagrist n lqaɛa, deg unebdu am deg tagrest.
+Kappa Mikey Kappa Mikey
+
+Kappa Mikey (s tanglizit : "Kappa Mikey") sulfen-t-id imarikaniyen aseggas n 2006 sɣur Larry Schwarz. Tɛadda deg telenẓar i tikelt tamenzut ass n 2006.
+California's Gold California's Gold
+
+California's Gold (s tanglizit : "California's Gold") ssulfen-t-id imarikaniyen aseggas n 1991 sɣur Huell Howser. Tɛadda g telenẓar i tikkelt tamenzut ass n 1991.
+Gene Wilder Gene Wilder
+
+Jerome Silberman, ilul ass n 11 yunyu 1933 di Milwaukee Wisconsin, d acennay, aceṭṭaḥ, amaru n tezlatin amarikani.
+Joan Rivers Joan Rivers
+
+Joan Alexandrea Molinsky, tlul ass n 8 yunyu 1933 di Brooklyn New York City, d tacennayt, taceṭṭaḥt, tamarut n tezlatin tamarikanit.
+Lwis XIII Lwis XIII
+
+Lwis XIII "uɣdim" mmis n Hanri IV akked Marie n Médicis ,ilul ass n 27 cutmber 1601 de waṣuk n Fontainebleau yemmut ass 14 magu 1643 deg aṣuk amaynut n Saint-Germain-en-Laye ,tisulya as akked tgeldunt anna n lɛerc n tutrict d aggemmu id yewwin sin warrac yiwen d Lwis XIV ad yeṭṭfen amḍiq is ma d wayeḍ Philippe duc d'Anjou ad yesenzu axxam n Orléans.
+Lwis XIII d agellid afransis si 1610 ar 1643 , tagelda as ɣmeṛ ɣef tecreḍ usenḍuḍeɛ n prutestiyen ,abellen mgar tagelda tutrict, dayen ad iwekden aɣmaṛ d yiɣil iserdasen n tmurt n franca di lber n turuft di tṛad n kṛadet iseggasen.Carrie Fisher Carrie Fisher
+
+Carrie Frances Fisher, tlul ass n 21 tuber 1956 di Beverly Hills California u temmut ass n 27 dujamber 2016, tella d taceṭṭaḥt tamarikanit.
+Taspnyult n beliz Taspnyult n beliz
+
+Taspnyult n beliz d tutlayt yetmeslayen deg tmurt n Beliz.Filippin Filippin
+
+Fillipin D yiwet n tmurt d-yezgan deg n wenẓul n usamar n Asya.
+Taɣerdayt Taɣerdayt
+
+Taɣerdayt d yiwet n tɣiwant n ugezdu (tawilayt) n At Weɣlan (Mẓab) deg tlemmast n Lzzayer. 
+
+Tamedint-aggi tezgad ar 600 n ikilumitren ar tama n wadda n Lzzayer tamanaɣt. Taɣedayt d nettat i tamanaɣt n tmurt n Waɣlan (Mzab).
+
+D yiwet n temdint yettwasnen aṭas, dɣa tettiki deg wayyen umi qqaren "Patrimoine de l'Unesco", di lmaɛan-as d yiwet n temddint yesɛan azal amuqran deg umaḍal. 
+
+Tezga-d ar 600 n ikulimitren ar tama n wadda n Lzzayer tamanaɣt, ar 190 n ikilumitren ar tama n wadda n Leɣwaṭ, ar 190 n ikilumtren ar tama n usammer n Warǧelen (Wargla).
+
+Isem n tɣardayt yussa-d si tmeslayt n Tmaziɣt (Tumẓabt). Isem-ines yettwaɛreb ar "Ɣardaya".
+
+Imezday n temdint aggi, neɣ ar tura ssawalen-as s yisem-is amaziɣ "ad zwiɣ ɣel Tɣerdayt" 
+Ferdinand Marcos Ferdinand Marcos
+
+Ferdinand Emmanuel Edralin Marcos yella d aselway n Filippin (1965-1986).
+Rodrigo Duterte Rodrigo Duterte
+
+Rodrigo Duterte d aselway n Filippin (seg 2016). Ilul deg 28 Meɣres 1945
+Takselt (taɣiwant) Takselt (taɣiwant)
+
+Takselt neɣ Takesna seld n userɣen (s Tafransist: "Texenna", s Tserɣint: "تاكسنة") d taɣiwant n Tmurt n Iqbayliyen tezga-d al g anẓul n ugezdu n Jijel. Taɣiwant-aya, tla (tesɛa) azal n 15 682 imezdaɣ deg useggwas n 2008. G tallit n tuṭṭfa llan qqarn-as ""Douar M'etlatine"".
+Valparaiso Valparaiso
+
+Valparaiso d tamdint deg wanẓul n Cili.
+Murasaki Shikibu Murasaki Shikibu
+
+Murasaki Shikibu ilul deg 973, yemmut deg 1031, d amedyaz, amyaru n japun. Murasaki Shikibu Iɣra di Heiankyo d tamaneɣt n tmurt n japun.
+Aslen Aslen
+
+
+
+Afriwen-is lhan d lɛalf i lmal akken d izegzawen. Leqbayel ttḥuccun afriwen n uslen s ufella n tejra yiwen useggas, aseggas wis sin gez̧men-t-id, ttḥuccun-t af tmurt.Taferfra Taferfra
+Taselmett iẓekwan Taselmett iẓekwan
+Tarnast Tarnast
+
+Bhumibol Adulyadej Bhumibol Adulyadej
+
+Bhumibol Adulyadej d aselway n Tayland (1946-2016).
+Tazeggart Tazeggart
+
+Imidek Imidek
+
+Imɣi Imɣi
+
+Imɣi (Asget: imɣan), (assaɣ usnan: "Plantae") d tagrawt tagejdant n imuddiren amdya: isekla, ijeǧǧigen, Tuga, Timedkin d ifilkuten.
+
+Ttugzamen yemɣan ar yemɣan imsifsan, imɣi aragran d ifilkuten.
+
+Deg 2011 tetwafser-d yiwet n tɣuri d akken llan-t 8.6 n imelyan n telmas g tgelda n yemɣan, 6,5 n imelyan deg telmas-a ttidiren-t deg wakal, 2,2 n imelyan n telmas ttidiren-t deg yilel, Ar useggas n 2004 ttwasismlen wazal n 287,655 n telmas, Deg-sent 258,650 ǧǧuǧugen ma d 15,000 n telmas d iragranen, imɣan d imuddiren imsečmanen (tettak učči i yman-is]] yakk i yiɣersiwen d ifganen daɣen).
+
+Affar Affar
+
+Bibras Bibras
+
+Asɣaṛsif Asɣaṛsif
+
+Asɣeṛsif d yiwet n tewsit n isekla yeṭṭafaren tawacult n tsemlalin d tfesna n temderranin
+Tidqacest Tidqacest
+
+Isem s teqbaylit yekka-d si 
+Tibinṣaṛt Tibinṣaṛt
+Blittu Blittu
+Asɣeṛsif n weẓṛu Asɣeṛsif n weẓṛu
+Timenṭeṭ Timenṭeṭ
+
+Timenṭeṭ (isem usnan: "Ammi visnaga") d yiwet n telmest n yemɣan yeǧǧuǧǧugen tettemɣay-d yal aseggas neɣ sin seg yiwen n wayaw, tiddi ynes tettali ar 80 cm, ma d iferran-is 20 cm.
+
+Tettemɣay-d deg Asya, Turuft d Tefriqt ugafa.
+Idles Idles
+Taqejjirt n tgerfa Taqejjirt n tgerfa
+
+Taqejjirt n tgerfa, isem usnan: ("Anacyclus clavatus") d yiwen n yemɣi iṭṭafaren taggayt n asteraceae.
+Tigentest Tigentest
+Meɣlis Meɣlis
+
+Meɣlis neɣ Taṭṭucin n tṛumit
+Ufni Ufni
+
+Tiɣunam Tiɣunam
+
+Taduṭ n wulli Taduṭ n wulli
+Tawnuct Tawnuct
+Sisnu Sisnu
+Ayerni Ayerni
+
+Ayerni neɣ Abeqquq neɣ Abgug.
+Ayerni n wuccen Ayerni n wuccen
+
+Ayerni n wuccen neɣ Abeqquq n wuccen 
+Iskimen Iskimen
+
+Iskimen neɣ Iskim neɣ Izikem
+
+
+Ajṛaṛxi Ajṛaṛxi
+
+Ajṛaṛxi neɣ Afeqqus weɣyul.
+Aẓekkun Aẓekkun
+
+ 
+Iɣri (imɣi) Iɣri (imɣi)
+
+Iɣri (Yettwassen s: "Aberweq" dɣa yusa-d seg Teɛrabt "البروق"), (assaɣ usnan: "Asphodelus") d tawsit n yemɣan yeṭṭafaren tawacult n teɣrit dges azal n 15 n telmas.
+
+Yettemɣay-d deg tmura yejban ɣef ilel agrakal akk d Turuft tutrimt
+
+Anekraf Anekraf
+
+Timeṛṛeẓṛaz Timeṛṛeẓṛaz
+
+Izri amellal Izri amellal
+
+Izri amellal (yettwasnen s Cciḥ), (isem usnan: "Artemisa herba alba") 
+
+Taseṭṭa n meryem Taseṭṭa n meryem
+Blitu Blitu
+
+
+Asikun Asikun
+
+Taferzizt Taferzizt
+
+Taferzizt neɣ Tiẓurin n wuccen neɣ Blideɣ
+
+Tikilmut Tikilmut
+
+Arbib n mernuyet Arbib n mernuyet
+
+Umellal Umellal
+
+Atizar Atizar
+
+Tikjda Tikjda
+
+Idurar n Ǧerǧer yessan s udfel d win i d-yefkan yiwet n cbaḥa i temnaḍt. D ayen yeǧǧan aṭas n yimezdaɣ n temnaḍin i d-yezzin i Tubiret ttasen-d yal taggara n yimalas iwakken ad kksen lxiq. Ula d tiwilayin yecban Sṭif, Burǧ Bu Ɛririǧ, Bumerdas, Lezzayer tamaneɣt, Msila d tiyaḍ nettwali imezdaɣ-nsent di Tikjda. Lkiran i d-yettawin inelmaden mačči d yiwet neɣ d snat, almi ur yeshil ara uɛeddi ɣer waṭas n yimukan s tkerrust. Taggara n yimalas-a yezrin, imi tignewt d tin n tefsut, aṭas i d-yusan ɣer umkan-a n tmerrit mebla ma ṣṣawḍen ad d-ẓren ayen akk i bɣan. Tikerrusin mseḍfarent ta deffir ta ɣef wazal n nnig n 3 ikilumitren, d ayen yeǧǧan tuget n yimdanen ddan ɣef uḍar. Tiwaculin d yigerdan ufan akka tagnit i umerreḥ, imi adfel mazal-it deg tqucac-a n Ǧerǧer. Si tama-nsen, iɣallen n laman d wid ibedden akken iwata, ttḥaraben ɣef lehna n yimerriyen.Asemlal Asemlal
+
+Asemlal neɣ Ccix n lebqul, (isem usnan: "Populus") d yiwet n tewsit n yemɣan yeṭṭafaren tawacult n tsemlalin
+
+Ṛṛus Ṛṛus
+
+Timeẓwanin Timeẓwanin
+Irden n tsekkurt Irden n tsekkurt
+
+Ccer n yilef Ccer n yilef
+Aḍil n wuccen Aḍil n wuccen
+
+Tasennant n teksayent Tasennant n teksayent
+
+Uǧana Uǧana
+
+Uǧana (Tafransist: Oujana, Taɛrabt: أوجانة), d yiwet taɣiwant n Tmurt Leqbayel, i tezga-d al 30 km g anẓul n Tawilayt n Jijel. Taɣiwant-aya, tesɛa azal n 9 580 deg useggas n 2008. Di lweqt n listiɛmar llan qqarn-as "zemmouren", Imezdaɣ-ines mazal ihadren Tamaziɣt (Tasaḥlit) lwaḥi d Taɛrabt (Taǧiǧlit).Šiprage Šiprage
+
+Šiprage (Шипраге) d tamaneɣt n Busnya ed Hirziguvina, d tamurt n wenẓul (sud) n Turuft, tezga-d deg Tzunegzirt n Balqan. Zedɣen-tt 788 n yimezdaɣen (2013).
+
+Tamdint-a tenḍerr aṭas seg wemgaru-nni (ṭṭrad) ay inekren deg Busnya ed Hirziguvina gar 1992 ed 1995.
+
+Arica Arica
+
+Arica d tamdint deg wanẓul n Cili.Tanzarin n temcict Tanzarin n temcict
+
+Tinzarin n temcict neɣ ""Azwiwel"" d yiwen n yemɣi id yettemɣyen seg tallit n tefsut, Isem-is usnan: ("""Calendula arvensis""")
+
+Taqsult u gazir Taqsult u gazir
+
+Roubaix Roubaix
+
+Roubaix d tamdint n Fransa, tella deg agezdu n Nord, tezga-d deg ugafa n tmurt, tebɛed kan 5 km ɣef tmurt n Biljik. Tesɛa azal n n imezdaɣen deg useggwas n 2013, tajumma-s d km² .
+
+Thuya Thuya
+
+Azzu Azzu
+
+Tamezrurt n ṭaɣaṭ Tamezrurt n ṭaɣaṭ
+ISO 3166-1 ISO 3166-1
+
+ISO 3166-1 d yiwen seg yeḥricen n tizeɣt ISO 3166. 
+
+Tessuffeɣ-it-id ISO, i tikelt tamenzult deg 1974, tikelt tis snat deg 2006, tikelt tis kraḍ deg 2013, tettmuddu  3 n tengalin i tumra  n umaḍal  :Ɛumar Xaleq Ɛumar Xaleq
+
+Ɛumar Xaleq (s trumit : Omar Khaleq (Izem)), ilul-d ass n 28 ɣuct 1990 g iɣrem n Ikniwn g Ṣaɣṛu anẓul ugmiḍ n tmazɣa tutrimt. Issnta taɣuṛi nnes g tgrumma tanmlant Bugafer dffir as iddu s usinan n usmuttg Ɛssu Ubaslam illan g "Ikniwn (ⵉⴽⵏⵉⵡⵏ)". Ismd Yizem tiɣṛi nnes g usinan n usmdi Bu-mal n Dads allig yumẓ Bakaluṛya nnes g tskla d tussniwin tinafganin g usggwas n 2011. Izem am netta am qaḥ imezrawn n usammer wenna d yiwin Bakaluṛya nnes iqqn t inn ad immuddu afad ad ifukku taɣuṛi nnes g tsdawit, Izem netta idda s Amur n wakuc (Marrakech ). Istey Ɛumar Xaleq asaka n umezruy d tɣerma allig digs yumẓ turagt nnes asggwas n 2015. Yamu Yizem g mayd igan tirsal irar d iman i Umussu Adelsan Amaziɣ g wayaw n Umur n wakuc isbdd as aḥmmaṛ, iddeɣ ntta d yan sg imeɣnasen ixatarn n Umussu adelsan amaziɣ sg temẓi nnes (ikka g umussu n inelmadn d tweɣni n Ayt Ɣiɣuc). Aya ayd yudjan Izem ad ittnaɣ af tmaziɣt s idammen nnes.
+
+Tadggwat n wass n usiḍyas 23/01/2016 ittut Yizem d imeddukkal nnes dat n tsdawit s ifassen n icenga n tmaziɣt (winna ittinin i iɣfawen nnsen gan imezrawn n tgdudt taɛrabt taṣḥrawit/ Ljumhuriya Lɛarabiyya Ṣṣaḥṛawiya). Zrin kan wussan idrusn ffɣen yiman tafgga n Yizem acku ittunbar s ijenwiyn d tkuba d mayd akw igan amrig n wuzzal ass n 27/01/2016.
+
+Ass n 28/01/2016 yuder Yizem g iɣrem nnes Ikniwn gr idurar n Ṣaɣṛu g wakal n imarawn nnes d ayt mas iẓẓeln iṛumiyn g isggwasn n 1933 1934.
+
+ass n 5/03/2016 ittuga usmmekti n wass wiss 40 n tmettant n Yizem g Ikniwn manen nn akw imeɣnasn n Umussu Adelsan Amaziɣ ad sefsisn xf tawja n imeqqzi. Iffeɣ d yan udlis igan amud n tmdyazin assaɣ nnes IⵣM ismun kullu timedyazin ittyarun af Ɛumar s tmaziɣt d tfranṣiṣt d teɛrabt.
+
+ass n 5/02/2017 tettuga tfugla n umulli n usggwas amezwaru n tmettant n Yizem g iɣrem n Ikniwn.Neǧma Tafat Neǧma Tafat
+
+Neǧma Tafat (neɣ Nedjma Tafat s trumit) d yiwet n tmedyazt n Ǧerǧer ittwassnen s yisem n Ǧamila Taferka deg yiseggasen izrin. Tebda asurif-is amenzu deg tira n yisefra aseggas 1999 s tedwilt n tmedyezt war tilas i d-yetttheggi yal ddurt umekfaḍu Muḥend Taferka deg usadrar n tmaziɣt brtv. 
+
+Neǧma Tafat d yiwet n tmeṭṭut ifkan azal meqqren i usefru iččuren d leḥnana akked tayri zeddigen, tamedyezt-is d lɛinser n thuski af uya i tḥuza aṭas n yemdanen i d as-isellen di lawan-nni s ttawil n tiliẓri d umaṭṭaf n brtv.
+
+Neǧma Tafat isem-is aḥeqqani Ǧamila Saɛad tlul di buɣni, deg yiwet n twacult isɛan sebɛa tullas am wakken hekkun di tmucuha tiqburin. Tessufeɣ-d sin yedlisen s tmaziɣt s yisem n Ǧamila Taferka (tiregwa n nnfiḍ) deg useggas 2006 ar tezrigin "le savoir" deg Tizi-wezzu, wis sin (Af yiri n usigna) deg useggas 2014 ar tezrigin tira di bgayet. 
+
+Am wakken i d-tessufeɣ sin yedlisen imaynuten s tefransist (L’étoile du désert) di 2016 akked (Fragments de moi) di 2017 ar tezrigin muse, sin yedlisen-agi ineggura d tisuqilin n kra deg wayen tura.Aɣyul n wureɣ Aɣyul n wureɣ
+
+Aɣyul n wureɣ d yiwen n ungal i yura umyaru amaziɣ Afulay ("Apuleius") deg uwines wis sin seld tlalit. Yettuneḥsab d ungal amezwaru maḍi yakk deg umezruy n talsa. Yura-t s tlatint.
+
+Ullis i d-yeddan deg-s iḥekku-d ɣef yiwen n ilemẓi iwumi qqaren "Lusyus" (d isem uymaru s yiman-is) i yunagen ɣer tmurt Igrigiyen ɣef kra n ccɣel, yuɣ lḥal Lusyus-a d awnaf aṭas, ira (iḥemmel) ad yegzu u ad innekcem g kra yellan, akken i iteddu yettnadi armi yurem (yeɛreḍ) ad yekcem deg lumuṛ n ssḥur d wid i ten-ixeddmen, dɣa yessen-d yiwet n tmeṭṭut, d taqeddact n umdakel-is Milu uɣur yerza, tezdi-ten tayri kra n wussan deg uxxam-nni, akken armi d yiwwas teɛreḍ ad t-tɛiwen s ukerrer akken ad yuɣal d igider ; maca i twenza tamcumt, yuɣal d aɣyul, ihi din i d-bdan yingazen-is d icaliyen-is n leɛtab akked wid i d-yemlal gar imakaren, iqettalen, imeksawen, iɛebbaden n yilluten, imeṛkantiyen d wiyaḍ ; ayen ur nfukk armi t-terra tillut Izis (d tillut tamaṣrit) ɣer ṣṣifa-s tanaṣlit n wemdan. Deg teqsiṭ, m’akken yella deg tfekka n uɣersiw bu-rebɛa iḍarren, allaɣ n Lusyus yeqqim d win n wemdan kan, daymi yessaweḍ ad d-yedlu ɣef ayen yeffren deg tmetti, cceṛ akk yettmaggan ideg ilaq ad yettekki tikwal netta s yiman-is, yerna acḥal d abrid i yewweḍ ɣer yimi n lmut, s ẓẓher kan i imenneɛ. Ihi d tilufa iwumi yeḥḍer i d-yewwi deg wullis-is anda i d-yessexlaḍ tiqsiḍin d tmucuha iwumi isell daɣen ɣer wiyaḍ ssya ɣer da. Taxatart gar-asent d tin n Psici (Psyché) d Cupidu i d-iḍehren i tekelt tamezwarut deg udlis-a syin tuɣal terna ɣer tmitulugit taqburt. Aɣanib n umeskar yeččur d asaran ; s kra la d-yettales, yettarra kulci ɣer yir ẓẓher i t-yeṭṭafaren anda yekka uqbel ad kfunt fell-as. Dɣa ɣer tagara yuɣal d axewni ameqqran ibedden i tillut i t-id-isellken si yir tumelt i yesbur acḥal d ayyuren.
+
+Taɣbalut : ablug n Samir Tighzert, TimuɣliwinAnna Netrebko Anna Netrebko
+
+Anna Netrebko, tlul ass 18
+ctamber, 1971 di Krasnodar, nettat d tacennayt.
+Talatint Talatint
+
+Talatint tella d tutlayt taqburt ay yettwasiwlen di Latium d Ṛoma sdat, deg wakud aha tigira n Umenkud Aṛuman.
+Yapan Yapan
+
+Yapan neɣ Japun (Tayapant: 日本, "Nihon neɣ Nippon ."日本国 "Nihon-koku ( Tamurt n Yapan )" ) tella d tamurt dd-yezgan di Asya. Tamanaɣt-ines tella d Tokyo. Zeddɣen deg-s 130 ugendid (130 melyun) n yimezdaɣ. 
+Victor Hugo Victor Hugo
+
+Victor Hugo d amyaru afransis, ilul di Besançon ass n 26 di furar 1802, yemmut di Paris ass n 22 mayu 1885. Yella d anaggal, d amedyaz, d amsezgan am akken yekcem daɣen deg tudert tasertant d tmeɣnest.
+
+Yettuneḥsab d yiwen seg imyura imeqqranen maḍi n tutlayt tafransist, yettwassen ladɣa s wungal-is mucaɛen di ddunit "Imeɣban" (les Misérables) i yesseẓreg deg usegass n 1862. Ɣer tama n tira yelha-d d waṭas n lecɣal-iḍen izuyaz am umennuɣ ɣef yizerfan n wemdam, tugart ayen yerzan tafgurt s tmettant (peine de mort).
+
+Ungalen
+Tamedyezt
+
+Amezgun
+Nikolaï Gogol Nikolaï Gogol
+
+Nikolaï Vassilievitch Gogol d amyaru arusi, laṣel-is d ukrani, ilul ass n 31 meɣres 1809 di Poltava, yemmut ass n 21 furar 1852 di Musku. Yella d anaggal, d anellis, d amedyaz, am akken yura daɣen deg umezgun d uzɣan. Assa yettuneḥsab seg yimura imeqranen maḍi n teskla tarusit taklasikit. Yettwassen ugar s wungal-is meqqren "Lerwaḥ yemmuten", akked tullist Anzaren i yellan dɣa s teqbaylit.
+
+Taɣballut : seg ublug n Samir Tighzert Timuɣliwin
+Anzaren (Gogol) Anzaren (Gogol)
+
+Anzaren, d tullist i yura umyaru arusi Nikolaï Gogol ; d yiwet seg wayen yettwassnen nezzeh gar yeḍrisen-is, teffeɣ-d deg useggas n 1836 deg wammud iwumi isemma Tullisin n Saint-Petersbourg. Yella yura-tt gar 1832 d 1835. Di tazwara ugin-as-tt ad tt-yessiẓreg deg uɣmis n Umsiked n Musku, acku nnan-as d taqsiṭ ur nemɛin ur d-njebbed aṭas n imeɣriyen. Maca yesswaeḍ yessufeɣ-itt-id deg yiwet n tesɣunt (Amiran), di tuber 1836, uqbel ad tt-yesdakkel deg yiwen n wammud akked tiyaḍ am: Akebbuḍ, Aɣlad ameqqran n Nevski neɣ Ussan n umeslub.
+Deg tullist-a iḥekku-d umeskar ɣef yiwen unawur i d-yekker yiwwas ṣṣbeḥ yufa-d anzaren-is ulac-iten, d wayen akk i d-yemmuger d iɣeblan syin d asawen.
+D tullist yettusuqlen yakan ɣer teqbaylit sɣur Samir Tighzert ; zemren imeɣriyen ad tt-afen deg uzeṭṭa n Internet.
+
+Taɣbalut : seg ublug n Samir Tighert TimuɣliwinIsusiyen Isusiyen
+
+Isusiyen (s tifinaɣ: ⵉⵙⵓⵙⵉⵢⵏ) d aɣref amaziɣ yettidiren deg unẓul n tgelda n Umeṛṛuk, deg tmennaṭ n Sus ilan (yesɛan) Agadir d tamdint tamenrut. D nutni i d agraw meqqren akk gar yegrawen Imaziɣen deg tmazɣa imi ahat wwḍen 12 imelyan. Tutlayt i d ttmeslayen, d tasusit igan d yiwet gar waṭas n tutlayin timaziɣin
+Xalil Ǧebran Xalil Ǧebran
+
+Ǧebran Xalil Ǧebran (s taɛrabt : جبران خليل جبران) d amyaru alubnani, yella d amedyaz, d ameklaw ; ilul ass n 06 deg yennayer 1883 di Bacari (Lubnan), yemmut ass n 10 deg yebrir 1931 di New York ; yura s taɛrabt d tneglizit maca yettwassen ugar s udlis-is Nnbi i yura s tneglizit deg useggas 1923.
+
+Xalil Ǧebran yella d amasiḥi, iɛac acemma deg Tuṛuft, maca tuget n tudert-is tɛedda di Marikan. Ma deg tira ayen iss i d-yufrar d tiktiwin-is yettnadin dima ɣef tlelli d umaynut akked tuffɣa si “leqwanen ireṣṣan”, seg wayen icudden ɣer ddin d kra n wansayen iqbuṛen i yessenqed deg idrisen-is ; yuɣ lḥal d ayen i yeǧǧan adabu aɛetmani deg lawan-nni ad s-yesserɣ adlis-is Tirwiḥin timɛaṣiyin, di Beyrut, gar medden, akken ara yexḍu i ubrid i d-yewwi, maca netta ikemmel kan armi d-yeǧǧa lexyar deg tsekla tamaḍlant.
+
+« M'ara yettaru Xalil Ǧebran, tikwal ad s-t-iniḍ ireggel ɣef tilawt neɣ ur d-yecliɛ ara di tmeẓla (logique), amedya deg yixef anda i d-yettmeslay ɣef « yiman-is yebḍan ɣef sebɛa » neɣ sebɛa tneffutin-is (my seven shelves)... netta, nemgal, abrid-ayi anigilew (surrél) i d-yewwi, d win i d allal iss i yeqqaz deg tikta-s, ɣas akken taɣara-s temgarad acemma ɣef tid ssmersen yemyura nniḍen n tallit-is i yeddan d waḍu-nni aseklan amaynu di tazwara n lqern-a i ɣ-yeǧǧan.»
+
+S taɛrabt
+
+S tneglizit"
+
+Tizmilin :Suqraṭ Suqraṭ
+
+Suqraṭ d afelsafi agrigi n lqern wis semmus send Talalit (ilul ahat di -470/469, yemmut di -399). Yettwassen belli d netta i d-yesnulfan tifelseft tamsirant (morale). Di tilawt ur d-yeǧǧi ara kra n tira, maca tewweḍ-aɣ-d tedmi-s s wudem arusrid seg wa ɣer wa. Amedya, inemladen-is Flaṭun d Gzinifun refden tamusni-s rnan sseɣren-tt s telqey akken ar yeqqim yisem-is.
+Naǧib Meḥfuḍ Naǧib Meḥfuḍ
+
+Naǧib Meḥfuḍ (s teɛrabt : نجيب محفوظ) d amyaru amaṣri, ilul di Lqahira ass n 11/12/1911, yemmut daɣ din ass n 20/08/2006. Yella d anaggal maca yura daɣen imagraden yemxallafen, ladɣa deg tfelseft, ɣer tama n wugar n 40 wungalen d wammuden n tullisin. Deg useggas 1988 yewwi arraz Nobel n tsekla ɣef lǧal n tlata wunagalen-is icudden gar-asen iwumi qqaren tamakuẓt n Lqahira(1- "Gar snat n ssṛayat"- 2- "Ssṛaya n lxiq"- 3- "Lḥuma n Ssukkariy"a ) anda d-yewwi ɣef tudert di Lqahira, tamanaɣt n Maṣer. Ar tura d netta kan i yewwin arraz-a gar wid yettarun s teɛrabt, yerna ula deg Tefriqt d yiwen seg imezwura ur neggit.
+
+Naǧib Meḥfuḍ deg tuget n yedlisen-is yettawi-d s umata ɣef tmetti tamaṣrit i yesleḍ s telqey akked d umezruy n tmurt-is, ladɣa deg tallit n Iferɛunen. Maca yettwassen daɣ ɣef tira-s icebḥen, tebna ɣas in’as ɣef ubrid n teẓrilewt (réalisme), maca tegget deg-s tesnalfa (poétique) d teɣmi tarumansit.
+
+Deg useggas n 1995 wten-t sin irebraben islamẓriyen i iɛerḍen ad t-nɣen s lmus ɣef lǧal n yiwen wungal mucaɛen i yura di 1959 nni : "Arraw n taddart-nneɣ" ; imi tuɣ llan lecyax i d-yeftan belli ameskar yestehza deg-s ɣef Rebbi, ihi sskfren-t rnan sḥellen idamen-is, maca yemneɛ, yejreḥ kan, ma d irebraben-nni ttuɛedmen s tmettant sɣur udabu n Maṣer.
+
+Don Kicuṭ Don Kicuṭ
+
+Don Kicuṭ n Manca d ungal i yura umyaru aspenyuli Miguel de Cervantes deg sin yeḥricen (amenzu yeffeɣ-d deg useggas 1606, wis sin deg useggas 1616). Ungal-a yettuneḥsab d win i d amezwru yakk deg tsekla tatrart ɣef leḥsab n tɣara n tira-s d wudem iss i d-yedda deg-s wullis. Yewwi-d deg-s umeskar ɣef yiwen wergaz akken bu-nneyya, iwumi qqaren Don Kicuṭ n Manca , asmi iɛewwl ad yeg am yemnayen iqbuṛen, imi d isaṭṭen iɣef yeɣra deg tektabin. Ameskar yenna-d dɣa seg tazwara : Don Kicuṭ yeɣra yeɣra deg teqsiḍin-nni armi icuf iqerru-s, meḥsub yemxell, ihi iɛedda ad yeḍfer abrid-nsen, ulamma tuɣ tɛedda tallit n yicaliyen am widak.
+
+Akken ad yefhem yiwen taqsiṭ n Don Kicuṭ ilaq ad iẓer acu d ungalen n « temneyt taḥewwast », anda teffɣen imnayen akken ad d-fdun wid akk yettwaḥeqren ɣas ma ur ten-ssinen, iwakken kan ad sbedden lḥeqq u ad d-beyynen tabɣest-nsen. Azgen deg-sen ttawin-ten-id kan d timucuha deg tallit-nni tanammast, maca Don Kicuṭ i iselben si tɣuri-s, yerra-tt d tidet, iɛewwel ad yeg am nutni, ad d-yerr taɣdemt i lɣaci. Yessufeɣ-d ihi aɛudiw-is ihezlen akk iwumi isemma Rusinant (Rocinante s tspenyult), yekkes-d asekkin d waɣer i yellan din deg uxxam tuli-ten tɣebbart seg wissen anwa zzman, takurazt d wayen akk yettiḥwiǧ umgara deg lawan-nni ; syin yessawel-d i yiwen n lǧar-is yeččuren d nneyya daɣ am netta ɣas ma di leɛqel-is yella, qqaren-as Sancu Panza, iḥemmel inzan aṭas, d win i yextar ad yili d amɛiwen-is deg icaliyen-is, imi akken i ten-sɛan yemnayen iqburen, yerna winna ɣef uɣyul i yeṭṭafar deffir.
+Yuɣ lḥal imnayen iqburen i yettḥaka, yal wa tettili tin i iḥemmel, iɣef yettxemmim m’ara yili deg imennuɣen d unadi n lexlawi ; ihi ula d Don Kicuṭ yextar yiwet kan akka n tfellaḥt tameɣbunt din deg taddart, yerra-tt d tin d « tarfiqt ixemmimen-is », isem-is Dulsinya (Duclinea s tspenyult). Syin ata yebda ihi acali deg lexla, yettnadi w’ara d-isellek ; netta s nneyya-s yetthummu kan, ur yeẓri ma s tidet i yeḍra kra, ma ilaq ad d-iger iman-is neɣ ala, maca itemmeɣ ; dɣa yal tikelt yettaf yeɣleḍ deg leḥsab-is, yeggar iman-is deg wayen ur t-nerzi armi yeṛwa tiytiwin. Di tilawt, kra din yettenbeddal gar wallen-is seg wakken yuḍen, am tikelt mi yekcem deg yiwen usensu n wedrar, yufa din timesdurar yenwa-tent d yessi-s n sslaṭen ukud i ilaq ad yissin amek ara yelḥu, ihi ula d din ixelleṣ-itt. Daymi taqsiṭ-is tessaḍsay nezzeh, tugart imi aɣanib n Cervantes yebna ɣef usaran , ahat ulac lemtel-is deg tira. Ɣas in’as d ayen i t-yeǧǧan mucaɛ, maca yeččur daɣen d tamusni lqayen n wawal, inzan d tengalin i d-yettuɣalen daxel n wullis agejdan, ladɣa deg idewenniyen n Don Kicuṭ d Sancu Panza i yettekttiren deg wawal, acku ula d netta yettekka deg tedyanin akk i d-mmugren.
+
+Annect-a yakk yerra ungal-a yeṭṭef amkan meqqren deg tgemmi taseklant tamḍlant, imi ula d kra n yismawen izeddiɣen kecmen deg tutlayin tuṛufiyin uɣalen d awalen n menwala, amedya deg tefransist : dulcinée (taḥbibt, taxḍibt), rocinante (aɛudiw). Llant daɣ tenfaliyin i d-yekkan syin qqiment d lemtul, am m’ara s-tiniḍ yettnaɣ ḥedd d tessirin n waḍu, meḥsub yekkat deg wulac, acku teḍra-yas i Don Kicuṭ asmi d-yemmuger tissirin n waḍu s yiɣallen-nsent meqqren, iɣil d ḥedd igehguhen , ihi iɛedda ad yennaɣ yid-sen. Syin i d-tekka tenfalin mucaɛen : anuɣ d tessirin (se battre avec des moulin.
+
+Yerna ahat izen amezwar n wungal d wa ; imi ulamma imeɣriyen n lqern wis 17 ḥesben-t tagnit kan i taḍsa d tukksa n lxiq, wid i d-iḍefren, tugart deg tallit-nni n tegrawla tafransist ; walan-t d amedya i umdan izemren ad yesɛu lḥeqq weḥd-s mgal timetti s lekmal-is. Lḥasun, ayen i d-yewwi d ayen icerken talsa merra ; ahat ad yili ḥedd ssya d asawen ara t-id-yerren ɣer teqbaylit am akken yella deg tuget n tutlayin umaḍal, maca aya d asenfaṛ meqqren, ma yefka-yas ḥedd akud yessefk ad ad ilin imeɣriyen ara t-id-yafen
+Taɣbalut : ablug n Samir Tighzert TimuɣliwinArraz Nobel Arraz Nobel
+
+Arraz Nobel d asefk n wudem agraɣlan, ttaken-t di Sswid i wid i d-yeglan s kra n lfayda meqqren i talsa, ama s wayen i d-ssnulfan, i d-ufan, neɣ i seggmen deg taɣulin yemgaraden n tmusni, ama s kra umahil aseklan ifazen, neɣ s wayen i xedmen i ureṣṣi n talwit ; akka i t-yiweṣṣa Alfred Nobel, amsenulfu n ddinamit, i ibudden i wakka idrimen i d-yeǧǧa, imi ur yesɛi ara tarwa i t-iweṛten. Arraz-a yettunefk i tikelt tamezwarut deg useggas 1901.Racid Ulebsir Racid Ulebsir
+
+Racid Ulebsir, neɣ s tira n Tefṛansist Rachid Oulebsir, d ameskar yuran ddeqs n yidlisen.
+
+Ilul deg 1953 di Tezmalt, aɣir n Bgayet, Tamurt n Yiqbayliyen, Zzayer.
+
+Idlisen yura:
+
+Le pèlerinage du chacal ; contes 
+
+L'olivier en Kabylie entre mythes et 
+
+Le rêve des momies
+
+Un automne kabyle
+
+Chant De Pain Et De Sel
+
+Algerie Le Printemps Reporté
+
+Djurdjura Le Temps Des Olives
+
+La Sous-France. Souvenirs D Un EcolierImeɣban Imeɣban
+
+Imeɣban (s tefransist "Les Misérables") d ungal n Victor Hugo i d-yeffɣen deg useggas n 1862. Deg uḍris-a meqqren n tsekla tafransist i d-igelmen tudert igellilen n lqern wis XIX di Paris d tmennaḍin-iḍen n Fransa, ameskar yelha-d ugar d uwadem-is Jean Valjean i yellan yettuḥasef s ukeṛfi. D ungal amazray, amestan, afelsafi, ideg llan daɣen wuktuyen n trumansit akked wid n Victor Hugo s umata ɣef ayen yerzan tumest n wemdan. Ungal-a aṭas i d-yessezgen i ssinima d tliẓri akked d umezgun.
+
+Yenna Victor Hugo deg usissen n wungal-is (deg uḥric amezwaru) :
+
+ « Skud mazal isuḍaf d wansayen ttilin d ssebba n temḥeqranit tamestant s ǧahennamat i d-xellqen deg tlemmast n tɣerma,  d lmektub n Rebbi i rennun ssewɛaren-t s tẓegzegt n wemdan ; skud ulac tifrat i tlata-yi iɣeblan n lqern ideg nella : aɛfas n wergaz s tprulitarit, aḍeqqer n tmeṭṭut deg laẓ, d useḍɛef n wegrud s wuḍan ; skud mazal taxennaqt tamstant tezmer ad tili di kra n tmennaḍin, neɣ ma nenna-d s wudem wessiɛen ugar, ayakka txuṣṣ tmusni deg ddunit anda yeqwa leɣben, idlisen am wa ad yili kan wayen ideg ara inefɛen. »Aɣlal Aɣlal
+
+Aɣlal deg Teqbaylit d irem id yemmalen tagrawt n iɣersiwen ibeldisen ilan (yesɛan) ijeɣlalen i wakken ad aggẓen tifekkiwin-nsen yessalwen, , iɣlalen s umata ttidirent sufell n wakal, S tenmegla n umillus maca gan yakk d tigritin, Dɣa azal n 40% n tigritin d iɣlalen yettidiren sufel n wakalLlun Llun
+
+Llun d aɣemmu yettbanen ɣef tɣawsiwin am Azegzaw, awraɣ, aberkan, amellal, azegzaw, ačinay, axuxi ...Tamaziɣt n waṭlas ablidi Tamaziɣt n waṭlas ablidi
+
+Tamaziɣt n waṭlas ablidi, d tutlayt i ttmeslayen iamaziɣen n waṭlas Ablidi. Tamaziɣt n watlas Ablidi tettikki deg tutlayin timaziɣin. Ma ɣas tutlayt tamaziɣt, zik, tettwaru s isekkilen n tifinaɣ akken tettwaru tmaceɣt ar wass-a, tamaziɣt n tmurt n watlas Ablidi tettwaru nettat s isekkilen ilatiniyen.
+Voltaire Voltaire
+
+François-Marie Arouet, iwumi qqaren Voltaire, d amyaru afransis, yella daɣen d afelsafi ; ilul ass n 21/11/1694 di Paris, yemmut ass n 30/05/1778 ; yeǧǧa-d later meqqren deg lqern wis XIV imi d i d agensas n tfelsafit n tifawin, yerna yezga d netta i ḥemmlen iburrjwaten iṛumiyen ama qbel neɣ mi tɛedda tegrawla tafransist.
+
+S ubrid-is i d-yewwi mgal tiṭṭurfa tamasɣant (n ddin), amennuɣ-is yeqqen ugar ɣer tissumḥa d tlelli n wawal. 
+Ma d tira-s teṭṭef-d deg umezgun, tamedyazt, amzruy, d tsekla-nniḍen yebḍan ɣef wungalen d tmucuha anda i d-yeggar tikta-s tfelsafiyin. Aɣanib-s seg wid iqewwan, tikwal yeslusuy-as kra usaran ; aya merra yerra-t d yiwen seg imyura icaɛen nezzeh di lqern wis XIV. Yerna ar tura mazal-is seg wid i d-beddren medden s tuget.
+
+Tifelseft :
+
+Amezruy :
+
+Ungalen/Timuchuha :
+
+Tamedyezt :
+
+Tibratin : 6000
+Charles Darwin Charles Darwin
+
+Charles Darwin d amusnaw n umezruy agaman, d amesnakal Abṛitan ilul g tmurt n Unegliz deg wass n 12 fuṛaṛ 1809 di Shrewsbury. Yukkes (yemmut) deg wass n 19 yebrir 1882. Yekker-d deg twacult tussnant, baba-s Robert Darwin yella d amessuji ma d dadda-s (jeddi-s) Erasmus Darwin yella d amessengam yerna d amaskar, Charles Darwin yell-d (ikeseb-d) tamusni-ynes s wesnulfu n teẓri n temhazt i d-yeqqaren d akken yakk imuddiren i d-yellan deg teɣzi n umezruy kkan-d yakk seg yiwen n uẓar. Akken i d-issumer tiẓri i d-yeqqaren d akken inawen-a yebṭan s temhazt mmugen-d s usrag (ssebba) n yiwet n temhalt umi yessemma afran agaman. Imenɣi i lmend n weslak daɣen ila (yesɛa) yiwen n usemdu n wefran amguran yettekkayen deg umyaraw ufrin n imuddiren.. S wannay n imuddiren, Darwin yegra-d tazrawt i wesmuti (abeddel) i d-yettilin deg imuddiren sɣur n tdermisin. Deg useggas 1838 yessnefli tiẓri-ynes (afran agaman) yettwassnen acku yeẓṛa d acu i d uguren id tezmer ad teglu yissen tiẓri ayyi aladɣa deg wammas n yimasɣanen. ɣef wanect-a i yeǧǧa tiẓri-ynes d tuffirt deg tazwara ifesr-it gar n wayyawen-is kan. Deg wakud anda iy ssemd tigmayin-is (ikemmel inadiyen-is) i wakken ad iheggi tiririyin ɣef tsentilin i yettṛaǧu af teẓri-ynes. Deg useggas n 1858 yewweṭ-as-d isali i Darwin d akken yiwen n wergaz isem-is Alfred Russel Wallace ixeddem ɣef yiwet n teẓri yemmugen am teẓri-ynes ayen yeǧǧan Darwin ad yefser igemmad n tegmayin-is imir-nni yakan
+Darwin yettumeggez d asnudran yettwassnen yakk, Dɣa yesseker-d aṭas n yidlisen deg tɣult n tesnudert d acu kan tiẓri ayyi tegla-d s waṭas n yizɣanen aladɣa deg tlemmast n imasɣanen (imrabṭen n ddin) deg umadal yakk.
+Deg wayen umi yessemma assaɣ imezli, Darwin yeqqim deg uɣilif i wakken ad yaf assaɣ-a iy teqqnen kar n wemdan atrar d yebka, deg useggas n 1859 efser tiẓri n temhazt s yinzaten uzmiren (ijehden) deg wedlis n aẓaṛ n telmas ayen id t-iǧǧan ad yerna (ad yeɣleb) tugit i d-immuger deg wammas n tmetti tussnant ɣef tiẓri ayyi.. Timetti tussnant d tin yeddgen (iqeblen) tiẓri n temhazt d tin yellan s tidet deg useggas n 1870 maca aṭas deg-sen llan d wid iy smenyifiyen issegza niden alammi i d-telfa tuddsa tanamhazt tatrart (1930 - 1950) anda i d-yella umtawa meqqren d akken taɣlelt tagamant tella d amsedday agejdan i temhazt.. S tsileɣt niden, Asnirem ussnan n Darwin tga d tiẓri tameslugant i tussniwin tisnudranin yakk akken i d-tessegzay i tugta yellan deg-s.
+Nizar Qebbani Nizar Qebbani
+
+Nizar Qebbani (s taɛrabt نـزار قـبـّانـي ) d amedyaz asuri, laṣel-is d aṭerki.. Ilul assn n 21 deg meɣres 1923 di Ssaɣur i d-yezgan di Dimacq, yemmut ass n 30 yebri 1998, di London, tamanaɣt tabriṭanit. D yiwen seg imedyazen iziten imeqqranen n tutlayt taɛrabt. Deg tudert-is yeɣra deg izerfan, maca yexdem d anmahal di tmura yemgaraden armi yeṭṭaxer deg useggas 1966. Yettwassen s tutlayt-is tasehlant i ifehhem yal yiwen ulamma s taɛrabt taseklant i yettaru ; maca ɣas akken, ccbaḥa n wawal-is d tugniwin yesseqdac d ayen ifazen akk ar assa, ladɣa m’ara ten-tiɣer yiwen s taɛrabt neɣ ad sen-tisel yettini-tent-id. Yebda yettaru seg wasmi yesɛa 16 isaggasen di leɛmer-is, syin mi yesɛa 21, deg useggas 1944, yessufeɣ-d ammud-is amezwaru iwumi isemma : T"enna-yi-d txemrit". Syin yerna-d aṭas n wammuden-iḍen d yedlisen n tesrit. Yuɣ lḥal aṭas icennayen i yeddmen isefra-s cnan-ten ama zik, am Ɛebd Lḥalim Ḥafeḍ deg taɣect “qari’at alf-finǧan” ; am d wid n tura am Majda Rrumi deg taɣect Kalimat( awalen).
+
+Isental n Nizar Qebbani tezzin ugar ɣef tayri ideg yessen ad ifeṣṣel, maca iwet daɣen ɣef izerfan n tmeṭṭut segmi temmut uletma-s i yenɣan iman-is ; am akken yura ɣef tsertit d kra isental imestanen, dɣa yella yiwen usefru mucaɛen iwumi qqaren : "Aɣrum d usebsi d wayyur" i s-d-yessusen iɣeblan. « Asefru-ya di tilawt aṭas i t-yerran ɣer tutlayin-nsen seg wakken ameskar iwet-d deg-s s leqseḥ deg yir tikli i d-wwin Waɛraben d yimslelmen s umata i yeṭṭfen ala deg wansayen iqburen akken bɣun ilin, rnan zzin s uɛrur i tɣerma mi d-lhan ala d ddin. Asmi t-yura ssawḍen armi t-sbedden ɣer teɣdemt, yuɣ lḥal amedyaz-a yella icaɛ belli d arnaflas i yella ; ma deg uparlman n tmurt-is kkren-d ula d wid i d-yessutren ad s-kksen tiɣelnit tasurit (nationalité), maca ur teffiɣ ara akken. »
+Yenna :
+Ammuden
+
+Taɣbalut Ablug n Samir Tighzert/Timuɣliwin
+Tasnudert Tasnudert
+
+Tasnudert d tussna i d-yelhan d wayen akk yettidiren. Taɣult-is tejmel-d tussna ugama d imudar s umata, maca imi tudert ggtent deg-s talɣiwin d isellumen iɣef tebna, tasnudert tetteṭṭef-d seg uswir alayan, ɣer win n tsilunt, d wudus, alamma d tagudt d unagraw awenḍan.Mark Twain Mark Twain
+
+Mark Twain,s yisem-is aḥeqqani Samuel Langhorne Clemens, d amyaru amarikan, yella daɣen d amsaran, ilul ass n n 30 deg duǧember 1835 di Florida i d-yezgan di Missouri (Iwunak yedduklen), yemmut ass 21 deg yebrir 1910 di Redding. Yettwaḥsab d yiwen gar imyura meqqren n tutlayt taglizit n lqern wis IX.
+
+Deg tutert-is, yebda-tt-id d asedas, yuɣal d amziggez, syin yegra-d d aneɣmas ɣur wat lminat n Nevada. Ma deg tira yettwassen tazwara s wungal-is i ibudd i imecṭaḥ : "Icaliyen Tom Sawyer" (1876)akked d wayeḍ iss i yettkemmil, "Icaliyen n de Huckleberry Finn" (1885). Isental-is ideg yeqwa usaran d usqecmeɛ, ttawin-d s tuget ɣef tmetti tamarikant n wenẓul d umalu i d-yeglem akken ilaq deg iḍrisen-is, imi din i d-yekker. Iḥekku-d s umata ɣef ayen i d-yettmagar deg isiklen-is, maca yessenqed daɣen tikli n yemdanen d kra yettwaɣen deg-s.
+René Descartes René Descartes
+
+René Descartes, d amusnak afransis i yellan daɣen d amesfizik, d afelsafi. Ilul ass n 31 deg meɣres 1596 di La Haye-en-Touraine, iwumi qqaren tura Descartes (Indre-et-Loire), yemmut ass n 11 deg furar 1650 di Stukulm.
+Yettwaḥsab d yiwen seg wid isersen llsas i tfelseft tatrart, yettwassen ladɣa s wayen i yenna deg udlis-is "Inaw n tarrayt" : « Ttxemmimeɣ, ihi lliɣ. » Deg tfezikt yewwi-d itekkiyen meqqren deg wayen yerzan tasekda (optique) ma deg tusnakt sɣur-s i d-tekka tenzeggit taslaḍant.
+Maǧid At Buttmer Maǧid At Buttmer
+
+Maǧid at Buttmer d amusnaw n tfizik.Louis Pasteur Louis Pasteur
+
+Louis Pasteur, d amassan afransis, ilul di Dole (Jura) ass n 27 deg dujember 1822, yemmut ass n 28 cṭember 1895, di Marnes-la-Coquette (tura di Île-de-France). Deg usileɣ i d-yeḍfer, yella d ameskimi u d amesfizik, d acu yettwaḥsab seg imezwura isersen llsas i tsenmikurbit (microbiologie) ; yuɣ lḥal yeḍḥa-d yettwassen nezzeh ula mi t-mazal, segmi d-yufa tagezzayt ilqen mgal tussḍa n yiḍan.
+Gregor Mendel Gregor Mendel
+
+Johann Gregor Mendel, (20 yulyu 1822 - 6 yennayer 1884), yella d ameɛkuf akatuliki deg udir (monastère) n Saint-Thomas di Morava, am akken i d-yelha daɣen d tussna n yemɣan imi yeɣra deg tfellaḥt ; yeqdec s talmanit maca tiɣelnit-is d tuṭricit. Yettwaḥsab ɣur waṭas belli d netta i d ababat n tussna n tjinitit, imi sɣur-s i d-yekka wayen iwumi qqaren tura isuḍaf n Mendel, i d-yesbeyyinen amek ttɛeddin ijinen si tsuta ɣer tayeḍ.
+Timzgida Ḥassan II Timzgida Ḥassan II
+
+Timzgida Ḥassan II ( s مسجد الحسن الثاني ("masjid al-Hassan ath-thani") ) d yiwet n timzgida tameqqrant (20 000 m²) tezga-d deg Anfa (Meṛṛuk).Adolphe Hanoteau Adolphe Hanoteau
+
+Adolphe Hanoteau, d ajiniral afransis, ilul di Decize (Nièvre) ass 12 yunuyu 1814, yemmut ass n 17 yebrir 1897 deg yiwet n tɣiwant ; ɣer tama n twuri-s taserdasit di Lezzayer tafransist, iga daɣ tizrawin ɣef tmetti taqbaylit. Yuɣ lḥal yella seg imezwura i yuran tutlayt taqbaylit, s isekkilen ilaṭiniyen, ladɣa deg tjerrmut-is ideg i d-yesdukkel kra n imenzayen n tmeslayt-a d isefra iɣerfanen i d-iḥawec deg tmennaṭ n Ǧerǧer.Émile Zola Émile Zola
+
+Émile Zola d amyaru afrnsis, yella daɣen aneɣmas ; ilul di Paris ass n 02 deg yebrir 1840, din i yemmut ass n 29 cṭember 1902. D yiwen seg ineggalen ifransisen mucaɛen ugar, i yettusẓergen s waṭas yerna yettwasuqel deg umaḍal. Yetwaḥsab d ameqqran n ṣṣenf aẓrilew deg tsekla, imi d ungalen-is yewwi-d ddeqs ɣef waddad aḥeqqani n iqeddacen d lmeḥna i d-ttmagaren am ayen i nezmer ad naf deg ungal-is "Germinal" i ss-yettwassen. Maca deg tegrurma n wayen yura, yettwabdar-d ugar s tqebbiṭ n 20 n wungalen anda i d-yeglem tameddurt n yiwet n twacult, "les Rougon Maquart", iɛacen deg tallit n wayen iwumi qqaren di Fransa tamnekda tis snat.
+
+Ungalen<br>
+D Tayri Kan D Tayri Kan
+
+D Tayri kan! Dacu icerken imdanen deg umaḍal? D anadi ɣef tayri. Waɛli d Magnus, wa di Tizi wayeḍ di Copenhagen, xas akken ur myussanen ara tecrek-iten tayri n lmuziga, tayri n tudert, tayri n temdukkal-nsen. Ana d David, Muḥsin d Raja, imezwura di London, wiyeḍ di Naḍur, xas akken yal yiwen amek i tt-yettidir, d tayri kan i ran ad idiren. Tayriwin mgaradent akken megrandent tirga. Targit n Alexandra, yeǧǧan lḥif n tmurt-is Ikwaṭuṛ, d targit Tamarikant, ma d Saṛa, d targit n tlemẓit tamarikant yebɣan ad ekk amaḍal i tuksa n lxiq.
+
+D Tayri kan d iberdan n usirem d tudert. Tudert n Loco, ɣef larulma-ines, yessishilen abrid i ikamyunen ɣef idurar n Patio Bonito. D tudert n Amadou yessishilen abrid i tkeṛyas d medden di tɣaltin n Maristes, di Sinigal. Dacu yifen tayri d unecṛaḥ n Mama Sima i igujilen-nni n ṭṛad i tettrebbi di lḥif n uɛecciw-is? D Tayri kan d tabɣest n tlawin-nni n Nirbhaya i d-sbed Bhati i uḥuddu ɣef tlawin n uzniq-nsent di Munirka di New Delhi. D tabɣest n Sheida, Nasrin, Nesiba...atg. Ama di Iran neɣ di Oslo, di Isṭanbul neɣ di Chicago, ksent, ta dačadduṛ, ta d lḥiǧab, ggan-t tiwlafin, cerken-tent di Facebook i wakken ad begnent asirem-nsent n tlelli! Ma d Jimbut d Yen, tayri-nsen d tayri n isekla. Mi fukken tuẓẓut, ad uɣalen s axxam, di taddart n ZHUXINZHUANGCUN, ad swen kra n lkisan n Baijiu, ad cnun tizlatin n Liu Yi Fei.
+
+Akka! Iberdan mgaraden. Wa fessus wayeḍ ẓẓay. Fessus-as i Karine, i Julien, i Caroline, i Mumu d weltma-s Fifi. Fessus-asen ad ruḥen ɣer uɣerbaz. Kra di lkaṛ, kra akked yemmat-sen, kra akked unehhaṛ. Ma d Arief, Yuri, Edenjevy, Faṭma Zahra d Ɛali, kra ɣef uḍaṛ, kra ɣef weɛrur n waɣyul, xas teḥṛes teswaɛt ttmagaren-d ifeṭṭiwjen n tumert, cennun tuɣac n tudert.
+
+Ameskar: Noufel Bouzeboudja
+
+Tiẓrigin: Tiẓrigin AchabAhya ssimra Ahya ssimra
+
+Ahya Ssimra !
+
+Ahya Ssimra d azwel n yiwen n wamud n tullisin id yefɣen ussan-a (Maɣreṣ 2013) deg tmurt sɣur Tizrigin Tira. Tullisin-a yura-ten-tt umaskar Nufel Buzebbuǧa. Ɣas akka yezdeɣ deg tmura n yinig, Nufel yettaru s teqbaylit. Amud-a, yesɛan 8 tullisin, yura-t s tutlayt n yal as, maca nezmer daɣen ad neḥulfu belli yella waṭṭas unadi di tutlayt. Daɣen, tamawt ma negra-tt, ad naf belli di tira n Nufel yella lebni amaynut, yemgaraden ɣef wayen neqqar ɣer umyura nniḍen. Ahat acku tamusni n tutlayin akked tirmit i yesɛa di tsekliyin tiberraniyin i yeǧǧan lebni n tira-s ad yili akka?
+
+Nufel yettmeslay ɣef imdanen n yal as deg tmurt, yal yiwen s tirmit-is, s tmuɣli-ines, s tirga-ines, s wawal akked tutlayt-ines. Aɣanib n tira deg umud-a d aɣanib fessusen, maca id yettawin timuɣliwin n iwudam (personnage) akken tella (amzun deg umezgun), mebla tarewla ula ɣef wawalen-nni iqebḥen. Nufel ur yerri iẓerb i wawal-is. Neɣ ahat i wawal n iwudam id yefren deg wamud-a? Ihi tadrest (censure) ulac acku amaskar yebɣa ad yili d amekdi (fidèle) i taɣect n daxel, i taneffut (âme) d wallaɣ (esprit) n iwudam-is. 
+
+Aɣbalu: Imyura (Tamcumt)
+
+“.. "ad d-niɣ belli amud-a i yura Nufel yukla ad t-iɣer yal yiwen d yal yiwet, imi d aẓru nniḍen i d-yernan ɣer lebni  n tullist taqbaylit, seg wasmi yessers Belɛid At Ɛli lssas amezwaru i tewsit-a"...”
+
+Di tezwart yura Mass: Aɛmer Lɛufi 
+
+Ameskar: Noufel Bouzeboudja
+
+Tiẓrigin: Editions TIRA
+
+Ɣer azwel s teglizit: DagiAllegoria tugna Allegoria tugna
+
+ALLEGORIA s teqbaylit!
+
+Asaru Allegoria i d-yewwin aṭas n warrazen igraɣlanen, i yettwafernen s wudem unṣib deg waṭas n tfaskiwin, yettuhegga-d s teqbaylit. 
+
+ALLEGORIA-TUGNA d aḍris leqqayen ɣef talsa d tuffirin-is. D aḍris ɣef udabu, ɣef tlelli, ɣef teɣdemt... Tugniwin yemlalen akked uẓawan abaḥan d tɣuṛi, tikwal s taɣect iǧehden, tikwal s taɣect taṛeqqaqt, slalayent-d deg-neɣ axemmem, asirem n tigawt, talwit.
+
+Allegoria-Tugna d asuɣu n usirem, d lebɣi anazmar n tnekra! 
+
+Wali asaru di Youtube: Allegoria Tugna Tabidyut
+
+Awal ɣef Allegoria s teglizit di TTIF: Nqer
+
+Arrazen igraɣlanen: Awardeo, Hollywood Independant Film Festival, Finesterra Arribada, Best Experimental, Best Online Film Festival...
+
+Aḍris d tɣuṛi: Noufel Bouzeboudja
+
+Afares/Asuffeɣ: Nobilis Bellator
+
+Aẓawan: Bamboocha
+
+Tallalt tatiknikit: Nenad Novaković
+
+Tugniwin d ufares di "La Rioja, Spanya"Guy de Maupassant Guy de Maupassant
+
+Ilul Henry – René – Albert – Guy DE MAUPASSANT ass n 05 ɣuct 1850 di teɣremt n Miromesnil di Tourville-sur-Arques, ɣer tama n Dieppe, deg Ugafa n Fransa. Imawlan-is msebḍan mi yesɛa 12 n yiseggasen. Yesɛedda temẓi ines taseɛdit d yemma-s deg ugama n La Normandie"," anda ixuleḍ at taddart uɣur i d-yessen tameddurt n yifellaḥen d yinsayen nsen.
+
+Yekker-d ger lecḍuḍ d lberr, tesḥer-it tugna n waman. Mi meẓẓi, iteddu d yiṣeggaden ɣer ceṭṭ i tegmert, d ilemẓi inehher taflukt deg wasif n La Seine, yessikil deg Ugrakal.
+
+Mi yekfa almud-is, ssawlen-as, yelsa d aɛsekri di tallit n umgaru ger Fransa d Lalman. Acḥal d tikelt i d-yebder tirmi-s n tallit-a di tullisin-is anda i d-isugen lfetna ; d lɛada taweḥcit, imenɣan ger yiɣerfan d tifrat n tkerkas ur nettwaqbal.
+
+Mi yekfa wemgaru, yexdem deg Weɣlif n tegriwa ("la marine"), sakkin deg Welmud azayzan ("publique") anda yettwali tudert tabiruqratit iɣef iqejjem di lehmum d lɛeqliyyat n yimdanen i yudes di tirawin-is tiseklanin. Ɣas akka, yeqqim d axeddam amedyan ; iquder iman-is, qudren-t yiɣellaten-is. 
+
+Segmi d-tufrar tullist-is : Takurt n Tassemt ("Boule de Suif")"," MAUPASSANT yebda tira deg yeɣmisen iɣer t-iwelleh Gustave Flaubert i yas-iseknen iɛewwajen n tsekla, yeḥbes seg uxeddim-is akken ad yidir d imserreḥ aḥrur. Bdan-as wuguren n tezmert. Imagraden i yettaru di tɣamsa, uɣalen-as d asluɣmu d tannant i t-yullen ɣef tira.
+
+Di temrawt 1880-1890, yura setta wungalen : "Une Vie" deg 1883 ; "Bel-Ami" deg 1885 ;  "Mont-Oriol" deg 1887 ; "Pierre et Jean" deg 1887-1888 ; "Fort comme la Mort" deg 1889 ; "Notre cœur" deg 1890 akked 305 ger tullisin d tmucuha. 
+
+Iweddeb-it waṭan n nnaqsa ("névralgie") i yas-isewlellsen allen-is, yerna yesnulfa-yas-d amerɛun, ikemmel-as "Syphilis," armi yuɣal yezzer di lweswas, yezga yettwali tamettant-is ; dɣa yeɛreḍ ad ineɣ iman-is weqbel ad t-tekcem tselbi d wekraf armi yemmut ass 06 Yulyu 1893. Yettwamḍel di tenḍelt n Montparnasse s tilin n yimeddukal-is, gar-asen Émile Zola.
+
+MAUPASSANT, isebgen-d tidmi-s ; yebɣa ad yili d ilelli ibeɛden ɣef yikabaren isertanen, ibeɛden ɣef yiɣerbazen iseklanen d yiculen inuẓar ("courants artistiques"). Ɣas yettunebgat sɣur timetti tunnigt n tallit-is, iḥemmel agama, iḥemmel taywennit ("solitude"), iɣucc axaleḍ d wuḍan n zzhu n yinesbaɣuren. Yenna deg yiwet si tebṛatin-is :
+
+Kra n wemdan yebɣan ad yeḥrez iman-is, ama d tilelli n tekti, taɣawsa, tudert, talsa akked umaḍal s tiṭ n umannay ilelli, ilaq-as ad yebɛed maḍi ɣef yenna-tenna. Ad yebɛed ɣef teflas d tesraḍ yettwawṛaten. Ad yebɛed ɣef uxaleḍ d wassaɣen n tmetti, ayen ?
+
+Imi tuccḍa akked leḥmeq, neṭṭḍen amdan s zzerban bla ma ifaq ; ad yaɣ abrid nsen, ad yelḥu deg-s tikli-nsen, ad yettxemmim s ttxamim nsen.
+
+Yenneɛtab seg yilem i yas-d-yezzin d wulac n tudert, MAUPASSANT, izdeɣ-it lweswas, hban-t wumran ; d ayen i yas-yekksen asirem n ḥellu. Yenna ɣef waya :
+
+« Ẓriɣ griɣ-d iman-iw, sserhaben-iyi wuḍan iɣezfanen n tusaft.
+
+Yettuneḥsab ɣur-s uḥulfu n teywennit d lmektub, di tedmi-s ur yumin tella leḥmala ger yemdanen ; wa ur ikeccem deg wul n wayeḍ, amsefhem gar-asen d awezɣi. Ayagi, yettban-d di tirawin-is s tmuɣli n layas alqayan ɣef tudert akked tmetti.
+
+MAUPASSANT, yeɛǧeb-as aṭas Gustave Flaubert, ababat-is aseklan uɣur yelmed asekfel n tilawt s ttfaṣil, yeskad amaḍal i yaɣ-d-yezzin s tmeẓra-s, _ tucmitin d tucbiḥin _ yesɛa tamuɣli tuzzigt ("spécifique") ɣef teẓrilawt ("réalisme") akked teẓrigama ("naturalisme"), d win yettxemmimen s tekdit ɣef ugama ideg yettidir, ideg d-yekker, tid i wumi ur ifaq yiwen weqbel-is. Yella d amdan yettḥussun mačči d win yettḥulfun. Yeqqar :
+
+« Ɣur-i  asugen asemmaḍ ilaw. Ḥemmleɣ ayen ẓerreɣ… ur sɛiɣ ara iman aḥulfan.’’
+
+Taẓuri ines, tezdeɣ asugen ilaw n tɣawsa d tekli n wemdan akked tmetti. Ur yeḥbis ara deg usugen n yal amkan i yudef : agama d yinsayen n yimezdaɣ-is, timetti n Lpari d leɛceq ines, lgirra d lfejɛat-is…
+
+Ma d isental-is i d-yettuɣalen s ṭaqqa deg wayen yura, ggten, gar-asen : Tayri d wassaɣen-is, igen d wemgaru, takdit d lexdeɛ, tigullelt d wayla, tamgerḍt d ttaṛ, tagmert d usgunfu, jjiḥ d tlawin, aman d yillel, tamettant d tselbi, atg. Maca, deg waya akk, MAUPASSANT, yemmug am unaẓur ; ur yebɣi ara ad aɣ-d-yesken tugna n tudert, maca ad aɣ-d-ifek tamuɣli-s lqayen yemmden, tin iqerben yettqerriben ɣer tilawt.
+
+I wakken ad yaweḍ iswan-is, MAUPASSANT"," iseqdec aɣanib asehlan d uweɛran. Tafyirt-is d tafessast tefses d leqniɛa n tudert n yidgan igellem. Maca, isental-is qqnen s initen d yinsayen n Fransa n tallit-is, ladɣa wid n temnaḍt n La Normandie, tikwal yuɛer, neɣ ahat d awezɣi ad yenfali wemdan ɣef tefses yellan akk di tutlayt-a s tutlayt-niḍen.
+
+Tasaḍurt Tasaḍurt
+
+Tasaḍurt d yiwet n taddart n ibetṛunen. Llan wid yeqqaṛen d akken anamek-is d amdiq irekden i tɣimit.
+Qqaṛen d akken zik ticki imesdurar, ama d imɛatqiyen, neɣ ibetṛunen n ufella, neq wiyaḍ, ticki ɛeddan-d si tsaḍurt, din-a i steɛfayen send ad kemmlen abrid ar tuddar-nsen.
+
+Di tsaḍurt, ddeqs n twaculin i yettidiren am:
+Dmitri Mandelyiv Dmitri Mandelyiv
+
+Dmitri Ivanovitch Mandelyiv (s trusit : Дмитрий Иванович Менделеев), d ameskimi arusi. Ilul ass n 8 furar 1834 di Tobolsk, yemmut mort ass n 2 yennayer 1907 di Saint-Pétersbourg.
+
+Yettwassen ugar ɣef umahil-is deg usmal awalan iferdsen, i yesseẓreg deg useggas n 1869 ; qqaren-as dɣa Tafelwit n Mandelyiv. Yenna-d imir yakan belli iferdisen ikimanen akk zemren ad ttureqqɛen almend n yiwen n webrid ara ɣ-yeǧǧen ad nissin taɣara n yal yiwen deg-sen, ɣas ur ɛad t-id-ufin. Yerna syin ɣer da, s tidet, uɣlen ttafen-ten-id kra kra, ggaren-ten deg umkan-nsen yettuheyyan deg tfelwit-a.
+Tasnallunt Tasnallunt
+
+Tasnallunt d tussna n wanay n wayen akk itezzin neɣ yettilin deg tallunt neɣ ayen yeffɣen yakk i tignewt titriklant n tegnit , ama d itran d imtiwgen, d iseffuden, neɣ d ismilen
+
+Tasnallunt d tussna tamzikt s waṭas i d-yennulfan si tallit n teglest, mi bdan imesnallunen imezwura ttmuqulen s webrid azrawan s igenni, dɣa gzan deg-s aṭas n tlufa i ten-iɛawnen ula deg tudert n yal ass am yinig deg de yillel, maca tezga texleḍ d wayen iwumi qqaren aneǧǧem i icudden ugar ɣer ukerrer. Yerna yelfa-d usufeɣ n utiliskup d ayen ilaqen, dɣa segmi d-yella i tṣadd tesnallunt tartart s tidet. Tura yiwen seg yiswiyen-is, d afham n tlalit umeɣrad.Fyodor Dostoyevsky Fyodor Dostoyevsky
+
+Fyodor Mikhaylovitch Dostoyevsky (s trusit : Фёдор Михайлович Достоевский) d amyaru arusi, ilul di Mosku assn 11 wember 1821, yemmut di Saint-Pétersbourg ass 9 furar 1881. Yettwaḥsab seg ineggalen imeqqranen maḍi yesɛan tazrirt ɣef yemyura n trusit, maca ula deg tsekla tagraɣlant n lqern wis XIX.
+
+Deg tira-s Dostoyevsky yettɛaraḍ ad d-yawi tigzi lqayen i tnefsit, cmaca iga daɣen tasleṭ meqqren i waddad amestan, asertan, n tmurt-is di lqern ideg iɛac, am akken yessafer aṭas n isental-iḍen ifelsafiyen. Di tilawt, yella d amisiḥi yettamnen, maca asentel n tilin n Rebbi d teflest s umata, yettuɣal-d s tuget deg iḍrisen-is ɣef yimawen n iwudam yemgaraden wa ɣef wa, ama s tnefsit-nsen neɣ s uskasi i d-slalayen.
+Yettwassen ugar s kra n wungalen am "Anɣa d uḥasef" (1867) neɣ "Ungif" (1874 ) neɣ "Atmaten Karazov"(1880) anda i d-ibeyyen taẓuri-s meqqren.
+Ungalen
+Friedrich Nietzsche Friedrich Nietzsche
+
+Friedrich Wilhelm Nietzsche d afelsafi analman, yella d aɣen d amedyaz, d afilulug. Ilul ass n 15 tuber 1844 di Röcken, yemmut di Prusya ass n 25 ɣuct 1900 (tamurt n Lalman).
+
+Yettneḥsab seg ifelsafiyen imeqqranen i qqaren medden s tudget ar assa ; imahilen-is bnan s umata ɣef usenqed n yidles aɣerbi atrar d wayen akk i yejmel d azalen n lmeɛna i d-yekkan seg ufesser n wesɣan amasiḥi, i yettnadi netta ad ibeddel s wiyaḍ i d-yewwi d imaynuten, am akken i d-iwet deg tanga d wassɣ-is d umdan. Si tama nniḍen yura daɣen ɣef trumanṣit tanalmant, acku yella yelha-d d tesnilest d wayen akk yerzan tutlayin d warraten iqburen.
+Tamhazt Tamhazt
+
+Tamhazt Di tesnudert, d ayen yelfan di tulsa (yeḍran deg ineddel) i d-yettilin deg telmas d tfekkiwin n imuddiren ɣef teɣzi n wakud, d yiwen umazrar id yeṭṭfen seg talɣiwin timezwura maḍi armi d imuddar n tura. Amezruy n temhazt n tudert yezmer ad yettwiglem s yiwen waddag meqqren neɣ aṭas n waddagen n tgetjinit (poygénie).
+<br>
+Tamhazt tqqen ɣer usnulfu n telmas, maca seg-s daɣen i d-itekk ungar-nsent. Dɣa d turda n wefran agaman id yessumer Charles Darwin i yettilin deffir inbeddalen-a, ulamma aṭas ineḍruyen i itekkin Send n tuffɣa ɣer tsemlilt taneggarut i d-ijemmlen tiẓri n temhazt. D acu tura aṭas isnudranen i yettagin ula d awal-a n « tiẓri » imi ɣur-sen d ayen yessurfen amecwar-nni s wayen i d-tufa tussna tineggura-ya s wallalen atraren, ladɣa s igmaḍ n tesnudert talayant (biologique moléculaire) i d-yufan s tseddi, d amedya, amek yecrek w ADN n wemdan d yibki. Maca si tama nniḍen, d udem-a n lqerban gar umdan d uɣersiw i yeǧǧan aṭas n leṣwat ad ilin mgal tikti n temhazt ; llan gar-asen ula d imusnawen i iɛerḍen ad gen tizrawin-nsen s webrid-iḍen iɣef teɣleb tezrirt n teflest d tektiwin timasɣannin (n ddin). Amedya, qqaren belli d tidet, amdan yezmer ad yili iɛedda-d ɣef waṭas n tsurifin uqbel ad yaweḍ akka d amdan, maca yella kan w’i iwellhen inbeddalen i d-yeḍran si tazwara, meḥsub d Rebbi-nni iss i ttamnen ; aya d ayen iwumi semman « asɣiwes amegzu » ( le dessein intelligent).
+
+M’akken i d-yesnulfa tussan-yi tamaynut ara yuɣalen d taxatart maḍi syin d afella, Darwin yella d amnadi kan amecṭuḥ ifukken leqraya-s deg uɣiwen n Ṭṭebba n tesdawit n Edambourg, ihi yedda deg uɣarrabu Beagle i yeffɣen deg tuɣḍaṭ unadi i tikelt tis snat, ɣer tnila n Temrikt n Wenẓul, iruḥ s yisem-is d amesnakal kan imi d wayen i d-yelha imir. Maca ayen i t-iwellhen tikelt tamezwarut, d ayen iɣer yerra tamawt deg tgzirin n Galápagos ɣef kra n telmas n yiwen wefrux. Afrux-a llant kra n tlemas-is ɣur-neɣ ; deg tama n usammar n Bgayet qqaren-as abulkettan, deg Ǧerǧer abuferriw neɣ amenferriw (pinson). Ihi mi imuqel yaf sin ispisimanen i d-yekkan si snat tegzirin yemqaraben, ttemcabin deg kullec ala deg uqamum : yiwen zur, wayeḍ rqiq. Syin iwala yal afrux ggtent telmas-is deg yiwet n tewsit (genre), dɣa yesteqsa iman-is : ma d win iwumi qqaren Axellaq i igan akka annect-a, amek yeɛni ara s-yini wayi ad s-geɣ aqamum akka, wayeḍ akken nniḍen, neɣ ad ten-ssemxlafeɣ kan deg teɣmi n rric ? Yerna mačči kan ɣur yefrax i llant lewhayem, ula si tama n iɣersiwen imeqqranen : amek yiwen deg leḥcic i ikess wayeḍ yettseyyiḍ iɣersiwen-nni at leḥcic s yiman-nsen ? Yuɣ lḥal tamella ur telli deg teẓgi neɣ daxel n yillel, ayen izemren i kra-iḍen yečč-it !
+<br>
+Akka, Darwin mi yekfa tazrawt-is deg imenfarrawen i d-igemmer, yufa belli ayen i ten-yessemgarden d abrid kan i d-wwin deg tudert-nsen d twennaṭ ideg ɛacen ; dɣa win i d-yekkren deg tegzrit anda yeqwa lḥebb n yemɣan, iṛebba aqamum zuren iǧehden swayes ara yerẓ tuččit-is, ma d win nniḍen iɛacen anda akken txuṣṣ, itetten kan ibɛac, ayla-s netta iruḥ s teɣzi, yemmug i tseddi amek ara d-yeṭṭef ayen meẓẓiyen. Wa d amedya kan amecṭuḥ, maca Darwin ssya i iṣadd armi yessegrawel tussna n imudar s lekmal-is. Yufa ziɣ d agama i d-yelhan s kra din ; yella wanda ḍerrun lumuṛ s usamma kan d wamek i d-yewwi lḥal, maca dima d talmest iǧehden deg iɣersiwen, meḥsub tin iḥerzen tigemmi tajinit (patrimoine gnétique) yelhan i d-igerrin tettidir. Daymi aṭas i inegren segmi d-tebda tudert ar assa. Ma d tigemmi-a tajinit i yeṭṭfen amkan deg tsilunin n wudus , neɣ amek tettɛeddi gar tsitiwin, Darwin netta ur tt-yefhim ara di tallit-is, d taɣnwt-is (instinct) kan tamassnant d termit-is deg uḥekker d ufraẓ n lumuṛ i t-yeǧǧan ad yaru fell-as ; d acu ur ssawḍen ad tt-fehmen armi d talemmast n lqern wis XX, ad d-nuɣal ɣur-s.
+
+Di tilawt, ur d-yeḍḥa yewɛer i waṭas n medden akken ad gren tikti n temhazt di lbal-nsen, armi d-tettbin tumelt -is akka sufella d ayen ur iqqebbel wallaɣ, ladɣa ɣer wid i d-yekkren s tikti tamensayt n wexlaq imudar. Imi deg tidet-is, tamhazt tettarra laṣel n wemdan d wayen akk yeddren ɣef akal, ama d aɣersiw neɣ d imɣi, akken yebɣu yili meqqer neɣ mecṭuḥ, alamma d yiwet kan n tsilunt si ṣṣenf abaktiri ideg i d-tebda tudert deg waman ahat ma drus 3,5 imelyaren iseggasen. Ayen i d-yettxebbiren ɣef waya d imikrudusen (microrganismes) i ttafen ar tura deg ifuṣilen, yerna tikwal irennu yettibɛid later-nsen deg wakud.
+Lḥaṣun ɣef akken d-teqqar tussna tatrart, d tabaktirit-a tamikruskupit i yebdan tettimɣur mi d-tufa iman-is deg waman ur nmelleḥ armi tuɣal s talɣa n twekka tusbiṭ yettbinen ; syin mi tkemmel deg unegmu teṭṭef ṣṣifa n yislem. Ifuṣilen n « iselman-a » ttafen-ten dɣa s waṭas ɣer tamiwin igarawen (océans) ; ihi d kra seg-sen i d-yeffɣen, seg wid yesɛan tiferrawin tičaranin, zgan tteḥnunufen-d armi d-gran deg wakal aquran, dɣa d tifarriwen-nni i yuɣalen d iḍarren syin d afella. Yiwen uspisiman seg iqburen i ufan deg usammar n Groenland ahat wwḍen 460 imelyan iseggasen segmi iɛac.
+<br>
+D widak i d-yeǧǧan igḍad, iḥraraden , ikalmanen yecban imqerqar, akked isaṭṭaḍen ; syin akk i d-kkan. Deg tallit-nni tamezwarut d idinusuṛen i igman s tɣawla, yerna tuɣ llan am yegḍad kan, ma d wiyaḍ merra wwin-d acḥal di ṣṣifa n uɣersiw-nni i iṛebban tiḍartin yuɣal ileḥḥu ɣef rebɛa, yella d ameɣẓaz icuban s aɣerda, d netta i d ajaddi n isaṭṭaḍen merra ideg nella nekni. Ur yebda gemmu-s d inbeddalen-is ɣer waṭas n telmas armi negren idinusuṛen si 66 imelyan iseggasen-aya. Dɣa ɣef teɣzi n imelyan n lesnin, yebḍa ɣef waṭas n twaculin tiɣersanin, gar tid yettseyyiḍen d tid itetten leḥcic, d wiyaḍ ukud llan iprimaten, asellun yesdukklen amdan d waṭas n yibkan. Maca iprimaten mgaraden, llan imecṭaḥ, llan imeqqranen, ihi seg imeqqranen-nni i d-yeqqers umdan.
+
+Yella da lɣilaḍ mucaɛen ideg ilaq ad d-nebdu. Tuget n medden seg wid ur nwala tussna si lqerb, deg tmettiyin akk n ddunit, qqaren ma seg yibki i d-nekka s tidet, amek armi ibkan n wassa ur ttuɣalen ara d imdanen ? Netta da llant snat n tlufa i ilaqen ad ttusegzint. Tazwara, anbeddal-a mačči d ayen i d-yettilin deg teswiɛt kan akka, d inig ameqqran deg imyaten n luluf n lesnin, ur iẓerr yiwen s wallen-is ma ur inuda ara deg ifuṣilen, imi yettili-d s leɛqel maḍi. Tin ɣer-s, mačči seg ibki-a n tura s yiman-is i d-iruḥ umdan. Ma d tura akka aɣersiw i ittemcabin maḍi ɣer umdan si tama tansudrant, d acampanzi (chimpanzé) i yettidiren deg Tefriqt, acku send ayen ara yilin gar 6 d 8 imelyan n lesnin, yella ujaddi-nneɣ yiwen. Meḥsub kra seg telmest-a i ɣ-icerkan yella wayen i d-yeḍran deg udus-nsen ; ladɣa taḍermist (mutation) i yerzan allaɣ, d tin i yellan deffir n tilin n wemdan, ulamma amdan-nni amezwaru yettemcabi ugar ɣer yibki.
+D acu, mi d-yeffeɣ si twacult tasnudrant iwumi qqaren homonidae, amdan yebda yettenkar ɣef sin iḍarren, yessemras allaɣ-is, ikemmel tamhazt-is deg waṭas imecwaren, segmi yuɣal d tawsit (genre) iwumi qqaren homo : dɣa yella : homo-habilis, uqbel azal n 2 imelyan n lesnin deg Tefriqt usammar d wenẓul (i isqedcen yakan times, yenjer ablaḍ d amrig yerna yeffeɣ si Tefriqt) ; homo-eretcus uqebel 1,8 imelyan, d netta i ikecmen Turuft ; ma ɣer tagara d homo-sapiens i d-yellan si 300 000 iseggasen, i yuɣalen yettxemmim s tidet, d nekni dɣa akken nella tura ; yella neanderthal ɣer tama-nneɣ deg tewsit homo, iɛac ula deg Turuft, maca winna yenger.
+
+Iban, akken ad ɛeddint ṣṣifat si tsuta ɣer tayeḍ gar imudar, ilaq kan ad tili tanga ara tt-yawin. Aya ifhem-it Darwin, maca win i d-yeldin tifrat ɣer tmukrist-a i tikelt tamezwarut, d Uṭrici Mendel (1822 - 1884) i yellan d aqessis (prêtre), d acu yelha-d daɣen d inadiyen-a i iḥemmel, imi tuɣ yeɣra deg tfellaḥt . Dɣa d netta i igan llsas i tussna tamynut ara d-ilalen syin d asawen, iwumi neqqar tajinitit, ulamma imahilen-is ruḥen ttwattun acḥal iseggasen d wamek ɛawden gan-asen ccan. Lḥaṣun, d netta i d-yufan isuḍaf iwumi qqaren ara assa Isuḍaf n mendel, d ayen yerzan abrid n umcabi gar umudar d baba-s, neɣ jeddi-s, neɣ gma-s (deg yiwet n tsuta) atg. (ad d-nawi fell-as deg umagrad-iḍen). Yerna netta ɣef yimɣan i iga tirmitin-is, meḥsub d ajilban i yebda iteẓẓu-t ɣef waṭas n tikwal armi d-yessufeɣ igmaḍ ineggura.
+Maca wid i d-yesfehmen tajitinit s tidet, d Watson akked Crick deg useggas n 1953, asmi d-ufan amek yemmug w ADN s tseddi. ADN d alay asnudran aɣezfan, n uɣurmi (nayau) n tsilunin akked kra ivirusen, deg-s i yettwaxan yisalli ajini s wudem akimyan. Ihi ma zik imusnwen tuɣ zerrfen s tmuɣli kan d ufraẓ n termitin, seg yimir uɣalen sɛan tanga yettwallasen iɣer tcudd kra yellan d ṣṣifa yesɛa umudar, izemren ad ssrewsen seg telmest ɣer tayeḍ ; dɣa tura mačči kan d iusḍaf n Mendel i yuɣalen ttwazrawen s wudem ufrin, ssawḍen yimnuda fehmen yess ula d anda zedɣen kra n waṭṭanen yettɛeddin si tsuta ɣer tayeḍ, ayen ara iɛiwnen i uɛqal-nsen ɣas qbel talalit ; dɣa kka i ssulin ijinumen (génomes) n kra imudar. Ajinum d ayen i d-ijemmlen isallen ijiniyen icudden ɣer kra n telmest, win n wemdan fkan-t-id di 2003. Asmi t-srewsen ɣer win n yibki acampanzi ufan ttamcabin alamma d 99%, ayen yesswehmen lɛamma tamassnant, imi tilawt n temhazt tuɣal tban-d s wanzaten ufrinen, ur d-teqqim ara tettwaḍfar s ifuṣilen kan d tɣessiwin tiqburin, ladaɣa ma neẓra belli widak yettili lexṣas deg-sen ɣas akken ttaken-d isalli iqumen m’ara ilin.
+Yerna am akken yenna Richard Dawkins , win yebɣan kan ad s-d-yessukes kra i tidet-a, ad iruḥ ad d-inadi taɣessa n wemdan ara yesɛun ugar n 8 imelyan di leɛmer ; d lmuḥal, imi amdan tuɣ ur yewwiḍ ara talɣa i nesɛa tura. Kifkif ula i iɣersiwen akk i nessen, aqjun neɣ awtul, ur ttafen iɣsan-nsen ala seg tilla-nni kan mi qqlen s tumelt-nsen n tura.
+
+Ablug n Samir Tighzert TimuɣliwinIbki Ibki
+
+ibki (asget: "ibka") neɣ Iddew (asget: "iddawen") , d aɣersiw asuṭṭaḍ yettcabin amdan deg kra n yeglamen (ṣṣifat) n tfekka-ynes (udem, ifassen...) akked d kra deg tegzi-ynes. Amur ameqran seg yiddawen neɣ yebka tteddren sufella n yisekla (ttjuṛ), maca kra seg-sen (am ubabun, acimpanzi ed uguri) tteddren ɣef tegnit (lqaɛa). S umata, akk iddawen ttetten imɣan, afriwen ed yigumma (lfakya), maca llan wid ay izemren ad ččen tiɣawsiwin niḍen, am weksum d yibeɛɛac.
+Nikaragwa Nikaragwa
+
+Nikaragua, neɣ tagduda n Nikaragwa, s tsepunyult República de Nicaragua, d tamurt deg Temrikt n Wenẓul. Tesɛa tilisa d Kusta Rika ɣer tama n wenẓul, Honduras deg ugafa,am akken i s-d-yezzi ugaraw amelwi d tegzirin n Karayib. Deg-s 6 imelyan imezdaɣ.
+CLDR CLDR
+
+CLDR (wali asenfaṛ CLDR deg usmel unṣib n Unicode ) d axefwal n Common Local Data Repository, d asenfaṛ n ukunsurṣyum UNICODE i d-yettmuddun lsas n usali n iseɣzanen akken ad izmiren ad sferken akk tutlayin n umaḍal. Isefka-agi ad ten-sqedcen deqs n imaẓragen deg usideg n ifecka-nsen. CLDR yegber deqs n yeḥricen:
+
+
+
+
+Tasidegt n tulayt n teqbaylit tekker yakan deg UNICODE. Ugar n isallen, ddu ar usebter-nneɣ adigan CLDR Aqbaylit anida ara tafem akk iḥricen-agi, neɣ srid ar usmel Web n CLDR dagi
+Tarka taberkant Tarka taberkant
+
+Tarka taberkant d yiwet n tzitmurt n tarka meqqren iy nfufden deg Uruppa gar n iseggasen n 1347 d 1352 yenɣa azal n ⅓ neɣ ugar n 30% n imezdaɣ-is., dɣa tizitmura yecban tarka taberkant nfufdent deg yiwen n wakud ula di Asya d usamer adday ayen id yettaken amenni (lewhi) d akken tasakrart-a neɣ tazitmurt-a n Uruppa tella d amur seg tzitmurt tamadlant 
+
+Tarka taberkant d isekna-ynes ssisrigen-d (ttsrbbiben-d) Tyersinya tarkant igan d tabiktirt yettidiren deg tfekkiwin n temseɣẓaẓ
+
+Anfufed n tsakrart-a yebda-d deg Asya talemmast maca inzan (ttbut) ɣef wanect-a ur banen ara ma d imdettiyen 
+
+Sagwa the Chinese Siamese Cat Sagwa the Chinese Siamese Cat
+
+Sagwa the Chinese Siamese Cat sulfen-t-id imarikaniyen aseggas n 2001. Tɛedda deg telenẓar i tikkelt tamenzut ass n 2004.
+Ḥmed Ḥamum Ḥmed Ḥamum
+
+Tameddurt
+
+Ahmed HAMOUM, d yiwen n wemdan amagnu yettidiren am ṭaqqa n yimesdurar di tmurt n Yeqbayliyen. Ilul ass n 04 di meɣres 1955 di taddart n Taqerbust, taɣiwant n Aɣbalu, tamazzya n Imceddalen, agezdu n Tubiret.    Almud-is amezwaru, yesɛedda-t deg uɣerbaz n taddart-is. Imi ur as-tefki ara twenza-s ad yekcem aɣerbaz alemmas am tezyiwin-is, ɣas akken yewwi-d aselkin n tezrawt amezwaru (CEP), ikemmel deg yiɣerbazen usligen (privées).
+
+
+    Yeǧǧa-n igen, yeqqel d aɣarim, yesselmed deg uɣerbaz amezwaru s teɣzi n 18 n yiseggasen. Segmi yekki di tannant n yiselmaden n tmaziɣt i d-tsuddes tuqqna taɣelnawt (coordination nationale) n umussu adelsan amaziɣ (MCB) di Tidukla Tadelsant Tamaziɣt n Bgayet timsirin n tmeddit, si 23 Duǧember 1995 armi d aggur n yulyu 96, ibeddel ɣer Tmaziɣt deg wunbir 97 armi d-yeffeɣ tastaɣt (retraite) di taggara n duǧember 2010.
+
+Ayen yuraRacid Ḥituc Racid Ḥituc
+
+D mmi-s n taddart n Yiɛemrac, Racid Ḥiṭuc, ilul deg ass n 09 deg ayyur n mayu n useggas 1962, deg ugezdu n Bgayet, deg tmurt n Yiqbayliyen. Seg temẓi-s i ḥemmel ayen icudden ɣer yidles d tɣerma n tmazɣa sumata,taqbaylit ladɣa. 
+
+Zik yella icennu sya ɣer da, yessaweḍ yesekles tasfift, d acu kan ur yessaweḍ ara a tid yessyfeɣ, imi deg akud-nni xussen walallen. Yekkr-d d ameɣnas akken d aleqqaq deg umussu adelsan amaziɣ, yekki deg tikliwin i d-yettilin di Bgayet d Tizi Wezzu d wanda-niḍen.
+
+Ixuleḍ aṭas n wudmawen yettnaɣen ɣef tutlayt d yidles, tettunefk-as tegnit ad yemlil daɣen xilla n yinaẓuren d yimeɣnasen, gar-asen Ferḥat Mhenni d mmi-s Ameẓyan, Meɛtub Lwennas, Taher Ğaɛut, d waṭas-niḍen yal yiwen s yisem-is d leqder-is.
+
+Rnu ɣer yessefra, yerra tijmilin, yella d aɛeggal deg aṭas n tdukliwin tidelsanin, iga xilla n yisaragen d temliliyin ɣef yidles d tnekkit. D ameɣnas n yizerfan n umdan d tlelli n umeslay, ibedd ɣer wid yenḥafen, yura imagraden s tefransist d teqbaylit deg uɣmis Tiɣremt-La Cité akked uɣmis alikṭruni Siwel.
+Amol Amol
+
+Amol tella d tamdint tamuqrant tezga-d g Iran.
+Mhenni Xalifi Mhenni Xalifi
+
+Mhenni Xalifi d yiwen n yilemẓi i d-yefka Udrar n Fad deg temnaḍṭ n At Smaɛel, ilul deg useggas n 1990. Ɣas yufa-d iman-is d ameɛḍur, ur yettekker ara, maca allaɣ-is ibedd, yenjer abrid n Belɛid At Ɛli d wid icuban ɣur-s imi yesdukkel-iten-t i merra. Yessefra, yura, yecna.
+
+D amedyaz, d amaru, d aneɣmas s tutlayt tayemmatt (taqbaylit) akk d tefransist deg Uɣmis n La Dépêche de Kabylie, d yisebtar n Tiɣremt deg La Cité, d bab n umagrad ‘‘Nnhda n acer » d yimgraden-nniḍen i d-yettawi ɣef yidles d waddal, timetti, adiwen-nni, yimeɛḍar d tejmilin.
+
+Yekki deg aṭas n temzizlin d tfaskiwin i d-yettilin deg tmurt n Yiqbayliyen ɣef tmedyazt (Tafaska n Udrar n fad) d tullisin (Tiregwa tasbeddit takanadit i tmaziɣt).
+
+Yewwi arrazen, yerna yessuffeɣ-d yiwen uḍebsi n ccan azedgan s Teqbaylit anda yekki unaẓur ameqqran Zedek Mulud, yessnulfa-d arraz n umagrad ifazzen ɣef tudert n Dda Lwennas Meɛtub.
+
+Amyag Amyag
+
+Kra n tɣawsiwin ɣef wemyag
+
+« Amyag d awal ifettin i lmend n wudem ». Dda Lmulud
+
+Amyag yesskan tigawt nexdem, taɣara neɣ addad n kra tɣawsa. Akka, amyag di tmaziɣt yebḍa ɣef sin isufar:
+
+Amyag ifetti s:
+
+Llan sin n yesmilen n yemyagen, mxallafen kan di tseftit:
+
+Talɣa taḥerfit, d tin n wemyag ur nefti wara, ur tesɛi wara imattren udmawanen, amedya: kcem, ali, ddu...
+
+Timeẓri, temmal-d amek teḍra tigawt, ma wezzilet, ma ɣezzifet, ma teḍra yiwet n tikkelt neɣ tettuɣal-d, ma temmed neɣ ala...
+
+Akud yemmal-d melmi teḍra tigawt.
+akuden n tseftit
+
+urmir ur yettuseqdac ara aṭas weḥd-s, di tigti s tzelɣa n yimal ad i ifetti. A t-naf kan di kra n isuka am: win yebɣan ad yečč, yečč ; qqimet ar azekka, truḥem...
+
+urmir (anaḍ) nesseqdac-it akken ad nmudd tasunḍa neɣ lewṣaya, amedya: awi-t yid-k! ; xdem tid lɛali a tent-tafeḍ...
+
+urmir (imal) nesseqdac-it akken a d-nessken ayen ara yilin ɣer zdat, tigawt mazal ur teḍri neɣ ahat ur tḍerru wara (imal = ad/a + urmir), amedya: tameddit-a ad jbuɣ ɣur-s...
+
+izri nesseftay amayag deg yezri akken a d-nessken kra n tigawt neɣ n waddad iɛeddan, yemmden, amedya: yuli ; tusa-d ; werriɣit...
+
+izri ibaw, talɣa tibawt n wemyag deg yezri, amedya: ur yuki wara ; ur ẓriɣ s anda yerra...
+
+anaḍ ussid, talɣa tussidt n wemyag, amedya: ttali (ali) ; keččem (kcem)...
+
+urmir ussid nesseftay amyag deg wurmir ussid akken a d-nessken s umata tigawt i d-yettuɣalen, yettkemmilen, ur nemmid ara. Amedya:
+
+imattaren udmawanen
+
+Amyag, yeftin di kra n wakud, yeddes s umatar udmawan akk d ufeggag, tuddsa-yagi neqqar-as talɣa tamyagant. Amatar udmawan, yesskan-d anwa udem wuɣur yefti wemyag.
+
+Talɣa tamyagant turgamt = t + urga + mt, t - mt, imattaren udmawanen
+urga, afeggag n wemyag argu deg yezri
+
+Imattaren udmawanen n yemyagen n tɣara am wid n yemyagen imugna, anagar deg yezri i mgarraden.
+
+Ad tafem imattaren n yakk udmawen n tseftit deg imedyaten i d-nebder di taggara.
+amaɣun
+
+Amaɣun d yiwet n talɣa n wemyag i nesseqdac mti yella umeggay d amassaɣ, amedya: d argaz-nni i d-yusan ; tusa-d tmeṭṭut-nni yettun mmi-s...
+
+Amaɣun d armeskil, ur ifetti wara, ur yettbeddil ara s ubeddel n tewsit neɣ n wemḍan. Yezmer ad yili d ilaw: inudan (izri), ara inadin (imal). Neɣ d ibaw: ur nezmir (izri), ur nzemmer ara (imal).
+tazelɣa n tnila
+
+Nesseqdac tazelɣa n tnila d/n i wakken a d-nmel s anda neɣ ansa i d-tekka tigawt.
+
+Tazelɣa d tettweǧǧih tigawt ɣer win i d-yettmeslayen, amedya: iruḥ-d iḍelli (iruḥ ɣer win i d-yettmeslayen).
+
+Tazelɣa n tesskanay-d belli tigawt terra ɣer win i d-isellen, neɣ terra ɣer wemkan nniḍen, amedya: iruḥ-n (iruḥ ɣer tama n win i d-isellen neɣ s amkan nniḍen).
+Imyagen izelman
+
+Imyagen izellumen ttwasilɣen seg yemyagen iḥerfiyen ama d imugna neɣ n tɣara. Ilugan n tseftit-nsen am yemyagen nniḍen.
+
+amyag aswaɣ yettwasileɣ s wezwar n s neɣ yiwet seg talɣiwin-is sse, ssu... amedya: ssekcem (kcem), sluɣ (luɣ), ssider (ader)...
+
+amyag amyaɣ yeskanayen amyebdal n tigawt: myuzzamen = mbadalen tuzzma (wa yezzem wayeḍ). Yettwasileɣ s wezwar n m neɣ yiwet seg talɣiwin-is: mye, myu... amedya: mbeddal (beddel), myezwir (zwir), myuṭṭaf (ṭṭef)...
+
+amyag attwaɣ yeskanay d akken tigawt tettrusu-d ɣef umeggay. Yettwasileɣ s wezwar n ttu, ttwa, neɣ daɣen tt, mm, n, nn. Amedya: ttwakrez (krez), ttucudd (cudd), nnẓem (ẓem), mmečč (ečč)...
+
+Nezmer ad nessileɣ azellum seg wemyag yellan yakan di talɣa n uzellum, d aya umi neqqar izelman izelman, amedya: ttunefk < nnefk < efk, ttuzenz < zzenz < enz
+Kra imedyaten
+
+Amyag amagnu kcem
+nekk kecmeɣ ur kcimeɣ ara ad kecmeɣ keččmeɣ
+kečč, kemm kcem tkecmeḍ ur tekcimeḍ ara ad tkecmeḍ tkeččmeḍ
+netta, nettan yekcem ur yekcim ara ad yekcem ikeččem
+nettat tekcem ur tekcim ara ad tekcem tkeččem
+nekni nekcem ur nekcim ara ad nekcem nkeččem
+kunwi kecmet tkecmem ur tekcimem ara ad tkecmem tkeččmem
+kunnemti kecmemt tkecmemt ur tekcimemt ara ad tkecmemt tkeččmemt
+nutni kecmen ur kcimen ara ad kecmen keččmen
+nutenti kecment ur kciment ara ad kecment keččment
+
+
+Amyag n tɣara imlul
+nekk melluleɣ ur melluleɣ ara ad imluleɣ ttimluleɣ
+kečč, kemm imlul melluleḍ ur melluleḍ ara ad timluleḍ tettimluleḍ
+netta, nettan mellul ur mellul ara ad yimlul yettimlul
+nettat mellulet ur mellulet ara ad timlul tettimlul
+nekni mellulit ur mellulit ara ad nimlul nettimlul
+kunwi imlulet mellulit ur mellulit ara ad timlulem tettimlulem
+kunnemti imlulemt mellulit ur mellulit ara ad timlulemt tettimlulemt
+nutni mellulit ur mellulit ara ad imlulen ttimlulen
+nutenti mellulit ur mellulit ara ad imlulent ttimlulent
+"Awal ɣef umyag n teqvaylit: "
+Amyag d yiwet n taggayt tanejṛumt tagejdant i ɣef tvedd tefyirt. Di teqvaylit (tamaziɣt s umata), talɣa taḥerfit n umyag d anaḍ, deg udem wis sin asuf. Yis-s i d-tettili tekcimt deg usegzawal. Ad neṭṭef amedya n umyag aru:
+
+Udem wis sin asuf:
+
+Di teqvaylit imeqqimen udmawanen ilelliyen d wigi: 
+
+-Asuf Amalay : "nekk -" "keč" "-" "netta" 
+
+-Asuf "Unti: nekk" "-" "kem" "-" "nettat" 
+
+-Aseget Amalay: "nekwni -" "kunwi" "-" "nitni" 
+
+-Aseget Unti: "nekwenti" "- kunemti" "-" "nitenti"
+
+Ader:
+
+Af:
+
+Eḍs:
+Abuneqqaṛ Abuneqqaṛ
+
+Ceṛṛegḍiḍ Ceṛṛegḍiḍ
+Tifeɣwa n weɣyul Tifeɣwa n weɣyul
+
+Addad (imɣi) Addad (imɣi)
+
+Addad neɣ Akicaw (Assaɣ ussnan: Carlina) d tawsit n imɣan yeṭṭafaren tawacult n tetrit deg tfesna n tetriyyin. Deg tewsit-a llant gar n 40 ar 50 n telmas id yettemɣayen deg wemda n yilel agrakal d usamer alemmas maca llant telmas n iden id yettemɣayen deg tamiwin n iden 
+Aḥeddad n lqalus Aḥeddad n lqalus
+
+Taddart n Lqalus tura trav. Qqaren ass-mi itt-mazal tevded, yella deg-s yiwen uḥeddad yesɛa cci, yerna ɣur-s tameṭṭut tzad di ṣṣifa.Yiwen wass qqimen kra n lɣaci la heddren di tejmaɛt, inṭeq-d yiwen yenna-as :
+
+-Lemmer ad iyi-tcehdem, ad-kkseɣ i uḥeddad tameṭṭut is.
+
+Nnan as: 
+
+– I kecc s lɛaqel ik?
+
+Yenna-asen: 
+
+- Ṛeggemt-iyi kan ar ad iyi-tcehdem. 
+
+Lɣaci ṛeggemn-as( weɛden-as).
+Iruḥ ar tejmaɛt n ccraɛ,yenna-asen:
+
+-Sliɣ i uḥeddad yevra i tmeṭṭut-is s tlata fi tlata. Ihi yekkes-as-tt ccraɛ. Aqli nekk bɣiɣ ad tt-aɣeɣ.
+
+Nnan as : 
+
+– D lmuḥal !
+
+Yenna yasen belli ẓṛan medden.
+
+Nnan as : 
+-Awid ihi inagan .
+
+Iruḥ yewwi-d inagan-nni i as-iṛeggmen di tejmaɛt. Cehden-as. Tajmaɛt teḥkem belli tennevra tmeṭṭut n uḥeddad lqalus. Truḥ. Imir yuɣ-itt urgaz-nni. ɣer taggara uɣalen armi kksen i uḥeddad ula d tiferkiwin-is.
+
+Tella di taddart n Lqalus yiwet temɣart tegra-d weḥd-s, ur tesɛi ḥedd. Tewweḍ-d tefsut; vdan medden la teffɣen ɣer tferkiwin-nnsen. Ala tamɣart-nni acku ulac win ara teğğ deg uxxam-is . Ass-nni truḥ s aḥeddad tru-yas. Yenna-yas :
+
+-Ma tevɣiḍ ad am-ggeɣ ttawil?
+
+Tenna-yas :
+
+- D acu yevɣa uderɣal, a mmi? Yak d tafat…
+
+Yenna-yas :
+
+- Ad am-xedmeɣ tasekkart ara yetteskkiren axxam-im si veṛṛa.
+
+Di lweqt-nni tiwwura ttsekkirent kan si sdaxel. At taddart, akken walan tamɣart, mi tsekker tawwurt-is ad truḥ ar lexla mebla akukru. Imir vdan ad d-ttazzalen ɣer uḥeddad iwakken ad asen-ixdem tisekkarin si veṛṛa ula d nutni.
+
+yexdem- itent, maca mkul yiwet yuqem-as snat n tsura, yiwet yeğğa-tt ɣur-s, tayeḍ yefka-tt i vav-is.
+Yiwen n wass amesvaṭli-nni d tmeṭṭut-is txuṣṣ-iten tmes,yenna-yas i tmeṭṭut:
+-Ruḥ awi-yaɣ-d cwiṭ n tmes sɣur uḥeddad .
+Tenna-yas :- Annaɣ! Anwa udem iyes ara t-qableɣ?
+Yenna-yas :- Nniɣ-am ddem aceqquf truḥeḍ.
+Truḥ. Mi tewweḍ tvedd, tegguma ad tqerrev. Aḥeddad iwala-d tili-s,yenna yas :
+-Qerrev-d.
+Tenna-yas : d nekk!
+Ynna yas :- Nniɣ am qerrev-d.
+Tenna-yas :-Nniɣ-ak d nekk.Ur iyi-d-teɛqileḍ ara?
+Yenna-yas :- Ẓriɣ d kemm, qerrev-d.
+Tekcem, tenna-yas:
+-Acu la txeddmeḍ a Vu-nnkuz ?
+Yerra-as s tmeɣrut agi:(-uz-).
+
+Xeddmeɣ i medden akk lxir
+nekk d aḥeddad si Lqalus
+
+Ul-iw Yettagem ineqqel
+ha-t-a di lhemm ur ixus
+
+Ad kwen-ttreɣ a lawliya
+At Mraw akk d wat Ɛrus
+
+Aqli la neğğṛeɣ azduz
+Ay at Ṛebbi get-as afus
+
+Tuɣal tmeṭṭut s axxam. Yenna-yas urgaz is:
+-Acu i m-id-yenna?
+Teḥka-yas, tules-as-d ifyar i as-d-yenna uḥeddad. Dɣa yenna-yas:
+-Tettakeḍ awal i vu-tirgin! yeččur kan d awal...
+Di tama n Lqalus tella yiwet n taddart temsaɛdaw yid-s; wwḍen armi qriv i tt-xlan. Iruḥ yiwen n wass uḥeddad ɣer yimḍebbren n taddart-nni, Yenna-asen:
+-Ayen iḍran yidi teẓram-t.Tura ma tevɣam ad awen-zenzeɣ taddart, ad tt-texlum.
+
+Nnan as :
+-Amek?
+
+Yenna yas : 
+
+-Ilaq taɛessast-nwen mkul iḍ ad n-tqaraɛ s-axxam-iw; Mi d-twalam ɣer ṭṭaq ajajiḥ n tmes azzelt-d.
+Yiwen n yiḍ aḍu la issafag iqremyad. Medden akk ṭsen. Aḥeddad yekker, yevda-d i taddart si ṭṭerf. Axxam iɣef iɛedda isekker-as tawwurt si verra.Yuli ɣer taɛrict n uxxam-is, yeddem tadla n yiɣlel, yessaɣ- itt, yessɛedda-tt-id si tṭaq. Aɛdawen walan-d ajajiḥ mebɛid, uzzlen-d s sslaḥ. Zzin i taddart si mkul idis, mekknen-as times. Tendeh, tleḥḥu armi d-yewweḍ s ixxamen imezwura n taddart.Laɛyaḍ yekker.Win yemmɣen ɣef tmekwḥelt, ad iruḥ ad d-yeldi tawwurt, ad tt-yaf tsekkeṛ si veṛṛa.
+
+Aḥeddad n lqalus yerra-d ttar n wayen texdem deg-s taddart-is.
+
+Akka i tenger taddart-a n Lqalus.At Smaɛel At Smaɛel
+Iɛezzuzen Iɛezzuzen
+
+Iɛezzuzen d yiwet taddart d-yezgan di tmurt n Leqbayel di tɣiwant n Larbɛa n At Yiraten. Abban Remḍan yiwen seg warraw-is.
+Falesṭin Falesṭin
+Aylal Aylal
+
+Aylal neɣ Agṭiṭ (Assaɣ ussnan: "Aves") d aɣersiw ittafgen deg igenni s ifariwen. Yettwassen s ifrawen yesdurayen tafekka-ynes d uqamum-is ur nli (ur nesɛi) tuɣmas d useusay n tmellalin ilan (yesɛan) icelman uffiɣen izuranen, d ujgu n uzagur meẓẓiyen fsuse, iylalen ttidiren deg yal ideg deg tegnit, ibelɣen-is mgaradent seg umeẓyan ar umeqran s waṭas
+
+tasensartut tusnant tamezwarut tamirant i waylalen tettusers-d seg ifassen n sin imusnawen n Legniz John Ray d Francis Willoughby deg uskar nsen deg useggas n 1676 s uzwel n Tusna n iylalen (s Tlatint "Ornithologiae")
+Ageffur Ageffur
+
+Ageffur d tiqqa n waman id yitteɣlayen deg usegna seg igenni
+
+
+
+Tifert Tifert
+
+Tilulat Tilulat
+
+Ḥasek Ḥasek
+
+Ibiqes Ibiqes
+
+Arjaknu Arjaknu
+Azemmun (imɣi) Azemmun (imɣi)
+
+Ittim Ittim
+
+Ɛemmur Ɛebdennur Ɛemmur Ɛebdennur
+
+Ɛemmur Ɛebdennur (Amour Abdenour) d acennay, d amesẓawan, d amedyaz aqbayli, ilul ass n 17 furar 1952 deg Leflay (Bgayet).
+C Sharp C Sharp
+
+C Sharp neɣ C# d tameslayt n usihel sɣur Microsoft. Designer n tameslayt-agi isem-is Anders Hejlsberg.
+
+Akk d C#, Microsoft tebɣa ad tesnulfu tameslayt n programmation tugar Java n Oracle, di 1999 teffeɣ-d version tamezwarut n C#, version-agi tella tettcabi s waṭas ɣer Java.
+
+Di les versions nniḍen, C# yettembeddal u yerna aṭas les fonctionnalités i ixuṣṣen di Java am :
+
+
+C# d tutlayt teddu g lFramework .Net, llant 3 les versions n .Net :
+
+
+Akken yiwen ad yeprogrami mebla ad yessen lFramework gar 3 les Framework-agi, Microsoft teffeɣ-d .Net Standard.
+
+using System;
+
+class Program
+Anders Hejlsberg Anders Hejlsberg
+
+Anders Hejlsberg (/ˈhaɪlzbɜːrɡ/, ilul-d g Dujamber 1960) d anjinyur mechur seg Denmark.
+
+Yesnulfa aṭas n tutlayin n programmation : 
+
+Tura netta ixeddem ɣur Microsoft.
+
+Hejlsberg ilul-d g Kopenhagen, Denmark, yeɣra di lakul n wanjinyur di Technical University of Denmark lameɛna ur yekmil ara ar taneggarut.TypeScript TypeScript
+
+TypeScript d tutlayt n usihel sufella n JavaScript i tt-yesnulfan Anders Hejlsberg (Microsoft). Beɛd la compilation TypeScript yettuɣal Javascript deg yiminig.
+
+Deg JavaScript ulac Ttipaj, seddaw egzampl anda la tawuri "addition" tqebbel kulci ("number", "string"...etc.) :
+
+addition(3, 2) ad yefk 5, addition(3, 'toto') ad yefk '3toto'.
+
+S TypeScrit, nezmer ad nerna les Types akken ur nezmir ad nɛeddi ala "number" :
+
+Win yesseqdacen addition s Typscript ur yezmir ara ad yessawel addition(3, 'toto').
+JavaScript JavaScript
+
+JavaScript d tutlayt n usihel mebla compilation i d-yesnulfa Brendan Eich (Netscape). JavaScript itddu kan deg yiminig web maca tura nezmer ad t-nesseqdec deg Backend s Node.js.
+
+console.log("Hello World!");
+
+Between the Lions Between the Lions
+
+Between the Lions (s tanglizit : "Between the Lions") sulfen-t-id imarikaniyen.
+Salesforce.com Salesforce.com
+
+Salesforce.com d tarmist n software ixelq-itt Mark beniof g 1999, nettat mechur s CRM ines.
+
+Tafra Tafra
+
+Tafrat Tafrat
+
+Nils Holgersson (Anime) Nils Holgersson (Anime)
+
+Nils Holgersson (ニルスのふしぎな旅 Nirusu no Fushigi na Tabi) d Animé yettawi taḥkayt-is seg tamacahutt n Selma Lagerlöf: Inig n Nils Holgersson. Yeffeɣ-it Studio Pierrot g 1980 u yesɛa 52 épisodes.
+
+Nils d aqcic aḥdaqar, d afenyan, yewɛar akk d lmal n lfirma n baba-s.
+
+Yiwen wass, ass n lḥedd, Nils ur yebɣi wara ad iruḥ ar taklizt akk d imawlan-is, baba-s yeqbel ma Nils ad yeḥfeḍ ciṭuh n tbibelt. Mi ruḥen imawlan-is, yettu iman-is u yeṭṭes, mi d-yekker yufa yiwen akeḍwan, yeṭṭef-it, yugi ad s-iserreḥ deg wakud yefka-yas akeḍwan idrimen, Nils yebɣa kan ḥaǧa: ad yeḥfeḍ tibibelt qbel ad d-yuɣal baba-s.
+
+Akeḍwan yugi ḥaǧa am akka, yezɛef u yerra Nils d amcṭuh am netta.
+
+Mi t-walan lmal n lfirma, ḍsan fell-as u bɣan ad t-wten. Di lqweqt nni, Morten, awezziw n lfirma, yella iheyyi iman-is ad ining akk d iwezziwen n lexla, mi yufeg, yeṭṭef-it Nils u akka yezmer ad yerwel seg ifassen lmal n lfirma. 
+
+Di inig-nni, Nils yebɣa ad yuɣal ameqqran am zik.
+
+
+Ǧuz Ǧuz
+
+Ɣlilu Ɣlilu
+
+Taṛtelt Taṛtelt
+
+Taṛtelt neɣ Anedrim (Assaɣ ussnan: Prunus avium) d aseklu id yettemɣayen deg Uruppa d Asya d Tefrikt n ugafa. Talmest-a teṭṭafar tawsit n ufurmas igan d agman deg twacult n tnejjikt
+Tattefaḥt n yiddawen Tattefaḥt n yiddawen
+
+Axerrub Axerrub
+
+Ayefki n teɣyult Ayefki n teɣyult
+
+Tisfuccatin Tisfuccatin
+Mkaɛkaɛ Mkaɛkaɛ
+
+Waktun Waktun
+Tibbi Tibbi
+
+Tibidas Tibidas
+
+Nuriya Benɣebriṭ-Remɛun Nuriya Benɣebriṭ-Remɛun
+
+Nuriya Benɣebriṭ-Remɛun d tasertayt tadzayrit tlul g 5 Meɣres 1952, seg 5 Mayu 2014 ar 1 yebrir 2019 nettat tella d taneɣlaft n ussegmi n dzayer.
+
+Send ad d-tuɣal taneɣlaft, tella ttetwellih CRASC (Centre national de recherche en anthropologie sociale et culturelle).
+
+Gma-s n jeddi-s, Ssi Qeddur Benɣebriṭ, yella yiwen seg imdanen i d-yesnulfan Tamezgida n Paris.
+
+
+Ǧunger Ǧunger
+
+Ǧunger (アストロガンガー Astroganga) d Animé ɣef super robot. Yeffeɣ-it Knack Productions g 1972 ar 1973 di 26 épisodes.
+
+Maya d tafɣakalt (alien/extraterrestre) tunag g l'espace u teɣli af wakal, terwel seg Blasters axaṭer heddmen wemtiweg-ines. Blasters d ifɣakalen, ttakren akk tiɣbula n imtiwgen nniḍen. Maya tezweǧ amussnaw n wakal u sɛan aqcic nnefṣ bnadem nnefṣ afɣakal isem-is Kantaro. Asmi Blasters wwḍen ar akal, Kantaro yufa iman-is yettnaɣ yid-sen s lemɛiwna n Ǧunger, d super robot. 
+
+Anagraw n yisem Anagraw n yisem
+
+Anagraw n yisem
+
+Amgared gar yisem d umyag deg sin n yiswiren : talɣiwin d twuri
+
+Timesɣariwin tigensanin: 
+Tamesɣaṛa n tuzzuft: amalay / unti
+
+Tawsit, deg tjerrumt, d asmil (‘‘catégorie’’) yersen ɣef umgired n tuzzuft. Da tawsit d n ugama, i nettaf tikwal kan deg tutlayin tigamanin": axxam"~"taxxamt", "izi" ~ "tizit", "uzzal" ~ "tuzzalt"  ur yelli ara d tanmegla n tuzzuft. Da tawsit, d talɣa kan, ur telli deg unamek. Deg tefṛansist, taṭelyanit, taspanit, taɛrabt, llant snat tewsatin n talɣa : amalay d wunti. Deg talmant, tarusit, llan tkradet (tlata) n tewsatin : amalay, unti, arawsan. Deg tesnilest, deg tefransist d amedya, s umata tawsit ur telli d awalec (awal n tjerrumt : ‘‘monème’’), axaṭer ur d-ittekk seg ufran deg tmeslayt. Ma yella yisem kan, tedda-d yid-s tewsit-is : ur yezmir yiwen ad d-yini "poire" war ma yenna-t-id deg wunti, ur yezmir ad as-d-yefren amalay. Tawsit akked tuzzuft mgaradent : "cuisinier" ~ "cuisinière" deg-s tanmegla n tewsit, deg-s tanmegla n umawal.
+Akeffadu Akeffadu
+
+Akeffadu d tamdint deg twilayat n bgayet.
+
+commune d'Akfadu (vitaminedz)
+Grendayzer Grendayzer
+
+Grendayzer (ＵＦＯロボ グレンダイザー Yūfō Robo Gurendaizā) d Animé ɣef super robot. Yeffeɣ-it Toei Animation g 1975 di 74 épisodes.
+
+Lɛesker n wemting n Vega heddmen u nɣan imezdaɣ n wemting n Flid, yeqqim-d ala d agellid nsen, yezmer ad yuker rrobot Grendayzer u yerwel ar akal lɛibad. Dinna yufa amussnaw yesterḥeb-it, yefka-yas axxam u ffren Grendayzer seddaw akal. Agellid n flid yuɣal-d d axeddam g lfirma n lǧar.
+
+Lɛesker n Vega wwḍen qrib ar amting n wakal, sṭallin af wayyur u bdan lgirra amgal agellid n flid d Grendayzer.
+
+Ḥmed Lala Ḥmed Lala
+
+Ḥmed Lala (neɣ s trumit Ahmed Lala), ilul deg waggur n yulyu, aseggas 1967, d mmi-s n taddart Tiwririn, yezgan deg tɣiwant Ifnayen. Yeqdec aṭas deg tdukliwin. Ayen akk yesla, d wayen akk yeɣra ama s teqbaylit ama s tefransist, yenğer-as-d abrid ɣer usefru.
+
+Ḥmed yezdeɣ deg tzeqqa asnulfu. Ɣas akken yenna deg yizli : « Yebɣa ad iferfer am lbaz, s wafriwen warẓaẓ ». Netta ixemmem yufeg s lecɣal s wafriwen n lbaz, akken ad d-yefk tiktiwin s tament n tzizwa. Yuzen-d tilufa s tektiwin timaynutin i tɣawsiwin tiqburin neɣ timiranin.
+
+Akken daɣen i d-isellek kra wawalen seg tatut. Wid yebdan ttɣiben acku ur ten-nesseqdac ara aṭas. Gar-asen llan (cetfu/ccah, herwet/zleɛbeḍ, uɛqim/yettwaɣ…).
+
+Ḥmed Lala mechur s swmmud Tamedyazt d twaract-is.Abyannu Abyannu
+
+Ač yiɣef n usuggas, seg wuduf n Muḥeṛṛem ar ass fayd (wis) mṛaw di uyur, tiddar n At Mẓab tteggent tfaska n "Abyannu" niɣ "Αbyahannu": d igget tfaska tus‑aneɣ‑d seg zik n zik, tteggen-asen-tt midden i tarwa tazdadt. Mi wannan (nekḍen) ass seg wussan deg yigget si teddar, ad aznen i at ɣer‑sen d at weɣlad: " Iwat int-asen i tarwa-nwem ad d‑asen ass n wayflani ad ggen yid‑neɣ Abyannu!" Ihi, mi yiweḍ wass‑nni ad d-asen imar‑a ayen tarwa ssya d ssya, ad gerwen ay ulun (akk) di teddart-nni, ad d-bbin ayen at teddart ad ssun cra s ddaw yimi n itran (cebbak), asen‑wcen i yicidwan (irbaten), ač yigg si‑sen, bessi (imik) n ibawen, bessi n kawkaw niɣ n tcicet (lluz), bessi n temziḍin n wejḍiḍ (leḥlawi n ubuɛud) niɣ ucin‑as d lgaṭu, bessi dex n ikeṛṛayen ma llan, bessi n ssukker, ač yiggen d wayen i yexs ad yegg.. Asen‑ccaṛen d aweḥdi (mliḥ) uṛan‑nsen d yixemmalen n tcebrin‑nsen d iɛebban‑nsen, ač arraw yqas ad ycemmeṛ ujar n aytma-s... Ihi, ad alin imar‑a ay ulun ɣer nneǧ‑wadday (aswir unniǧ n wexxam) as‑nneḍen i weyder n lsas (cebbak) ad ntan ssenǧuǧuyen uṛan‑nsen d wayen i d-cemmṛen, cennun qqaren: "Aaabyaaa haaa nnuuu.. lalla-nnu, ṣadaq-ḷḷaaah wa tɛallaaa... Haay!" (awal‑a ɣer At Izǧen, maca ač yiɣrem d way i qqaren midden‑s). Ihi, tarwa ad qqimen cennun iwalen-nni ttɛawaden‑ten, rennin ujar d ujar aẓagga... aaar mi nnan "Haay" taneǧǧarut, timirt-nni kan, ad d‑klin (ad d‑ggren) akk ay i gerwen deg fassen‑nsen! Ad at‑cetteḍen ɣer uǧenna ad d‑yuḍa ɣer wadday seg yimi n itran am wenẓar. Ttwannan akan s tiṭṭawin‑nsen, ur yettessen bab‑s melmi ɣ ad klin m'ur yelli yid‑nsen. Mi klin, ad zzelen mzawren tisunan ɣer wadday, ɣer wassu (taferracit) i asen‑ssun ddaw yitran, ad wḍan ɣef wayen ifsan di‑s gerrwen‑t, d netnin ttferɛenen ḍessen, taneǧǧarut, ad wcen akk ayen i gerwen i At teddart‑nni, asen‑t-ẓunen (bḍan) d tizgibin d timeẓyanin ač iggen yaɣ tunt‑nnes (tnuba) yeẓwa ɣer‑sen d netta yesba yettgeẓgeẓ... yettjur yeqqar deg wul‑nnes : Awissen mani ɣ ad yili Abyannu n uzečča ?
+
+Ulsen At zik ɣef tenfust n Abyannu, yella wa iqqaren : tedwel ɣer yimar n Baba-nneɣ Νuḥ Aser, seg mi yersu uɣerrabu‑nnes tamurt teqqur, yegrew bnudam d imudar i d‑usin yid‑s akk, yebbi‑d yenta yekli‑asen‑d si uǧenna n uɣerrabu ayetli d wuccu i d‑iwin yid‑nsen... ilin ttezzlen, ttnaqqan, ač umexluq yettebbi tunt i yili.., ilin icidwan deɣ netnin ttbibizen ɣef‑s ar as‑ttinin s yiles‑nsen ukrid: "Abi a Nu, Abi a Nu, Abi a Nu, ..." (Awi-d a Nuḥ). Ur nessin n tidet niɣ uhu.
+
+Amezwar n Muḥeṛṛem, qqaren midden twatra n yiɣef n usuggas. Mi tudef Taɛacurt (ass n mṛaw di uyur), ad d‑kkren midden zik s yiḍes, ad ssirden s waman n Tzuggart (ssedret) i tewwet tafuyt, ad ɣren ibedduren n Uyuc ɣbecca‑nni, ggen twatra, wcen Slam jar‑asen d wi mlilen akk deg wass‑nni, ẓwan ɣer tenḍal d tiǧrarawin, irǧazen - tisednan - tarwa, bac ad mmektin imriwen‑nsen d ilmeɣriwen illan ass‑a ddaw ucal... mmektin i yella zeddiɣ (mazal) ad ten‑ḍefren tarzeft ula muqqel mennect i zedɣen di Tdunnit.
+
+Abyannu amimun. Ar yimal, ters‑d tnemmirt.
+Banuḥ Nat Ḥemmi Nuḥ, 
+
+Tiniri n Warglen, Dujambir 2012.Xaled Mecɛel Xaled Mecɛel
+
+Xaled Mecɛel d aselway n ḥamas. Ilul deg 28 mayyu 1956 deg taddart slwad g teɣremt n ramallah g falesṭin, yeɣra dis asselmd amenzu ar asseggass 1967 acku izug akk d twacult-is ɣer Lekwit, yedder ɣin deg aswir adamsan ɣif anammas ikemmel dis tiɣri-ines tanammast (tamenzut) d tasinant, d ikemml tiɣri-ines tasdawant ar ma yiwi abaklaryus deg lfizik n tasdawit Lekwit. tga tasdawit Lekwit deg aseggas n 1970 n tasut izrin iktaren s ikabaren isertanen n taɛrabt dis yattuyn, d tfilisṭinit iẓlin, d tẓra abuɣlu n imḥḍaren nna igan amussu yellan din d tsul tmatart iẓiln nna ɣef n yddr ar assa. tiws tad azmez n wurɣ s wanaw ameqqran deg usgmi n twessna nnes d tnfalit n uswingm nnes, acku teẓra afa n tikki nnes d aswingam d umusdu asretan, yesbeff amussu amuslem afilisṭini deg tasdawit lekwit, d yedra deg assuser akabar azrfan n tamuslemt nna tminafsen umuɣen amussu n fatḥ ɣef tamɣuri n wamun yattuyn n imḥeḍaṛn n filisṭin deg lekwit, nḍ akabar nna yezreb ma yuɣaln mbeɛd usufɣ-nnse nn yetussan s tamsmunt tamuslmt imeḥḍaren falisṭin. isufeɣ Mecɛel deg assgwass 1978 yeswuri asalmad n lfizik dg lekwit, awd imɣra mbaɛd sin iseggasen ɣur-s 7 n arrawen, kraḍt tirbatin d kkuẓ iferxan.Ḥebrun Ḥebrun
+
+Ḥebrun neɣ lxalil tiɣremt tafilisṭinit, d wamemas n tɣiwant n lxalil. Tezga di agmemuḍ utrim ar iẓelmḍ seg lquds s tugut n 35 km. Skant ikenɛaniyen di wakud abrunẓi azayku, tga asesa tamqqrant n tiɣrmin n ugmiḍ utrim seg uṭeṭun n imzdaɣn d tiɣzi, acku gan uṭeṭun imzdaɣen nnes seg aseggas 2014 nig n 200 ifḍ umzedaɣ, tiweḍ tiɣzi nnes 42 2 (km). tecna tɣrmt s tadamsa nnes, acku tga seg mqeqran d amemasn idamsanen dk agmuḍ. d lxalil ɣur-s kṛaḍ, isgdan ibrahmiyn acku g wamems n tɣrmt timzgida tabrahimit nena ɣur imaqamn n imazanen n ṛbebi : ibrahim, d isḥaq, d yaɛqub, d timɣarin nensn.Asqqim unnig n timozgha Asqqim unnig n timozgha
+
+asqqim unig n timmuzɣa ( s tfransit: le haut commissariat à l'amazighité ) iga timrslt takadimyt tunṣibt nna iswurin g yigr n tdelsa tamaziɣt deg tmurt n dzayer; ittuskr ass n 27 mayyu 1995. d timrslt tunṣibt tamzwarut yusin anzgum n tmaziɣt. teṭṭfat i uslway n dzayr nna tt isskrn dffir asalag n uqrab, tfransist ( la grève du cartable), nna gan inlmadn iqbayliyn. aslway nns amzwaru d muḥḥnd u yidir ayt ɛmṛan sg 1995 ar 2004. dɣi illa ɣifs yusf miraḥi.
+
+illa g tmaẓunt n dzayer. tawuri nnes assider n tutlayt, tamagit, taɣrma tamaziɣt. d ntta i iṭṭfurn asslmd n tutlayt tamaziɣt di dzayer. da issufuɣ awd kra n idlisn xf tmaziɣt d idls amaziɣ s umata. 
+Qasiṭa Qasiṭa
+
+Qasiṭa d tamdint g arrif n At Tuzin deg-s 2,126 n yimzedaɣ. Qasiṭa isem-ines yusa-d seg taspanyulit (Taddart tameẓyant). 
+
+Tuddar n Qasiṭa:
+Maykel cumaxr Maykel cumaxr
+
+maykl cumaxr ilul deg 3 yennayr 1969 iga amṣwag tikaṛṛusin alalmani، n furmila 1 nna ynran s waṭṭas n lalqab، d iga axatar n inbrazn n furmila 1 d umḥizwar n ṭunubilat ɣaf kul izmzen. ymgar smmus n lalqab imaḍlann: amzwaru d wis sin akk d tarbaɛt n binitun (1994 d 1995) d smmus dffir tarbaɛt n firari isggasen (2000، 2001، 2002، 2003، 2004). ysker cumaxr aṭṭas n uṭṭunen ixatarn deg furmila 1 akkd aṭṭas n lalqab d tismɣurin tmqqranin deg furmila 1 acku yuwiy llaqab n asraɛ tazwara، dg nafs lḥalaba، d iga maykl cumaxr iga alalmani amzwaru ymgr laqqab amaḍlan n furmila 1، iga awd win yttyussanen deg furmiela 1 ar asggas 2006 nna ynna istiṭlaɛ nna yskr sis wamun amaḍlan cala n ṭunubilin.Arjagnu Arjagnu
+
+Arjagnu neɣ Aqlilu (Assaɣ ussnan: Centaurea) d tawsit n yimɣan isaɣuren yeṭṭafaren tawacult n tetrawt. Tawsit-a tga d yiwet gar tewsitin yettwassnen yakk deg twacult-is
+
+Arjagnu neɣ Aqlilu d tawsit yudsen neɣ id yettilin i tɣeddiwt d 
+
+
+Wazedduz Wazedduz
+Rezayna Rezayna
+
+Wamlal Wamlal
+
+Wamlal neɣ Camlal neɣ Wazduz (Assaɣ ussnan: Glebionis) d tawsit n imɣan isaɣuren yeṭṭafaren tawacult n titrit. Asismel n tewsit-a yesnulfa-t-id umusnaw n yimɣan Afṛensaw Henri Cassini deg useggas n 1826
+
+Tilmas yettwaddgen deg tewsit n wamlal alammi d yunyu 2012 gant d: 
+Timerẓuga Timerẓuga
+
+Aɣeddu n weɣyul Aɣeddu n weɣyul
+
+Tuzzalt Tuzzalt
+Masensen Masensen
+
+Masensen neɣ Masnsen (s tira n Tmaziɣt taqburt: MSNSN, ⵎⵙⵏⵙⵏ) la yella d agellid Amaziɣ Anumid n tmurt n Yinumiden (Numidya) i d-yezgan di Tefriqt Ugafa deg tmiḍi tiss kraḍet send talalit n Yessu. 
+
+Masensen ilul deg useggas n 238 B.C., deg tgelda n Masin. Yesdukkel tamurt Tanumidt n Tefriqt n Ugafa i tikkelt tamenzut. Yettwassen Masensen s yinzi ines aɣerfan i d-yeqqaṛen: "Tafriqt i Yifriqen".
+
+Tamurt : Tinumidit ( Numidya - Tafriqt ugafa ) 
+
+Tamanaɣt : Kirta (Cirṭa) (Qsenṭina)
+
+Imezdaɣ : Imaziɣen Inumiden 
+
+Tutlayt : Tamaziɣt, Talatint, Tagrigt
+
+Yemmut Masensen deg useggas n 148 B.C. Yesker as weɣref ines yiwen usemḍel ameqqran deg temnaḍt en yiɣrem n Kirta yellan ar wass-a d Qsenṭina.Azanzu Azanzu
+
+Tamǧeradin Tamǧeradin
+
+Idurar n Ṛuky Idurar n Ṛuky
+
+Idurar n Ṛuki (S Teglizit: "Rocky Mountains", S Tespanyult: "Montañas de rocosas") d azrar n idurar id yezgan deg utaram n umenẓaw n Marikan n ugafa yumẓen ɣef tjumma n 4,8000 km² seg tamiwin tigafayin n ugezdu n Britc kulumbya n kanada ar agezdu n Meksiku tamaynut deg wenẓul utrim n Marikan, Taqacuct n albirt teflal nnig n 4,399 m. d tiwinakin nnag llan idurar ad twasmma s idurar n udrar, Yella deg idurar n ruki aɣbalu n 14 n isaffen deg-s wasif n kuluradu d misuri.
+Ameẓẓuɣ n weqjun Ameẓẓuɣ n weqjun
+
+Tamurt umaziɣ Tamurt umaziɣ
+
+Abrid i d-wwin Imaziɣen deg umezruy d yiwen seg wid yeččuren d tasḍiwin, maca tikwal yessewham s kra n lexṣas i nezmer ad d-nessukkes, ladɣa deg wayen yerzan tutlayt d tsertit.
+
+Di tilawt, ulac Amaziɣ yefkan azal s tidet i tutlayt-is uqbel lqern wis 20, ula deg talliyin mi ḥekmen nutni s yiman-nsen. M’ara nẓer kan belli tamaziɣt (s tantaliwin-is yemgaraden) ur tuɣal d tunṣibt di kra n tmennaṭ deg wakal-is segmi d-tella armi d aseggas n 2011 deg Lmerruk syin teḍfer-d Lezzayer, yewwi-d ad nefk tuttra tabɣast i iman-nnneɣ u ad d-nqirr anda « ḍelmen » lejdud-nneɣ.
+
+Yuɣ lḥal, am akken i ten-mazal ar tura, Imaziɣen si zik ttwassnen s tsefkt i sɛan ɣer tutlayin seg wasmi ttwassnen deg umezruy (ladɣa gar Iṛuamniyen d Igrigiyen), meḥsub isehel-asen ulemmud n tutlayin n lǧiran-nsen. Meslayen tafiniqit n Qerṭaj iwumi qqaren tafuniqt, talaṭinit, tagrigit, taɛrabt, tafransist, d tiyaḍ di kra n talliyin am tsepenyult. D acu, aya d ayen i ten-yeǧǧan, ma nenna-d akka, ad rren ayla-nsen ɣer ṭṭerf. Yuɣ lḥal gar yegduden imezwura iɛucren Imzaiɣen, d Iqerṭajiyen i ten-id-iqerben ugar di tmennaṭ n tmanaɣt Tunes n tura. Ihi s Masensen s Sifaqs llan d imdukal-nsen, deg yiwet akken n tallit. Cerken yid-sen kullec, mɛucaren deg twaculin, uqmen assaɣen ara d-nini assa d isertanen ; dɣa yiwen am Masensen i yesseḥbabren ɣef tgelda-s amek ara twenneɛ, yeddem aṭas seg termit Iqerṭajiyen i d-wwin nutni sɣur lejdud-nsen Ifiniqen, ladɣa ayen yerzan tafellaḥt d tnezzut, maca yesseqdec ula d tutlayt-nsen tafuniqt i yuɣalen d tin i d tunṣibt ama deg uɣrem-is neɣ di tmanaɣt-is Cirta s umata, tugart ma llan ibeṛṛaniyen, ulamma tezga tmaziɣt deg ugdud.
+
+D tidet, uran s tfinaɣ imiren, maca mačči d iḍrisen, d ismawen kan akka d wwalen ifriḍen i ttarran yess tikwal ɣef yeɣraben ifakanen, ixxamen unṣiben, iɣran ttawin yemnayen, d wayen nniḍen ; yerna dima tettili ɣer tama-s tfuniqt neɣ talaṭinit syin ɣer da. Lejdud-nneɣ deg leqrun-nni lemden tutlayin i d-nenna, uran yes-sent idlisen am Ḥiemfsal wis sin i yuran s tfuniqt, agellid Yuba wis sin i yuran s tlaṭinit, d wiyaḍ i d-iḍefren syin d asawen am Ufulay (lqern II ), d ugerram Ugustius (lqern wis IV), maca widak banen, imi llan seddaw tecḍaṭ n Ruma.
+
+Akken i kemmlen deg tallit Iwandalen d tin Ibizanṭiyen, ma d tawaɣit tasnilsant tameqqrant teḍran-d mi d-wwḍen Waɛraben. D acu aɣbel mačči deg ukeččum n imhersanen i yella kan, acku dayi ilaq ad d-nesmekti yiwet n tidet tamazrayt i ntettu nekni s Imaziɣen, yerna llan wid ur tt-nessin.
+
+Ihi mi d-wwḍen Waɛraben akal n Tmazɣa seg unṭag amezwaru n useggas 647, yuqeɛ-itt imenɣi, qqlen ṭṭfen tamurt. Maca yewweḍ-d lweqt anda ɛawden Imaziɣen refden-d iman-nsen, ladɣa deg tama umalu, ɛewwlen ad kksen azaglu n ddula Tamawit (Omeyyades) d uqerru-s deg Dimecq, yerna ssawḍen rnan Aɛraben imawiyen, tugart segmi tt-gezmen di rray ad sen-lḥun s tin n ddin i ḍefren segmi sen-teffeɣ afus, meḥsub win n tneslemet, maca deg terkent Ixerriǧiyen i d-yerran azalen n teɣdemt yettwaɛfsen si tazwara ; yuɣ lḥal asɣan n tneslemt ur d-yeqqar ara belli d Aɛrab kan i ilaqen ad yeḥkem, ihi s wakka i sellmen Yimawiyen imi si tama-iḍen ur d-grin ara ǧehden am zik.1
+
+Dɣa din i tella tuzzma deg Imaziɣen, acku deg wayen ara nadin ad reṣṣin ayla-nsen s tidet, tamagit-nsen i yebnan ɣef tutlayt uqbel ayen nniḍen, kemmlen ɣlin deg texfet n ddin i tikelt-iḍen. Nenna-d si tagara n lqern wis VIII, amur ameqqran n Tmazɣa yegra-d ɣer yimawlan-is, ternuḍ ula d Landalus i ṭṭfen i ṭṭfen yemslemn di Spanya, ala deg Tunes de Libya i qqimen cudden ɣer Usammar aɛrab imi aṭas i istqerren din n Waɛraben i d-yekkan si teqbilt n Ɛuqba ben Nafeɛ. Ihi ɣas akken, wid i d-yerran timunent-nsen, mi kkren sbedden iwunak imezwura, d ibeṛṛaniyen i rran d Iqerra ! Akka, wid yellan deg tama n Merruk n tura d Idris amezwaru i d-irewlen si n tmurt taɛrabt i sbedden m’akken i sen-yenna yeqqers-d si twacult n nnbi Muḥemmed, Ibaḍiyen n Tihert ssulin Ibn Rustom afarsi, imi t-tuɣ deg ubrid-nsen amasɣan i yella. Dɣa kullec ikemmel ileḥḥu s tutlayt n Leqran ; am widak n teglest, Imaziɣen n tallit tanammast werǧin i meyyzen ad arun s tutayt-nsen, d tutlayt-iḍen tabeṛṛanit i d-yernan teṭṭef-d agnes. Ulamek ara nini d lbaṭel i yeḍran fell-aɣ, imi lawan-nni d Imaziɣen i iḥekmen ; ula d ddulat i d-iḍefren : Ifaṭmiyen, Iziriyen, Iḥemmadiyen (di Bgayet !), Imweḥḥden, Imurabḍen, Izeyyanen, Iḥefṣiyen ; neɣ di tama n Merruk daɣ : Iminiren d i Iseɛdyen d Iwaṭṭasen, uqbel ad tt-ṭṭfen Yeɛlawiyen si 1631 ar tura… kemmlen ttarun arraten-nsen d tebratin s taɛrabt.Yerna mačči d ayen kan ; ula m’ara yili d Amaziɣ i d sselṭan neɣ i d ageldun, yettɛerrib isem-is am akken uɣen tannumi wid yessezwirin tineslemt deg ukersi-nsen ; amedya seg wid yettwassnen, d aḥemmadi Nnasir ibn Al-anas ibn Ḥammad (1062-1088) i yerran Bgayet d tamanaɣt-is, imi di tilawt isem-is Anzir. Maca ur ilaq ara nenker, ulamma drus, llan kra i yeǧǧan isem-nsen am Yeɣmurasen di Tlemsan (1206 – 1283), ɣas akken yerna-yas « Ibn Zeyyan » nni. Nnan-d belli Utumert n waṭlas amerruki (- 1130), imsebded n ddula n Imweḥḥden, i isemman i iman-s Ibn tumert, yura sin yedlisen-is "Lɛaqida", d “Lmurcid” s tmaziɣt, uqbel ad ten-yessuqel ɣer taɛrabt.
+
+Limaṛa i d-yeǧǧa ddin deg Tmazɣa d taẓegzagt; imi ɣas akken tantaliyin timaziɣin ssawḍent ddrent deg ugdud akken ilaq, deg timawit kan i qqiment. Nnig wakken, imeyyazen n lweqt-nni mačči kan uran s taɛrabt, wten ula fell-as akken ad tt-ssjehden, am Ibn Jerrum i d-yeǧǧan tajerrumt taɛrabt i yesɛan azal ar assa ɣur ikadimyen aɛraben, si lqern wis XIV.
+
+Ma segmi d-kecmen Iṭerkiyen, kra din yensa deg tmazɣa talemmast, imi Lmerruk n tura ur tt-wwiḍen ara. Deg idurar ur tesɛiḍ w’i yessnen ad yaru ala kra n lecyax iteṭṭfen ɣer yiman-nsen, ladɣa imṛabḍen i d-ikecmen tuɣ tamurt taqbaylit, imi di lawan-nni win yessnen acemma taɛrabt yerna yeḥfeḍ kra n tsurtin, d win kan i d amusnaw, nnig-s ulac. Yuɣ lḥal widak ur ttjerriden ula d asefru ma yella-d, ɣas d adekker i yettdekkir bab-is. Akka i zedrent tmeslayin timaziɣin seddaw uzaglu n taɛrabt i d-ssusen wat tmurt s yiman-nsen. Armi d-tekcem Fransa i bdan mehhzen lumuṛ ulamma deg snat tamiwin tinemgalin. Imi si tama tamharsa tafransist tɛewwel-d ad tɛerreb akk Tafriqt Ugafa, aya d ayen ibanen, s yismawen i tbeddel d tnariyin taɛrabin i tesbedd di yal amkan, dɣa ula d inmezrayen-nsen imeqqranen am Stéphane Gsel cehhden-d ɣef akka. D acu si tama nniḍen, si tallit-is i d-tebda tira n tmaziɣt. Ɣas deg tazwara d ayen ikecmen kan iswi-nsen astaritiji, imi akken ad ẓẓlen aḍar akken ilaq yewwi-d fell-asen ad ssnen tutlayin akk n tmurt, ama di Lezzayer neɣ di Lmerruk. Maca tuɣḍadin n unadi deg tutlayt-nneɣ d usekcem-is deg tira, d tid i s-yerẓan asalu i tikelt tamezwarut sɣur ifransisen, gar ibabaten imellalen, iserdasiyen, d wiyaḍ.
+
+Dɣa Adolphe Hanoteau (1814- 1897), ajiniral i yuran s teqbaylit gar imezwura maḍi tagara n lqern wis XIX, yetewhhem asmi inuda deg tmurt n Leqbayel ad s-d-mlen ma yella kra n wedlis yuran si zik deg tmennaṭ-a, ur yufi ula d tajridt ufus ! Yerna ula mi yesteqsay imdanen, ur yefhim ara amek armi ur d-yegri wayen ara s-d-ḥkun ɣef kra n taluft ibeɛden deg wkud ; meḥsub taktawt-nneɣ tanbazt ɣas in’as teqqim d tilemt. « Werǧin ẓriɣ aɣref ur d-necliɛ deg umezruy-is am Leqbayel. » i yenna deg tezwart n wedlis-is anda i d-iḥawec isefra d ccnawi. Dɣa ma yenna akka, mačči d astehzi, d lewhayem kan i yewhem. Imi di tilawt, Leqbayel neɣ Imaziɣen nniḍen, mačči d tasmuḍi i semmeḍ wul-nsen ɣef wayla-nsen maca d tira i ten-ixuṣṣen. Tidet kan, ɣef igiman n lesnin, cehhden-d fell-aɣ ibeṛṛaniyen amek i nfaz deg waṭas n taɣulin, am tid n nnif, tabɣest deg umennuɣ d wazal nettak i wakal ajaddi, atg. Maca deg wayen yerzan idles, tafawet meqqret, yerna ssebba mačči dima sɣur imhersanen i d-tekka.
+
+Ccwi kan seg Iṛumiyen-nni imezwura, deg tmennaṭ taqbaylit uɣalen kkren-d Leqbayel s yiman-nsen mi ifat ufan ttawil n tmusni, si Bulifa ɣer Mɛemmri armi d wid n tura. Assa taqbaylit teɣrem-d acḥal seg wayen i tesɛa d lexṣas. Segmi s-bedden imeɣnasen imezwura i iḥebbren ladɣa i tmawalt tatrart i sbuɣren acemma, tuɣal treffed iman-is kra kra. Yerna mačči d lmuḥal ad nqaḍeɛ wiyaḍ deg yal taɣult. Amedya meqqren deg tutlayin yellan am ayla-nneɣ deg tgellelt, i ilaq ad nmuqel, d win n tɛebrit n Isryil. Imawlan-is skeflen-tt-d si tillas n wakud, anda tella ur tettwaseqdec ala deg ddin d wayen icudden ɣur-s, tura uɣalen sɣarayen yess ula d tusniwin ɛlayen. Awi-d kan lebɣi ad yezdeɣ ulawen u ad ggten imeɣnasen icuban wid yellan yakan, ara d-iɛiwnen yal wa deg uḥric-is, dɣa ayen i ɣ-iruḥen ɣef tizi n leqrun nezmer ad t-id-nerr di kra n tnemrawin iseggasen kan.
+
+Yerna tura yettuḥettem fell-aɣ ma nebɣa ad tidir tutlayt-nneɣ ula deg umeslay kan. Amedya deg tutlayt taqbaylit, ma zik lejdud ur uran ara, iles-nsen yezga d amaziɣ, tugart deg idurar, seg wakken ur yelli wayeḍ ara s-yekksen amkan… tura d tuggza-iḍen i ɣ-yeggunin. Si tmunent ɣer da, taɛrabt tekcem iɣerbazen deg tudrin, wid yettmeslayen ala s tmaziɣt, am tyemmatin i tt-iḥerzen zik si tsuta ɣer tayeḍ, uɣalen heddren daɣ s tefransist d taɛrabt ; yeshel ihi maḍi ad ruḥen wawalen ma ulac ajerred-nsen deg idlisen. Acku ɣas yebda uselmed n tmaziɣt yettaɣ tagnit, ma ur tewwiḍ ara d tutlayt tamezwarut n tɣuri anda i tella d tutlayt tayemmat, yewɛer akken ad teḥrez tallunt i s-tekksent tiyaḍ si yal tama. Wa d addad n teqbaylit kan, maca d ayen yerzan tutlayin nniḍen akk timaziɣin, am tcelḥit (Merruk) d tcawit i yettwaḥersen deg temdinin armi uɣalen kra imeḍqan tenger maḍi tmaziɣt deg-sen.
+
+Samir TiɣzertAɣlan Aɣlan
+
+Wa d tukkist seg usarag i d-yefka Ernest Renan ass n 11 meɣres 1882 deg tesdawit taparizyanit n La Sorbonne.
+
+Aɣlan d iman, d tigejdit taruḥanit. Snat n tɣawsiwin, deg tidet, i d-ibennun iman-a, tigejdit-a taruḥanit.
+
+Yiwet attan deg zik, tayeḍ tezdeɣ tura. Yiwet tessezdi imdanen s waṭas n yismektiyen i yesɛan, tayeḍ d lebɣi n tura, d lḥir n tudert akken jmiɛ, d lebɣi n ukemmel n werfad s igenni ayen i ɣ-d-ǧǧan imezwura yessezdi-aɣ. Amdan, ay imdanen, ur d-yesnulfu ara. Aɣlan am wemdan, d leqrar n waṭas n leqrun n leɛtab,n yiseflan, n tayri. Taẓẓalit i yimezwura d azref ur nezmir ad t-yekkes yiwen; d lejdud i ɣ-d-ifeṣṣlen akken nella akka tura. Amezruy, irgazen, iseɣ is-s ara nzuxx, d wi i d sɛaya n yemdanen akken ad snernin tikti n weɣlan-nsen. Amezruy i ɣ-yessizwiɣen udmawen-nneɣ i ɣ-yezdin seg zik, lebɣi i ɣ-icerken akka tura, asbeddi n temsal timeqranin s tiwizi, lebɣi n ukemmel seg webrid-a, atan d acu ilaqen i waken ad nili d aɣref. Nettzuxxu s leɛtab i neɛteb, s ideddicen i ɣ-iqerḥen. Nḥemmel axxam i d-nebna, win ara-d-neǧǧ i yineggura. Ccna n Sparte: “Aql-aɣ d ayen tellim, ad nili d ayen tellam”, ɣas akken d afessas, d netta i d imseɣret n yal tamurt.
+
+Zik, d ttrika n zzux d ndamat i ɣ-yezdin, azekka d yiwen n webrid ara nawi, lqerḥ, taḍsa, tirga i ɣ-yesdukkulen, atan wayen yifen assezdi n ladwan d tlisa i sbeddent tikta tistratijiyin; atan wayen nfehhem ɣas nemxallaf deg ccetla d tmeslayt. Nniɣ-d seglinna: “lqerḥ i ɣ-yesdukklen”; ih, lqerḥ yesdukkul ugar n lferḥ. Ladɣa ismektiyen n tmura, leɣbayen ifen nezzeh lerbaḥ, axaṭer ttḥettimen-aɣ ad nili ɣer yidis n tmurt, slalayen-d tadukli gar-aneɣ.
+
+Aɣlan, ihi, d tiwizi meqqren, i d-yettlalen seg yiseflan i nefka d wid daɣen ara nefk sya d asawen. Aɣlan yeḥwaǧ iḍelli, dacu kan assa yeḥwaǧ yiwet n tɣawsa s wazal-is: aqbal d lebɣi n tidet n ukemmel n tudert jmiɛ. Amdan yessefk ad iwekked tudert-is yal ass, akken daɣen aɣlan, tudert-is d tifranin n yal ass. Deg usettef n tekta i wen-d-mliɣ, aɣlan ur yugar agellid deg wezref ad s-yinin i taddart “Kemm d ayl-aw, ad kem-awiɣ”. Ɣer-nneɣ, taddart d imezdaɣ n weɣlan, axaṭer ma yella win yessefk ad ncawer deg taluft-a d amezdaɣ, d netta i ilan azref. Aɣlan weǧin deg lfayda-s assezdi neɣ tuṭtfa n tmurt sennig wul-is. Lebɣi n tmura, ulac akk ayen nniḍen, d netta kan i d llsas, d netta kan iɣer yessefk ad d-nettuɣal yal tikelt.
+
+Ad siwezleɣ awal, ay atma. Amdan ur yelli d akli n ccetla-s, n tutlayt-is, neɣ n ddin-is, n wamek ttazalen isaffen neɣ amek i bedden idurar. Tirect n yemdanen, s wallaɣ-is iṣeḥḥan d wul-is yeḥman, txelleq-d yiwen rruḥ umɛin, nefka-as isem n weɣlan. Skud rruḥ-a umɛin yesbanay-d afud-is s yiseflan i yettḥettimen i wemdan ad yeknu i tirect, dɣa ɣer-s azref ad yili, ad ibedd. Ma yella cekk ɣef tlisa-s, ciwret imezdaɣ iɣef tettnaɣem. Ɣers-sen azref ad d-inin awal-nsen deg taluft. Atan d acu ara d-yesseḍsen imeqranen-a n tsertit, wid akken ur nɣelleḍ ara ɣas akken tudert-nsen yakk d tuccḍa, s tinzert-nsen seglalzen akal-nneɣ deg lqaɛa. “Ad tciwrem imezdaɣ, aha ziɣ! Atenta daɣen tikta-nni tiḍeɛfanin n Fransa i yebɣan ad ibeddlen ssyasa d lgirra s ttawilat iḥerfiyen am irellucen n warrac imecṭaḥ.” Rǧut, ay atma, anfet-as i leḥkem-a n isertiyen i ɣ-d-yettwalin akka sufella; eyyaw ad nissinet ad nqabel tamḥeqranit n wid iǧehden. Ahat sdeffir mi ara nessalay nesṭaray mebla ma newweḍ ɣer kra imeɛnen, ad d-nuɣal ɣer tfessassin-nni i nessen zik. Abrid is-s ara nesɛu lḥeqq azekka, deg kra n tsaɛtin, yessefk ad nissin ad nuɣal ɣer teqdimin. »
+
+Assuqel: Berkus Tiwal.
