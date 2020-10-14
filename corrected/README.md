@@ -6,7 +6,7 @@ All content is in the public domain or is donated.
 
 The text submitted here meets the following criteria:
 - The Kabyle alphabet is allowed;
-- The special characters allowed are ẓ, ṛ, ṭ, ɛ, ṣ, ḍ, ǧ, ḥ, ɣ, č, and upper and lower case;
+- The special characters allowed are ẓ, ṛ, ṭ, ɛ, ṣ, ḍ, ǧ, ḥ, ɣ, č, in upper and lower case;
 - The dash "-" is part of the Kabyle alphabet, so it is allowed;
 - Numeric characters are allowed;
 - Punctuation characters are allowed
