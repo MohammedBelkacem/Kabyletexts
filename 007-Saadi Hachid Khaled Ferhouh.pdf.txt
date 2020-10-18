@@ -46,7 +46,7 @@ TAFUNAST IGUJILEN
 
  
 
-S$ur : ËASID SAΣDI 
+Sɣur : ËASID SAΣDI 
 
  
 
@@ -58,7 +58,7 @@ Sbedden tagmatt s usefru
 
 Yal wa d tikti yesεa 
 
-I$il s i$il innerna 
+Iɣil s iɣil innerna 
 
 Tebda loedra tgemmu 
 
@@ -80,7 +80,7 @@ Ur tettnuz ara
 
 £as teqreê ur têellu 
 
-Ur tett$er ur tettfaka 
+Ur tettɣer ur tettfaka 
 
 Ayefki-s d ddwa 
 
@@ -106,7 +106,7 @@ D tala-s ur nettfukku
 
  
 
-S$ur : FEÖËUË XALED 
+Sɣur : FEÖËUË XALED 
 
                            Tadukli si zik telha 
 
@@ -124,7 +124,7 @@ Llaûel d llaûel i yettabeε
 
 S tidett yevbeε 
 
-£as bab-is yes-s aa’ t-$edren 
+£as bab-is yes-s aa’ t-ɣedren 
 
 Ttaô-is yes-s i t-id-yerra 
 
@@ -142,9 +142,9 @@ D tafunast igujilen
 
 Lεula-s teqwa 
 
-Ime$ban yes-s i d-kkren 
+Imeɣban yes-s i d-kkren 
 
-Akken ula d Tamaz$a 
+Akken ula d Tamazɣa 
 
 D leqrun acêal-a 
 
@@ -163,7 +163,7 @@ Ad s-n-feôêet a atmaten
 
 LLAÜEL ITTABEΣ LLAÜEL 
 
-S$ur  
+Sɣur  
 
 ËASID SAΣDI 
 
@@ -227,7 +227,7 @@ Slet-ed amek i s-tevra
 
 I umeyyaz yugin kennu 
 
-Lmut $ef medden irkkelli 
+Lmut ɣef medden irkkelli 
 
 Yal w’ad t-id-yas wass-is 
 
@@ -235,15 +235,15 @@ Zdat-es tarewl’ur telli
 
 Ur tettsemmiê di lêeq-is 
 
-Ur tett$unfu ur tettagi 
+Ur tettɣunfu ur tettagi 
 
-Tetta$ awal n bab-is 
+Tettaɣ awal n bab-is 
 
 Amdan yemmuten ur yefni 
 
 D win-a i d-iooan isem-is 
 
-Am$ar iga-d tab$est 
+Amɣar iga-d tabɣest 
 
 I mmi-s ad yeêku lbavna 
 
@@ -253,25 +253,25 @@ Iêulfa dayen iεedda
 
 D iseggasen g-wul-is teîîes 
 
-D awez$i ur tt-yett’ara 
+D awezɣi ur tt-yett’ara 
 
 A mmi qqim-ed s idis-iw 
 
-Ddu-d d leb$i-w 
+Ddu-d d lebɣi-w 
 
-Sεi$ lewûay’ ad k-tt-fke$ 
+Sεiɣ lewûay’ ad k-tt-fkeɣ 
 
 Siwa keççin’ i d tundi-w 
 
 Aa’ ikemmlen isem-iw 
 
-Ëess-iyi-d akken i êesse$ 
+Ëess-iyi-d akken i êesseɣ 
 
 Lewûaya n lejdud-iw 
 
 Uqbel ad medlent wallen-iw 
 
-Ilaq-iyi ad k-tt-mle$ 
+Ilaq-iyi ad k-tt-mleɣ 
 
 Bab n leεqel d lmeεqul 
 
@@ -281,41 +281,41 @@ Zdat n Öebbi yeggul
 
 Abrid-is ard ad t-yawi 
 
-£as lefreq iûεeb $ef wul 
+£as lefreq iûεeb ɣef wul 
 
-Iga-yas-d tab$est Öebbi 
-
- 
+Iga-yas-d tabɣest Öebbi 
 
  
 
  
 
-A baba aql-i ccaôwe$ 
+ 
 
-Ëulfe$ kkawe$ 
+A baba aql-i ccaôweɣ 
+
+Ëulfeɣ kkaweɣ 
 
 Yesduqes-iyi-d wawal-ik 
 
-£as lmut tegguni-ya$ 
+£as lmut tegguni-yaɣ 
 
-Lameεn’ugade$ 
+Lameεn’ugadeɣ 
 
-Ur ûebbre$ $ef lmùut-ik 
+Ur ûebbreɣ ɣef lmùut-ik 
 
-Nekkini aql’ ad k-εahde$ 
+Nekkini aql’ ad k-εahdeɣ 
 
-D abrid-ik ara vefre$ 
+D abrid-ik ara vefreɣ 
 
-Ad ssali$ di ccan-ik 
+Ad ssaliɣ di ccan-ik 
 
-Yenîeq wem$ar s lmeεna 
+Yenîeq wemɣar s lmeεna 
 
 Yebda yettûebbir mmi-s 
 
 Yeêûa ddunit tefna 
 
-Dayen tekfa te$ribt-is 
+Dayen tekfa teɣribt-is 
 
 Akk’ i tetteddu s nnuba 
 
@@ -341,9 +341,9 @@ W’immuten yeooa-d mmi-s
 
 Ddqayeq tineggura 
 
-Am$ar yekcem deg ûûeê 
+Amɣar yekcem deg ûûeê 
 
-Yeb$a ad yekkes ttεebga 
+Yebɣa ad yekkes ttεebga 
 
 Iêulfa s wul-is iôteê 
 
@@ -353,19 +353,19 @@ Yumen d akken ad t-issefôeê
 
 Lewûaya n lejdud-iw 
 
-Seg m’i s-sli$ ur d-teffi$ 
+Seg m’i s-sliɣ ur d-teffiɣ 
 
 Teîîef tasga di lmux-iw 
 
-Fell-as ar ass-a cfi$ 
+Fell-as ar ass-a cfiɣ 
 
 Ass-a ad s-id-ivleq yiles-iw 
 
-Weêd-ek i ilaq ad k-tt-ini$ 
+Weêd-ek i ilaq ad k-tt-iniɣ 
 
-Suffe$ l$aci g-wexxam-iw 
+Suffeɣ lɣaci g-wexxam-iw 
 
-Ad k-(cid:31)fke$ ayen i d-wwi$ 
+Ad k-(cid:31)fkeɣ ayen i d-wwiɣ 
 
  
 
@@ -377,23 +377,23 @@ Aqcic ufhim n wawal
 
 Iga-d ifadden n wuzal 
 
-S teb$est iheddeô i l$aci 
+S tebɣest iheddeô i lɣaci 
 
 £as leêzen g-wul-is ittfal 
 
 Yeggul s leêlal 
 
-I wakken ad s-idu g leb$i 
+I wakken ad s-idu g lebɣi 
 
 A atmaten a iêbiben 
 
-Semêet-a$ dayen 
+Semêet-aɣ dayen 
 
 Yella wayen ara yi-d-yini 
 
 Dayen-et fiêel imeîîawen 
 
-Baba $layen 
+Baba ɣlayen 
 
 Yak teéram yif-it Öebbi 
 
@@ -403,7 +403,7 @@ Ayen yeêrez d iseggasen
 
 Ass’ad as-d-ibru s yimi 
 
-L$aci ooan axxam 
+Lɣaci ooan axxam 
 
 S usteqsi d ttexmam 
 
@@ -411,9 +411,9 @@ D acu akk’ara s-yini
 
 Ger-asen yella îîlam 
 
-Teldi tmeééu$t-is s axxam 
+Teldi tmeééuɣt-is s axxam 
 
-Nnêas yeqva-yas-d leb$i 
+Nnêas yeqva-yas-d lebɣi 
 
  
 
@@ -423,9 +423,9 @@ Nnêas yeqva-yas-d leb$i
 
 Awal-ik a baba iεedda 
 
-Ff$en akw meôôa 
+Ffɣen akw meôôa 
 
-Wejde$ êku-d i yellan 
+Wejdeɣ êku-d i yellan 
 
 £as lefreq ijreê tasa 
 
@@ -437,13 +437,13 @@ Lewûay’ad yi-d-tefkev ass-a
 
 Ad teqqim i lebda 
 
-Σuhde$-k ur s-isel wemdan 
+Σuhdeɣ-k ur s-isel wemdan 
 
-Uqbel ad yessuffe$ ôôuê 
+Uqbel ad yessuffeɣ ôôuê 
 
-Aεwin yu$ lêal yefka-t 
+Aεwin yuɣ lêal yefka-t 
 
-Awal-is $as d amecîuê 
+Awal-is ɣas d amecîuê 
 
 Lmeεna-s tevw’am tafat 
 
@@ -487,35 +487,35 @@ Ad ikemmel abrid-is
 
 Baba-s yesteεfa g lemêan 
 
-Yezmumeg-as-d yeffe$ ôôuê-is 
+Yezmumeg-as-d yeffeɣ ôôuê-is 
 
-Σuhde$-k a baba s Öebbi 
+Σuhdeɣ-k a baba s Öebbi 
 
-Lewûaya-k ad tt-xedme$ 
+Lewûaya-k ad tt-xedmeɣ 
 
 Dderya-w ard ad tt-tawi 
 
-D rriêa-k ur tetteffe$ 
+D rriêa-k ur tetteffeɣ 
 
-A akken teb$u tetti 
+A akken tebɣu tetti 
 
-Ur ttgala$ ur sgale$ 
+Ur ttgalaɣ ur sgaleɣ 
 
 Σfu-yi a baba εfu-yi 
 
-Deg-yiéri-w ad d-ûûiêe$ 
+Deg-yiéri-w ad d-ûûiêeɣ 
 
 Aqcic iεuhden baba-s 
 
-I$il ulac win i d-islan 
+Iɣil ulac win i d-islan 
 
-Win akken izde$ nnêas 
+Win akken izdeɣ nnêas 
 
-Yeb$’ad yeêûu i yellan 
+Yebɣ’ad yeêûu i yellan 
 
-Tameééu$t-is d aêlalas 
+Tameééuɣt-is d aêlalas 
 
-Teqva-yas-d leb$i n yilfan 
+Teqva-yas-d lebɣi n yilfan 
 
 Ur yesε’abziz n tissas 
 
@@ -525,7 +525,7 @@ D wagi i d yir amdan
 
 Σeddan wussan d lechuô 
 
-Seg-wass mi yemmut wem$ar 
+Seg-wass mi yemmut wemɣar 
 
 Aqcic iéri-s ipceôcuô 
 
@@ -645,7 +645,7 @@ Deg-wul is yefti ssem
 
 £ur-es leêlal yemmundel 
 
-Zzman $ef-weqcic yeêkem 
+Zzman ɣef-weqcic yeêkem 
 
 Ad iεic ger lbaîel 
 
@@ -749,7 +749,7 @@ Lbavna win i tt-yeslan
 
 Yeêka-tt i cciîîan 
 
-Akken ad t-yessiwev $er lebγi-s 
+Akken ad t-yessiwev ɣer lebγi-s 
 
 Maççi s weεkaf i tt-yezzenz 
 
@@ -843,7 +843,7 @@ Tagalit ur tettili
 
 Amenzu tinna yewwi 
 
-Önu $ur-es d loaô-ik 
+Önu ɣur-es d loaô-ik 
 
 Yefqaε umeyyaz yeêûel 
 
@@ -1011,7 +1011,7 @@ Yetteg-as i wawal sser
 
 D lqari neγ d amekraz 
 
-£er $ur-es sεan leqdar 
+£er ɣur-es sεan leqdar 
 
 Ëûan allaγ-is ifaz 
 
@@ -1021,7 +1021,7 @@ Jbeô-it Öebbi ad k-yeûûer
 
 Agellid yebda awal 
 
-I une$laf yessawal 
+I uneɣlaf yessawal 
 
 Ad d-yini ôôay-is f umeyyaz 
 
@@ -1035,7 +1035,7 @@ Ad t-id-yernu d aεekkaz
 
  
 
-Keç te$riv tfhemev 
+Keç teɣriv tfhemev 
 
 Tessnev ad tsewqev 
 
@@ -1107,7 +1107,7 @@ Taddart-ik anda tella
 
 D ac‘ i yeooan isem-ik 
 
-Ad d-yekcem $er ôôeêba 
+Ad d-yekcem ɣer ôôeêba 
 
 Deg wass-agi nek d Sidi-ik 
 
@@ -1183,7 +1183,7 @@ Yewwi abrid n ûûraya
 
 Akken i tt-yeêseb i tevra 
 
-Yeqbel $as yella rrkev 
+Yeqbel ɣas yella rrkev 
 
 I t-yewwin d llemεahda 
 
@@ -1507,11 +1507,11 @@ D ameéyan laεmeô yemret
 
 Üûifa-ines d acebêan 
 
-Tebrek $ur-es ur tunef 
+Tebrek ɣur-es ur tunef 
 
 D aεudiw yekka-d si Ccam 
 
-Iban $ef llaûel-is yeîîef 
+Iban ɣef llaûel-is yeîîef 
 
 Agellid yesεa ameyyaz 
 
@@ -1613,7 +1613,7 @@ Am win-a n tirga
 
 £er tfunast ikemmel ttôebga 
 
-Ijbed izir $ur-es 
+Ijbed izir ɣur-es 
 
 Yewwi-d llaûel-ines 
 
@@ -1637,7 +1637,7 @@ Mi d-ilul yemma-s teqqber
 
 Ass nni turrw-ed 
 
-Tessuîev-it $ur-es yefver 
+Tessuîev-it ɣur-es yefver 
 
  
 
@@ -1651,11 +1651,11 @@ Ameyyaz muêal yefcel
 
 Yeqqim weêd-es yettxemmim 
 
-Amek ara ikemmel ccγ$el 
+Amek ara ikemmel ccγɣel 
 
 Agellid yeqqim kan din 
 
-£as $ur-es yezga yeεjel 
+£as ɣur-es yezga yeεjel 
 
 Iqsed-it-id γef lesnin 
 
@@ -1687,11 +1687,11 @@ Niγ si zik tesεa ccan
 
 Ameyyaz yufa-d abrid 
 
-I s’ara yekfu ccγ$el-is 
+I s’ara yekfu ccγɣel-is 
 
 Awal i d-ibd’ugellid 
 
-     S yes-s aa’yawev leb$i-s   
+     S yes-s aa’yawev lebɣi-s   
 
 Iles-is yekkes-as lqid 
 
@@ -1751,7 +1751,7 @@ Aksum-ik ad t-ççen yivan
 
 Ameyyaz yeqbel kul cci 
 
-Yeêûa leb$i-ines yeôoa-t 
+Yeêûa lebɣi-ines yeôoa-t 
 
 Yeêûa d tidett i d-yewwi 
 
@@ -1813,7 +1813,7 @@ D llaûel innu i tt-qellibaγ
 
 Ssismev-iyi ttxil-em 
 
-Ttôebga-inu $ur-em i d-teffeγ 
+Ttôebga-inu ɣur-em i d-teffeγ 
 
 Ass mi meééiyeγ 
 
@@ -1857,15 +1857,15 @@ Tidett teffeγ-ed g lbir
 
 Agellid iûûeê yeéri-s 
 
-Deg wul-is yeffe$ lêir 
+Deg wul-is yeffeɣ lêir 
 
 Yettmekti-d lwaldin-is 
 
 Yeqsed ameyyaz s zzhir 
 
-Ad yefru yid-es ccγ$el-is 
+Ad yefru yid-es ccγɣel-is 
 
-Leêzen iban $ef wudem-is 
+Leêzen iban ɣef wudem-is 
 
 Ameyyaz yeêûa i yellan 
 
@@ -1983,7 +1983,7 @@ Lbaîel ad d-yettwakkes
 
 Lêeq n weqcic ad d-yuγal 
 
-Fell-asen $iwel êewwes 
+Fell-asen ɣiwel êewwes 
 
 Awi-ten-id yernu s cckal 
 
@@ -2001,7 +2001,7 @@ Taferka yerra-tt-id llaûel
 
 Agellid yezha wul-is 
 
-Yezga $er $ur-es yaεjel 
+Yezga ɣer ɣur-es yaεjel 
 
 Iga-yas isem-is i mmi-s 
 
@@ -2037,7 +2037,7 @@ I wakken ad s-slen medden.
 
 TAFUNAST IGIJILEN 
 
-S$ur 
+Sɣur 
 
 FE£ÖËUË Xaled 
 
@@ -2101,7 +2101,7 @@ I lebda d rriêa-inu
 
 Ur tettnuzu’ur tôehhen 
 
-Tfunast i-geb$un ivru 
+Tfunast i-gebɣun ivru 
 
 Tcqa-k d afôid yid-sen 
 
@@ -2121,16 +2121,16 @@ Igujilen g-yemma-tsen
 
 Mi temzel tfunast-nsen 
 
-Ar t$unam nnûib izzi 
+Ar tɣunam nnûib izzi 
 
-Ti$unam i deg-teîîven 
+Tiɣunam i deg-teîîven 
 
 G-yet tamemt g-tayev udi 
 
 Mi tfeq yembaba-tsen 
 - 2 - 
 
-Tesser$-itent kr’ur t-teooi 
+Tesserɣ-itent kr’ur t-teooi 
 
 Igwra-d ôôuê i ten-iεusen 
 
@@ -2144,7 +2144,7 @@ Deg-s ur yell’i d-iqqimen
 
  
 
-Ine$len deg imeîîawen 
+Ineɣlen deg imeîîawen 
 
 Ar mi têus lqaεa 
 
@@ -2168,7 +2168,7 @@ Tafunast igujilen
 
 Imawlan-is hujôen rewlen 
 
-Adrid iççuô d i$eblan 
+Adrid iççuô d iɣeblan 
 
 Iss’akw s tqellaεin 
 
@@ -2184,9 +2184,9 @@ Tasraft tεus-it akkin
 
 Mi yesw’i tala l-lêiwan 
 
-Yu$al d a$wzal meskin 
+Yuɣal d aɣwzal meskin 
 
-Sεeddan iv d a$ezfan 
+Sεeddan iv d aɣezfan 
 
 G-lweswas ittnernin 
 
@@ -2196,7 +2196,7 @@ Imawlan-is s lhem mezlen
 
  
 
-Iwwi-ten $er wexxam-is 
+Iwwi-ten ɣer wexxam-is 
 
 Ugellid mi ten-id-yufa 
 
@@ -2204,7 +2204,7 @@ Ugellid mi ten-id-yufa
 
 Tezdi-ten tayri d lehna 
 
-Σli-Mzerzer di l$erv-is 
+Σli-Mzerzer di lɣerv-is 
 
 Yid-sen ur t-ixus w’ara 
 
@@ -2214,7 +2214,7 @@ Yerran tudert di ccedda
 
 S têila-s am Iblis 
 
-Al-lbir tesse$vel Σica 
+Al-lbir tesseɣvel Σica 
 
 Tafunast igujilen 
 
@@ -2222,7 +2222,7 @@ Imawlan-is al-lhem qqlen
 
 - 4 - 
 
-Tu$al g-wemkan n Σica 
+Tuɣal g-wemkan n Σica 
 
 Mi terqem akw tbeddel 
 
@@ -2238,9 +2238,9 @@ Ger ddqiqa d ddqiqa
 
 Issuter al-lbir issawel 
 
-Anna$ a Σic’a weltma 
+Annaɣ a Σic’a weltma 
 
-Ëin-ed fell-i $iwel 
+Ëin-ed fell-i ɣiwel 
 
 Tafunast igujilen 
 
@@ -2250,7 +2250,7 @@ Imawlan-is mezzaf  mellen
 
  
 
-S am$ar azemni yerza 
+S amɣar azemni yerza 
 
 Mmi-s ugellid mi yewhem 
 
@@ -2278,7 +2278,7 @@ Imawlan-is d ilelliyen
 
 Meyya t-tikal i tefna 
 
-S uεudiw mi tt-éu$uren 
+S uεudiw mi tt-éuɣuren 
 
 Tuzen-as-tt mi tebba 
 
@@ -2324,7 +2324,7 @@ S talwit ar timlilit
 
 Uccen d-iwwten i twafra-s 
 
-Neçç’aεwin-is ne$vel-it 
+Neçç’aεwin-is neɣvel-it 
 
 Tafunast igujilen 
 
@@ -2340,7 +2340,7 @@ Imawlan-is i rrbeê flen
 
  
 
-D lweôt i $-d-iooa wedrar 
+D lweôt i ɣ-d-iooa wedrar 
 
 D agerruj m’ad t-ndeqqer 
 
@@ -2364,7 +2364,7 @@ Am iverfan i tmizar
 
 Am lwidan i tebêirin 
 
-Ne$ imguden inurar 
+Neɣ imguden inurar 
 
 Icirqan d twenziwin 
 
@@ -2392,7 +2392,7 @@ G-wuéeîîa-s ixfiwen ddan
 
 M ujerriv bêal azrar 
 
-D tal$a m lqis ilhan 
+D talɣa m lqis ilhan 
 
 G-wumettan tg’amyurar 
 
@@ -2408,7 +2408,7 @@ Améur icex d ayen kan
 
 Akud irewwel ittakwer 
 
-Ëader ay ul kr’a $-isgen 
+Ëader ay ul kr’a ɣ-isgen 
 
 Ilzem qbel ad ifferfer 
 
@@ -2424,13 +2424,13 @@ Ad nseggi seg-s idwiyen
 
 - 9 - 
 
-Γer lka$ev ad tt-id-nerr 
+Γer lkaɣev ad tt-id-nerr 
 
 I wid ad d-yasen ad tt-afen 
 
 Tamacahutt deg-s sser 
 
-Win i s-islan ad t-tes$er 
+Win i s-islan ad t-tesɣer 
 
 Anamek deg-s ifser 
 
@@ -2454,11 +2454,11 @@ Anzi akk’id-iqqer
 
 Akken illa usebter 
 
-Ara t-id-$rent wallen 
+Ara t-id-ɣrent wallen 
 
 Σica d Σli-Mzerzer 
 
-Ne$ Tafunast igujilen 
+Neɣ Tafunast igujilen 
 
 Taqûiî mazal-tt tedder 
 
@@ -2482,7 +2482,7 @@ Beddun-tt-id s teqnuéin
 
 Timseεreqt m’ur tt-id-frin 
 
-Tam$art i tmes tesberber 
+Tamɣart i tmes tesberber 
 
 S lêir deg-s ggunin 
 
@@ -2524,9 +2524,9 @@ Zgan vûan zhan
 
 Di rrbeê d lehna εacen 
 
-Am akken tt-ib$a lxaîer 
+Am akken tt-ibɣa lxaîer 
 
-A$ilif ur t-ssinen 
+Aɣilif ur t-ssinen 
 
 Kul cci bnin s lekteô 
 
@@ -2546,7 +2546,7 @@ D zzman nni i ten-ibuden
 
 Ass m’i ddren di leqrar 
 
-D netta i ten-i$ulen 
+D netta i ten-iɣulen 
 
 S lehlak i ten-id-iεuceô 
 
@@ -2578,7 +2578,7 @@ I wergaz-is tenna-yas
 
 Mi tt-issedhuy m’ad tettu 
 
-Lmut tebbwev-ed uêtame$-as 
+Lmut tebbwev-ed uêtameɣ-as 
 
 Γer ôôuê-iw yes-s ad teglu 
 
@@ -2586,7 +2586,7 @@ Uqbel ad terfed ayla-s
 
 Ad nfaôes ad nemyaεfu 
 
-Terna di$ tevleb-as 
+Terna diɣ tevleb-as 
 
 Ad tt-iεahed ur tt-ittvudu 
 
@@ -2596,7 +2596,7 @@ Ur tôehhen ur tettnuzu
 
 D rriêa-ines i tarwa-s 
 
-Ay akken teb$u tevru 
+Ay akken tebɣu tevru 
 
 « Ur d-renu tameîîut s iri-k 
 
@@ -2608,7 +2608,7 @@ Alama tezmer yelli-k
 
 - 13 - 
 
-Ad d-tedem a$rum g-wudekkwan » 
+Ad d-tedem aɣrum g-wudekkwan » 
 
 Ula ma ddunit tettibrik 
 
@@ -2634,7 +2634,7 @@ Iseffev-it ciî ciî zzman
 
 Argaz ikemmel ddunit 
 
-Cc$$el-is izad meôtayen 
+Ccɣɣel-is izad meôtayen 
 
 Meskin ur yufi talwit 
 
@@ -2658,9 +2658,9 @@ Iεoeb-itt xila s tidett
 
 Teççuô-as tiî tmenna-t 
 
-Teb$’ad t-tesεu d jwao-is 
+Tebɣ’ad t-tesεu d jwao-is 
 
-Tennud’abrid $er-s tufa-t 
+Tennud’abrid ɣer-s tufa-t 
 
 - 15 - 
 
@@ -2686,11 +2686,11 @@ Yal tikelt awal tules-as-t
 
 « lεebd-is (cid:31)ôebb’ur t-yeooi 
 
-Akken ib$u izzer i lmeênat 
+Akken ibɣu izzer i lmeênat 
 
 Γas yemm’ass’ur telli 
 
-Ikkes-a$-tt deg-yir taswaεt 
+Ikkes-aɣ-tt deg-yir taswaεt 
 
 S amkan-is awi-d tayev 
 
@@ -2740,7 +2740,7 @@ I teεdawt akken ad tεeddi
 
 Tettôebbi lehmum s ixf-is 
 
-Tett$av meskint ur teéri 
+Tettɣav meskint ur teéri 
 
 Tnecced i texûimt-is 
 
@@ -2752,7 +2752,7 @@ Tettamen kr’ad s-tini
 
 Teêkkem-itt amzun d ayla-s 
 
-Am txatemt n leb$i 
+Am txatemt n lebɣi 
 
 - 17 - 
 
@@ -2760,7 +2760,7 @@ Am txatemt n leb$i
 
 I baba-m tvelbev 
 
-Ad m-yeoo a$rum g-wudekkan 
+Ad m-yeoo aɣrum g-wudekkan 
 
 Melmi iôuê tsersev 
 
@@ -2812,7 +2812,7 @@ Tbeddel temεict
 
 Lehmum ukin-d akk bdan 
 
-Lkeôh a$ulu ti$rit 
+Lkeôh aɣulu tiɣrit 
 
 Üûbeê  tameddit 
 
@@ -2832,7 +2832,7 @@ Yelli-s lerbuê tettak-as
 
 Tazzart yal sas 
 
-D zzit d we$rum g-yirden… 
+D zzit d weɣrum g-yirden… 
 
 lεez d tnefcic s waîas 
 
@@ -2846,7 +2846,7 @@ Tegla s nnûib g-yerbiben
 
                            Tafunast ul-is ifôeê 
 
-Ma d ime$ban n nutni 
+Ma d imeɣban n nutni 
 
 Öwan lemêani 
 
@@ -2854,7 +2854,7 @@ I tyessawt d way nniven
 
 Tettmudu-yasen aεwin agi 
 
-A$rum n yilni 
+Aɣrum n yilni 
 
 S umuôeo ad t-tessisnen 
 
@@ -2866,7 +2866,7 @@ S uyefki t-tfunast nsen
 
 Udem-is innecôeê 
 
-Mkul m’ara îîven $er-s 
+Mkul m’ara îîven ɣer-s 
 
 Mi kksen llaé d rrbeê-is 
 
@@ -2874,9 +2874,9 @@ Amzun d arraw-is
 
 Tawant-nsen d lehna-s 
 
-Mi tesrugmet $er-s leêqen 
+Mi tesrugmet ɣer-s leêqen 
 
-Yal m’ara $uflen 
+Yal m’ara ɣuflen 
 
 Akk’i tverru yal ass 
 
@@ -2906,11 +2906,11 @@ Tektal tewzen-itt s wallen
 
  
 
-Anna$ a taεzizt a yelli 
+Annaɣ a taεzizt a yelli 
 
 D acu-t way’agi 
 
-Tezgiv d tawra$t tkeεcev 
+Tezgiv d tawraɣt tkeεcev 
 
 Tugiv ad tawiv iri 
 
@@ -2928,25 +2928,25 @@ Azekk’ad  ten-tvefrev
 
 Ans i kkan tekkev 
 
-Ay ansa b$un εeddin 
+Ay ansa bɣun εeddin 
 
 Deg-way g ara ççen teççev 
 
-Ne$ ard ad tnedmev 
+Neɣ ard ad tnedmev 
 
 - 21 - 
 
 Aêeq wagi d wihin 
 
-B$i$ am nitni ad tekkrev 
+Bɣiɣ am nitni ad tekkrev 
 
-Ad teêluv ad tizwi$ev 
+Ad teêluv ad tizwiɣev 
 
 Ad tifev irkkel tizyiwin 
 
 I watma-s taqcict tenna 
 
-I t-cedhe$ lexla 
+I t-cedheɣ lexla 
 
 Yid-sen ûûbeê teddukel 
 
@@ -2954,11 +2954,11 @@ Mi d-iêder lawan lluéen
 
 S nnub’i teîvem 
 
-Yen itt$im ad tt-isse$fel 
+Yen ittɣim ad tt-isseɣfel 
 
 Nettat tuéam ur tebni 
 
-Teêzen tennu$ni 
+Teêzen tennuɣni 
 
 S zzεaf s axxam teqqel 
 
@@ -2970,7 +2970,7 @@ I yemma-s teêka kra din
 
 S lxaîer d uêzin 
 
-Tεawed tweûûa-tt di$en 
+Tεawed tweûûa-tt diɣen 
 
 Ay akken xedmen xdem 
 
@@ -2990,7 +2990,7 @@ I deg ttεeddin teîîven
 
  
 
-Σli iôuê yu$al-ed 
+Σli iôuê yuɣal-ed 
 
 I Σica iqqim-ed 
 
@@ -3000,13 +3000,13 @@ Tôuê tqerreb ar tfunast
 
 Ilhan i tyessawt 
 
-Teggum’ad s-d-tefk leb$i 
+Teggum’ad s-d-tefk lebɣi 
 
 Teddewwiô teîîeε-itt mezzaf 
 
 Tneqqere-itt-id s zzεaf 
 
-Γer tiî telfe$ irkkelli 
+Γer tiî telfeɣ irkkelli 
 
 Mi tt-teéra yemma-s tekkfeô 
 
@@ -3014,7 +3014,7 @@ Ur tekkis demmeô
 
 S uεekkaz g-yerbiben-is 
 
-Mazal l$uc g-wul-ines 
+Mazal lɣuc g-wul-ines 
 
 Teggul g-wargaz-ines 
 
@@ -3022,7 +3022,7 @@ Ad yezzenz tafunast-is
 
 Inna-yas ay’ur d-iverru 
 
-Σuhde$ ur tettnuzu 
+Σuhdeɣ ur tettnuzu 
 
 Tameôêumt send lmut-is 
 
@@ -3034,9 +3034,9 @@ Ur terr’awal-is
 
 Awal n ûûwab wer t-tesli 
 
-Tenna-yas maçç’ad qeble$ 
+Tenna-yas maçç’ad qebleɣ 
 
-Akken ad jemεa$ 
+Akken ad jemεaɣ 
 
 Lweêc iεegben yelli 
 
@@ -3056,9 +3056,9 @@ D tafunast igujilen ta
 
 Ur tettnuzu ur tettmessa 
 
-Win i tt-yu$en ad (cid:31)s-indem 
+Win i tt-yuɣen ad (cid:31)s-indem 
 
-W-iqerben $er-s iwexxeô 
+W-iqerben ɣer-s iwexxeô 
 
 Deεwessu tuεeô 
 
@@ -3078,17 +3078,17 @@ Tafunast mi tt-id-yerra
 
 Inna-yas ssuq ur tt-iôεi 
 
-Tenna-yas êwaoe$ azekka 
+Tenna-yas êwaoeɣ azekka 
 
-Ur d-tettu$al ara 
+Ur d-tettuɣal ara 
 
-Ad tôuê fell-a$ dayen-ni 
+Ad tôuê fell-aɣ dayen-ni 
 
 Deg-s ittawi ittarra 
 
 S îîul n semmana 
 
-£as b$an-tt êed wer tt-yewwi 
+£as bɣan-tt êed wer tt-yewwi 
 
  
 
@@ -3112,7 +3112,7 @@ Icennu-yasen tizlitt
 
 Ur tettnuz ur tôehhen 
 
-Win i tt-yu$en ad s-indem » 
+Win i tt-yuɣen ad s-indem » 
 
 Timsewweqt tezεef trennu 
 
@@ -3122,13 +3122,13 @@ Timsewweqt tezεef trennu
 
 Tewwet-it s weéru 
 
-Ye$li-d ûûut-is igzem 
+Yeɣli-d ûûut-is igzem 
 
-Tafunast age(cid:31)(cid:31)er yu$-itt 
+Tafunast age(cid:31)(cid:31)er yuɣ-itt 
 
 I tmezla yebbwi-tt 
 
-S ime$ban yerna-d lhem 
+S imeɣban yerna-d lhem 
 
 S aéekka n yemma-tsen jban 
 
@@ -3146,7 +3146,7 @@ Baba-tsen iôuê s age(cid:31)(cid:31)er
 
 Akken ad t-issuter 
 
-Ne$ ad s-d-izzenz ikerciwen 
+Neɣ ad s-d-izzenz ikerciwen 
 
  
 
@@ -3154,9 +3154,9 @@ Ne$ ad s-d-izzenz ikerciwen
 
 Γef uéekka lfert iooa-t 
 
-M$int-ed snat 
+Mɣint-ed snat 
 
-N t$unam deg teîîven 
+N tɣunam deg teîîven 
 
 Yet t-tamemt tayev n wudi 
 
@@ -3166,7 +3166,7 @@ Taûebêit m’akken bbven
 
 - 26 - 
 
-Teffe$-ed te$ri di lqaεa 
+Teffeɣ-ed teɣri di lqaεa 
 
 Tenna-yasen a tarwa 
 
@@ -3208,13 +3208,13 @@ Tgemmu teqûiî
 
 G-temsal tselmad-iten 
 
-Üûbeê teff$en $er lexla 
+Üûbeê teffɣen ɣer lexla 
 
 Mi d lawan t-tggella 
 
-Ttεeddin ar t$unam teîîven 
+Ttεeddin ar tɣunam teîîven 
 
-Xeddmen s nneyya lec$$al 
+Xeddmen s nneyya lecɣɣal 
 
 Xvan akk i ccwal 
 
@@ -3224,7 +3224,7 @@ Tezga fell-asen tezεef
 
 Teggum’ad tecεef 
 
-£as teçça ti$rit meqqret 
+£as teçça tiɣrit meqqret 
 
 Ssawalen-as Btellis 
 
@@ -3234,7 +3234,7 @@ G-wass mi tεab mi tettwet
 
 S yet (cid:31)t-tiî i tettwali 
 
-S yir tamu$li 
+S yir tamuɣli 
 
 Ayetma-s am mernuyet 
 
@@ -3254,11 +3254,11 @@ Tettweûûi-ten s lêeq
 
 G-cceddat tferru-yasen 
 
-Leεnaya ufan-tt $ur-es 
+Leεnaya ufan-tt ɣur-es 
 
 Ula ma teêôes 
 
-Wesεet teswiεt $ur-sen 
+Wesεet teswiεt ɣur-sen 
 
 Öuê a zzman ôwaê a zzman 
 
@@ -3270,7 +3270,7 @@ Yembaba-tsen tamaεuôt
 
 Tekkes-asen lqut 
 
-Meεna simmal ttizwi$en 
+Meεna simmal ttizwiɣen 
 
 Tbed tewhem tenna-yas 
 
@@ -3306,9 +3306,9 @@ Tenna-yas ôuê ad teqqlev
 
 Ul(cid:31)a d kem îîev 
 
-S tazla terza $er-sen 
+S tazla terza ɣer-sen 
 
-Di t$unam tettsum tettzid 
+Di tɣunam tettsum tettzid 
 
 Acemm’ur t-tejbid 
 
@@ -3326,7 +3326,7 @@ I yemma-s ayen iûaren
 
 Tamcumt zzaden-as wurfan 
 
-Tebbev $er wemkan 
+Tebbev ɣer wemkan 
 
 S tqabact tegzem-itent 
 
@@ -3336,21 +3336,21 @@ Mi d-xelfent gmant nernant
 
                            
 
-                         Nnûib igujilen yer$a 
+                         Nnûib igujilen yerɣa 
 
-Tuven ta$ennant 
+Tuven taɣennant 
 
 S ujenniw-is teqqel-itent 
 
 Ma d tikkelt tis tlata 
 
-Te$za-sent s wadda 
+Teɣza-sent s wadda 
 
-S iéuran tesseô$-itent 
+S iéuran tesseôɣ-itent 
 
 Dayen ur d-iggra 
 
-Amkan-is d i$ed i t-yeîfen 
+Amkan-is d iɣed i t-yeîfen 
 
 Inger-asen i yal ass 
 
@@ -3358,15 +3358,15 @@ Acêal run fell-as
 
 Ur érin d’ac’ad xedmen 
 
-Maca $ur-sen ééher 
+Maca ɣur-sen ééher 
 
-Mi $lin ad ten-ijbeô 
+Mi ɣlin ad ten-ijbeô 
 
 Ad sen-yeg abrid ifadden 
 
  
 
-Deg wuéekka ûûut iffe$-ed 
+Deg wuéekka ûûut iffeɣ-ed 
 
 S leêzen inîeq-ed 
 
@@ -3380,9 +3380,9 @@ Bexlaf deg-imeslayen
 
 - 31 - 
 
-Ad wen-fke$ lewûayat 
+Ad wen-fkeɣ lewûayat 
 
-Ur tettut $ur-wat 
+Ur tettut ɣur-wat 
 
 Ad ilint d aεwin n wen 
 
@@ -3392,9 +3392,9 @@ Metret di tmura
 
 Deg-webriv n wen cfut 
 
-Ifeggagen iwra$en 
+Ifeggagen iwraɣen 
 
-Igudar ttna$en 
+Igudar ttnaɣen 
 
 Ma tufam-ten êûut 
 
@@ -3446,9 +3446,9 @@ D webzim teqqen Σica
 
 Ur rkiben ur ççin 
 
-Öuêen b$ir aεwin 
+Öuêen bɣir aεwin 
 
-Deg-webrid $er tmura 
+Deg-webrid ɣer tmura 
 
 Γas ivul deg-s ddan 
 
@@ -3458,19 +3458,19 @@ Lêan amecweô iεedda
 
 Mi rnan ciî mugren 
 
-Igudar ttna$en 
+Igudar ttnaɣen 
 
 Yak aqcic yettu yakan 
 
-Nett’ur neêmil amennu$ 
+Nett’ur neêmil amennuɣ 
 
-Inna ad ten-fru$ 
+Inna ad ten-fruɣ 
 
-Qbel akk’ur msen$an 
+Qbel akk’ur msenɣan 
 
 Tenna-yas mmekti-d yemma 
 
-D ac’i $-d-tenna 
+D ac’i ɣ-d-tenna 
 
 Qbel ad d-nwexxeô f-wemkan 
 
@@ -3486,35 +3486,35 @@ Kemlen abrid i ten-iôoan
 
 I ten-yefkan 
 
-I i$eblan i sen-d-mazal 
+I iɣeblan i sen-d-mazal 
 
-Mugren ifeggagen iwôa$en 
+Mugren ifeggagen iwôaɣen 
 
-Di sin ttna$en 
+Di sin ttnaɣen 
 
-Σli i$av-it lêal 
+Σli iɣav-it lêal 
 
-Yuzel $er-sen ad ten-ifru 
+Yuzel ɣer-sen ad ten-ifru 
 
 Σica ur nettu 
 
-Tesmekta-t-id $ef temsal 
+Tesmekta-t-id ɣef temsal 
 
-Kemlen $er zdat lêan 
+Kemlen ɣer zdat lêan 
 
 Al’ar mi ufan 
 
 Ayen akken ikkaten iéri 
 
-Aman $ef teblaî seqven 
+Aman ɣef teblaî seqven 
 
 La tecrurugen 
 
-Iééel $er-sen Σli 
+Iééel ɣer-sen Σli 
 
-Inna-yas b$i$ ad swe$ 
+Inna-yas bɣiɣ ad sweɣ 
 
-Tenna-yas ; anna$  
+Tenna-yas ; annaɣ  
 
 Tettuv lewûaya nni  ? 
 
@@ -3526,11 +3526,11 @@ Tettuv lewûaya nni  ?
 
 Γef taqeffett ittureqmen 
 
-Mi te$fel iqerreb iswa 
+Mi teɣfel iqerreb iswa 
 
 Iêbes swa swa 
 
-Mi yej$em tiqit deg-sen 
+Mi yejɣem tiqit deg-sen 
 
 Tekkes-ed abzim-ines 
 
@@ -3540,7 +3540,7 @@ Taqemmuct-is ineîven
 
  
 
-Lêan $er zdat kemlen 
+Lêan ɣer zdat kemlen 
 
 Ar mi d-mlalen 
 
@@ -3572,9 +3572,9 @@ Ur s-sεin ddw’ad t-ikksen
 
 Ddurin s limer 
 
-Aman ur iqrib $er-sen 
+Aman ur iqrib ɣer-sen 
 
-Zren $erqen di lxelεat 
+Zren ɣerqen di lxelεat 
 
 Sεeddan saεat 
 
@@ -3586,9 +3586,9 @@ Win isbeεbuε tin tettru
 
 Ur  érin ac’ad xedmen 
 
-Σica $ef ttejra tuli 
+Σica ɣef ttejra tuli 
 
-Tεus $ef Σli 
+Tεus ɣef Σli 
 
 Tugad lewêuc ad t-ççen 
 
@@ -3616,7 +3616,7 @@ Acrik Ugellid lefjer
 
 S uεudiw la d-iteddu 
 
-A$ersiw s aman iêer 
+Aɣersiw s aman iêer 
 
 S amkan ibbev d amenzu 
 
@@ -3626,9 +3626,9 @@ D tili i-gettkukru
 
 Tili n Σica teckenter 
 
-Amzun tenîev $ef-seklu 
+Amzun tenîev ɣef-seklu 
 
-Izzi $er sidi-s ibbev 
+Izzi ɣer sidi-s ibbev 
 
 Wecrik iwwi-yas lexxbaô 
 
@@ -3638,7 +3638,7 @@ Im’akk’ibeddel lameô  ?
 
 Γer tala deg-iyi tweklev 
 
-Ihi ayen ay$er  ? 
+Ihi ayen ayɣer  ? 
 
  
 
@@ -3662,7 +3662,7 @@ Zun kan akken i tella
 
 Ifreé yufa d bnadem 
 
-I yellan $ef ttejôa 
+I yellan ɣef ttejôa 
 
 Iccaôôew ibed iwhem 
 
@@ -3672,13 +3672,13 @@ Mel-iy’a lxelq acu-kem
 
 Txewfev lmal ur iswa 
 
-Ger lfeôê akk d u$ilif 
+Ger lfeôê akk d uɣilif 
 
-Alla$-is ur tt-id-ifri 
+Allaɣ-is ur tt-id-ifri 
 
-Tenîeq-ed $er-s bessif 
+Tenîeq-ed ɣer-s bessif 
 
-S lxuf id-tger ti$ri 
+S lxuf id-tger tiɣri 
 
 Nekkini yid-wen kif kif 
 
@@ -3688,11 +3688,11 @@ Mel-iy’acu n ssebba
 
 I kem-iooan usawen nni 
 
-Ers-ed $er lqaεa 
+Ers-ed ɣer lqaεa 
 
 Kkes seg wul-im tuggdi 
 
-Ur nettûubbu$ ala ma 
+Ur nettûubbuɣ ala ma 
 
 Tcubkev-iyi s ôebbi 
 
@@ -3710,17 +3710,17 @@ Tcubkev-iyi s ôebbi
 
 Taqcict ccerî-is ad d-ivru 
 
-Gma-s Mzerzer ur t-in$i 
+Gma-s Mzerzer ur t-inɣi 
 
 U d asennan ur s-inettu 
 
-Imir ters-ed $ef teslent 
+Imir ters-ed ɣef teslent 
 
 Teêka-yas akk taqûiî-is 
 
-Yak igujilen $aven-t 
+Yak igujilen ɣaven-t 
 
-Iwwi-ten $er wexxam-is 
+Iwwi-ten ɣer wexxam-is 
 
 Taqcict izewweo-itt d mmi-s 
 
@@ -3734,7 +3734,7 @@ Ur ixus deg-wacemma
 
 Ul-is di lehna d lfeôê 
 
-Ur tesε’a$bel êala 
+Ur tesε’aɣbel êala 
 
 Gma-s i d sseba-s n lqeôê 
 
@@ -3752,7 +3752,7 @@ Baba-s iwwet-it ur t-izgil
 
  
 
-Issufe$-it $ef tmura 
+Issufeɣ-it ɣef tmura 
 
 Ad d-ijib leqlil s ttxil 
 
@@ -3832,13 +3832,13 @@ Tenced-it ar daxel ikcem
 
 Iccex itteεoeb ismeεqil 
 
-Issared yu$al zeddig 
+Issared yuɣal zeddig 
 
 Tmud-as lbus ijdiden 
 
 Ittban-ed am ujeooig 
 
-Ne$ afôux n îîawes izaden 
+Neɣ afôux n îîawes izaden 
 
 Tsebbw-as-d lqut imkel 
 
@@ -3850,11 +3850,11 @@ Ger wakud nettat teεzel
 
 Thegga-yas-d lxiô nivnin 
 
-Tsebb-as-d taêbult b-bber$rum 
+Tsebb-as-d taêbult b-bberɣrum 
 
 Daxel s lwiz tεemmeô-itt 
 
-Tenna-yas awi-tt t$um 
+Tenna-yas awi-tt tɣum 
 
 Ard tawdev s axxam teldiv-tt 
 
@@ -3866,19 +3866,19 @@ Ibd’iêekku-yas-d meôôa
 
 Γef tirza-s ad tt-isseεlem 
 
-S axxam Ugellid mi bbve$ 
+S axxam Ugellid mi bbveɣ 
 
-F-tebburt-is wwte$ 
+F-tebburt-is wwteɣ 
 
-Ttlaεi$ s tin n Öebbi 
+Ttlaεiɣ s tin n Öebbi 
 
-Teffe$-ed $r-i teslit-is 
+Teffeɣ-ed ɣr-i teslit-is 
 
 Tεerv-i s axxam-is 
 
 Am baba-s teêseb-iyi 
 
-Serde$ bedle$ lebsa 
+Serdeɣ bedleɣ lebsa 
 
 - 43 - 
 
@@ -3898,9 +3898,9 @@ Iddem-itt ibva-tt af-sin
 
 Ufan tiwiztin 
 
-Deg-sent lesqen s tmu$li 
+Deg-sent lesqen s tmuɣli 
 
-Tagi nn’ik-id-i$aten 
+Tagi nn’ik-id-iɣaten 
 
 D yelli-k ayen 
 
@@ -3908,11 +3908,11 @@ Ur telli d tayevnin
 
 Ay a lxiô tella labas 
 
-D$a wissen gma-s 
+Dɣa wissen gma-s 
 
 Anida i tegren lesnin 
 
-Anna$ a tarwa εzizen 
+Annaɣ a tarwa εzizen 
 
 Nevlem-ikken 
 
@@ -3922,9 +3922,9 @@ Nebbwi deg-wen deεwessu
 
 Nettxellis nrennu 
 
-Ddnnub n wen $$ezzif meqqer 
+Ddnnub n wen ɣɣezzif meqqer 
 
-Yelli-tne$ Σica tumliêt 
+Yelli-tneɣ Σica tumliêt 
 
 Tukyist tucbiêt 
 
@@ -3950,13 +3950,13 @@ Al-loiha  n Σic’i tt-irêan
 
 Iôεed ioouoeg lkeôh-is 
 
-Lukan leb$i-s d ayen illan 
+Lukan lebɣi-s d ayen illan 
 
 Ad tebren taxxatemt-is 
 
 Ula d isem-is ur d-ittban 
 
-I tendem $ef ôôwaê-is 
+I tendem ɣef ôôwaê-is 
 
 S-ifkan tudert ilhan 
 
@@ -3964,7 +3964,7 @@ Thegga-yas-d tid n Iblis
 
 Mbeεd kra n wussan 
 
-Tesserzef $er-s Btellis 
+Tesserzef ɣer-s Btellis 
 
 Tewkel-as aεwin l-lemêan 
 
@@ -3976,7 +3976,7 @@ Tewkel-as aεwin l-lemêan
 
 Tetteddu tettweûûi yelli-s 
 
-Ame0k ara teg’i$eblan 
+Ame0k ara teg’iɣeblan 
 
 Teppales deg imeslayen-is 
 
@@ -4002,7 +4002,7 @@ Tekker teqcict teôêel
 
 Lmeqsud-is d tamettant 
 
-M’ur ten$i ad tesseêûel 
+M’ur tenɣi ad tesseêûel 
 
 I cceô terfed taεellamt 
 
@@ -4016,13 +4016,13 @@ Acêal’ay’ur kem-érint wallen
 
 Tesqsa-tt f- baba-s yemma-s 
 
-M’ulac akk i ten-yu$en 
+M’ulac akk i ten-yuɣen 
 
 Ayen akk i s-gant l-lmenkeô 
 
 Teooa-t i zzman iôuêen 
 
-Ur teb$’ad t-id-tfekkeô 
+Ur tebɣ’ad t-id-tfekkeô 
 
 Telha-d kan g-wayen iûelêen 
 
@@ -4052,19 +4052,19 @@ Ad ibîel ssfeô-is dayen
 
 Bettellis tufa-t ulac-it 
 
-Fell-as l$iba-s twulem 
+Fell-as lɣiba-s twulem 
 
 I lmeêna tettunefk talwit 
 
 Lal-is i liser ad tt-texdem 
 
-Ala tesseêsab i twa$it 
+Ala tesseêsab i twaɣit 
 
-Am-win a’isse$lin leêkem 
+Am-win a’isseɣlin leêkem 
 
 Tuεa s lewseε taswiεt 
 
-Akken ad teg leb$i-ines 
+Akken ad teg lebɣi-ines 
 
 Am wuccen daxel t-tqeviεt 
 
@@ -4074,13 +4074,13 @@ Ul’am’imeslayen ééidit
 
 - 47 - 
 
-Acmumeê izg’ar $ur-es 
+Acmumeê izg’ar ɣur-es 
 
 Yibbas d ass n dir 
 
 I Σica bettellis tenna 
 
-S uwehhi $er lbir 
+S uwehhi ɣer lbir 
 
 Iyy’ad yi-d-taniv d’a weltma 
 
@@ -4090,7 +4090,7 @@ Tessa tegertilt imir
 
 Tessiééiy-itt ar m’i tt-tewεa 
 
-Tdegger-itt te$l’ar daxel 
+Tdegger-itt teɣl’ar daxel 
 
 Tôuê  treqqem meôôa 
 
@@ -4132,23 +4132,23 @@ Tenna-yas sseba n ûûifa-w
 
 D iîij-nwen amaεzuz 
 
-Isser$ay di medden iskaw 
+Isserɣay di medden iskaw 
 
 Qlil n win ur iêuz 
 
 D timest i d-fkant tegnaw 
 
-Ma yeooa-ya$ ad nedder cwi 
+Ma yeooa-yaɣ ad nedder cwi 
 
-S tuttra iqqwel-itt di$-en 
+S tuttra iqqwel-itt diɣ-en 
 
 F-wayen akk deg-s iéra 
 
 Mel-iyi ssebba ayen 
 
-Tiî-im mi tedder$el akka 
+Tiî-im mi tedderɣel akka 
 
-Ooi$-tt am yiîij iceεlen 
+Ooiɣ-tt am yiîij iceεlen 
 
 Tura am tembult texsi 
 
@@ -4156,7 +4156,7 @@ Ssebba n tiî-inu
 
 D taéult-nwen tamaεzuzt 
 
-Tett$az deg-s trennu 
+Tettɣaz deg-s trennu 
 
 Am tmes deg tcemmuεt 
 
@@ -4166,7 +4166,7 @@ Ur tettru ur tettwali
 
 - 49 - 
 
-£ef wayen ib$u isteqsa-tt 
+£ef wayen ibɣu isteqsa-tt 
 
 leowab-is izga illa 
 
@@ -4174,7 +4174,7 @@ Qbel ad-d-tôuê tweûûa-tt
 
 Yemma-s m têila 
 
-Tes$er-itt akk tôebba-tt 
+Tesɣer-itt akk tôebba-tt 
 
 Deg-wayen akk meôô’ur nelhi 
 
@@ -4182,7 +4182,7 @@ Ayen akk texdem tefôez-as
 
 Zun ass-en d ass-is n jwao 
 
-Tufa leb$i-s aîas 
+Tufa lebɣi-s aîas 
 
 Tufa ayen akk teêwao 
 
@@ -4212,11 +4212,11 @@ Tenna-yas lazem ad imzel
 
  
 
-Σyi$ deg-s fecle$ 
+Σyiɣ deg-s fecleɣ 
 
 Mezzaf i yi-sehbel 
 
-Ifuk wass m’akken i t-êemle$ 
+Ifuk wass m’akken i t-êemleɣ 
 
 Ass’a rréag ul’i wmuqel 
 
@@ -4230,9 +4230,9 @@ Issendeh iqeddacen
 
 Γef Mzerzer ad imzel 
 
-D netta i yett$aven 
+D netta i yettɣaven 
 
-Amsellek a’i$iv ur t-isεi 
+Amsellek a’iɣiv ur t-isεi 
 
 At’aya ibbev-ed uge(cid:31)(cid:31)er 
 
@@ -4252,31 +4252,31 @@ I wudem n sidi Öebbi
 
  
 
-Anef-iyi qbel ad mmte$ 
+Anef-iyi qbel ad mmteɣ 
 
-Ad as-beqqi$ lehna 
+Ad as-beqqiɣ lehna 
 
 - 51 - 
 
-I weltma Σica êemle$ 
+I weltma Σica êemleɣ 
 
 Illan s daxel l-lbir-a 
 
-Ageldun tedhen-it tewre$ 
+Ageldun tedhen-it tewreɣ 
 
 Iccaôôew u yergagi 
 
-A$ersiw al-lbir ikna 
+Aɣersiw al-lbir ikna 
 
 Irfed s ucewwiq uêzin 
 
-Anna$ a Σic’a weltma 
+Annaɣ a Σic’a weltma 
 
 Ur teériv i y’iggunin 
 
 Age-er ibbev-ed ata da 
 
-S lemwas-is $er $ur-i 
+S lemwas-is ɣer ɣur-i 
 
 Tiferyin îîfent nnuba 
 
@@ -4286,7 +4286,7 @@ Mesdent wejdent i tmezla
 
 Aman rekmen i teccuyin 
 
-Anna$ a Σic’a weltma 
+Annaɣ a Σic’a weltma 
 
 Xas êin-ed fell-i 
 
@@ -4296,15 +4296,15 @@ Xas êin-ed fell-i
 
  
 
-Tuli-d i lbir te$ri-ya 
+Tuli-d i lbir teɣri-ya 
 
-Ur teêûiv fell’i d-i$lin 
+Ur teêûiv fell’i d-iɣlin 
 
-Ur yell’ad k-ge$ a gma 
+Ur yell’ad k-geɣ a gma 
 
 - 52 - 
 
-Si twa$it n twa$iyin 
+Si twaɣit n twaɣiyin 
 
 Ifassen-iw i sin îîfen 
 
@@ -4314,7 +4314,7 @@ Talafsa teggun’ixf-iw
 
 Mmi-s Ugellid ittewhem 
 
-S am$ar azemn’irza 
+S amɣar azemn’irza 
 
 Issefhem-as-d amek a’yexdem 
 
@@ -4326,11 +4326,11 @@ Iôwan aîas tezluv-tt
 
 D asfel ilhem tehduv-tt 
 
-Ad te$fel deg-s tlafsa 
+Ad teɣfel deg-s tlafsa 
 
 Imir tûubev tisnitt 
 
-G a’d-tsaliv s t$awla 
+G a’d-tsaliv s tɣawla 
 
 D leêder d asawen 
 
@@ -4370,7 +4370,7 @@ Teêka-yas irkkelli
 
 I wergaz-ines s wurfan 
 
-Tawa$it-ines ikfan 
+Tawaɣit-ines ikfan 
 
 Inna-yas ôôay g-wawal-im 
 
@@ -4380,31 +4380,31 @@ Akken ad iqqed wefwad-iw
 
 Ad teqqen ar tûett’uεudiw 
 
-Ïîul n wass ad tt-izzu$er 
+Ïîul n wass ad tt-izzuɣer 
 
-Ala ma tsegex ten$er 
+Ala ma tsegex tenɣer 
 
 I taddart ad tt-id-tdewrev 
 
-Taqeîîit i$lin ad tt-terrev 
+Taqeîîit iɣlin ad tt-terrev 
 
 £er tqufett awi-itt-id 
 
-Anda te$li rrfed-itt-id 
+Anda teɣli rrfed-itt-id 
 
-Ëader  tiî-is idder$len 
+Ëader  tiî-is idderɣlen 
 
 - 54 - 
 
 Amer deg-s k’a ibeddlen 
 
-D tunîict ard ad s-tt-azne$ 
+D tunîict ard ad s-tt-azneɣ 
 
-I tmaεcuqt n lmutt nne$ 
+I tmaεcuqt n lmutt nneɣ 
 
 Ma d afus d uvar-ines 
 
-Ad reggi$ yis-sen times 
+Ad reggiɣ yis-sen times 
 
 Ayen i s(cid:31)-tecrev ixdem-it 
 
@@ -4414,7 +4414,7 @@ Fell-as ééidet teggnitt
 
 Di laman zelmev yeffus 
 
-Amzun akken t$av-itt 
+Amzun akken tɣav-itt 
 
 Tin’i d-irsen am-wemmus 
 
@@ -4436,7 +4436,7 @@ Tεeqqer-it akk ur ixus
 
 Tacuyt trekkem tettεeggiv 
 
-Ff$en-d leûwat xelven 
+Ffɣen-d leûwat xelven 
 
 Zun d ameooed t-tlawin 
 
@@ -4450,7 +4450,7 @@ Zun d îîelb’ittkeôôiren
 
 Zun d leûwat nivnin 
 
-Zun d le$ac’ittqeûûiren 
+Zun d leɣac’ittqeûûiren 
 
 Lwaêid ttûubbun ttalin 
 
@@ -4468,7 +4468,7 @@ Tesraêay-itt am lyasmin
 
 S aragg d-iregglen téer-itt 
 
-Seg-es te$ra tibbin 
+Seg-es teɣra tibbin 
 
 £as tebba baqi teccuêen-itt 
 
@@ -4488,7 +4488,7 @@ Am-wusefk ilhan tettbin
 
 - 56 - 
 
-Ne$ am lekkfen icebbeê-itt 
+Neɣ am lekkfen icebbeê-itt 
 
 Di tculiî idd’am-waεwin 
 
@@ -4512,7 +4512,7 @@ Leεtab sseεd-is ikkes-as-t
 
 (cid:31)(cid:31)ala ayen i tessen g-yezri-s  
 
-Ciî n we$bel ma tεuca-t 
+Ciî n weɣbel ma tεuca-t 
 
 I m’ur s-telliv ar yidi-s 
 
@@ -4534,7 +4534,7 @@ Sûura-s iveεfen teqqur
 
 - 57 - 
 
-Aksum-is ussan seb$en-t 
+Aksum-is ussan sebɣen-t 
 
 Am ççina n îîamsu l-lmeckuô 
 
@@ -4542,9 +4542,9 @@ Tinzarin-ines vebεent
 
 Ar mi weûfent am-ceôcuô 
 
-Sser-is iûûer-as tider$elt 
+Sser-is iûûer-as tiderɣelt 
 
-Tamu$li-s s nnuô teççuô 
+Tamuɣli-s s nnuô teççuô 
 
 Allen-is pbinin-t bôaôêen-t 
 
@@ -4552,7 +4552,7 @@ Velqent am waman l-lebêuô »
 
 Lbeεd-im fell-as d taεkkemt  
 
-Atta εell-a êal ad kem-téu$er 
+Atta εell-a êal ad kem-téuɣer 
 
 - 58 - 
 
@@ -4574,9 +4574,9 @@ Iqerben akken ad iéal
 
 Ad yini lehduô t-tamemt 
 
-Yugad ad i$lev g-wawal 
+Yugad ad iɣlev g-wawal 
 
-Mi d fell-as cc$$el weklen-t 
+Mi d fell-as ccɣɣel weklen-t 
 
 S lxuf t-tittin d uzaylal 
 
@@ -4606,7 +4606,7 @@ S ufus-ines tefreq-it
 
 Ikker zzhir g-yet t-tsewiεt 
 
-Am tme$ra ne$ akteô-is 
+Am tmeɣra neɣ akteô-is 
 
 Ula d uççi s tfenîaéit 
 
@@ -4622,11 +4622,11 @@ Ussan deg-wuvan-is
 
 Tsett deg-es tessebleε 
 
-Tettsumu deg-ye$san-is 
+Tettsumu deg-yeɣsan-is 
 
  
 
-Bettellis $ur-es weltma-s 
+Bettellis ɣur-es weltma-s 
 
 I d-ilemden di tikli-s 
 
@@ -4654,11 +4654,11 @@ Ahmaj awehhi s idis
 
 Abeôôem acmumeê zdin-as 
 
-Asekkud iôeûû’i tmu$li-s 
+Asekkud iôeûû’i tmuɣli-s 
 
-Yak d akal nn’i-$-d-ifkan 
+Yak d akal nn’i-ɣ-d-ifkan 
 
-D nett’ad a$-iççen meôôa 
+D nett’ad aɣ-iççen meôôa 
 
 Neçça-t fell-as nettεeffis 
 
@@ -4670,7 +4670,7 @@ Yiwen ur ittsellik ara
 
 Akken i s-tevr’i Bettellis 
 
-Ass m’i d-te$li al-lqaεa 
+Ass m’i d-teɣli al-lqaεa 
 
 Yemma-s nn’i tt-id-yeooan 
 
@@ -4684,9 +4684,9 @@ Uççi-nsent issewham
 
 Issexleε s tidett 
 
-Am yeqjan $ef ye$san 
+Am yeqjan ɣef yeɣsan 
 
-Ne$ imcac $er turett 
+Neɣ imcac ɣer turett 
 
 Remzent am lêiwan 
 
@@ -4704,13 +4704,13 @@ Rewlet f-wemkan xvut-ett
 
 Ibed-ed weqjun f-tebburt 
 
-Inîeq $er tmeîîut 
+Inîeq ɣer tmeîîut 
 
 Ifka-yas awal qesêen 
 
 Awi-d efk-iyi-d awerrum 
 
-Ad m-ru$ s wehdum 
+Ad m-ruɣ s wehdum 
 
 D aksum n yelli-m ay-en 
 
@@ -4722,9 +4722,9 @@ Yell’attan g lerbuê ccaven
 
 Ur d-icqi mi t-tewwet 
 
-Ne$ mi t-tezzem 
+Neɣ mi t-tezzem 
 
-Ne$ mi t-tqejjem 
+Neɣ mi t-tqejjem 
 
 Fell-as taggnitt êlawet 
 
@@ -4746,7 +4746,7 @@ Ifxa-yas awal qerêen
 
 Awi-d efk-iyi-d taqeîîiî 
 
-Ad m-ru$ s yet t-tiî 
+Ad m-ruɣ s yet t-tiî 
 
 D aksum g-gelli-m ay-en 
 
@@ -4754,13 +4754,13 @@ Sûeb  sy-en a yir ccetla
 
 Ittmennin lebla 
 
-Yelli tebεed i le$bayen 
+Yelli tebεed i leɣbayen 
 
 Ur d-icqi mi t-tewwet 
 
-Ne$ mi t-tezzem 
+Neɣ mi t-tezzem 
 
-Ne$ mi t-tqejjem 
+Neɣ mi t-tqejjem 
 
 Fell-as taggni êlawet 
 
@@ -4778,7 +4778,7 @@ Awal teggum’ad s-tebru
 
 Tagi nni d tiî n Nnana 
 
-Σeqle$-tt a yemma 
+Σeqleɣ-tt a yemma 
 
 £as tendeê-as tug’ad tekfu 
 
@@ -4794,7 +4794,7 @@ Yemma-s ur tt-numin tewhem
 
 Ccek mi tt-yekcem 
 
-Teéra-tt tebd’asu$u 
+Teéra-tt tebd’asuɣu 
 
 G-yedmaren-is g-wudem-is tewwet 
 
@@ -4806,15 +4806,15 @@ Fell-as taggnit sellawet
 
 Tεewweq dac’ara texdem 
 
-I tsu$ i tjelleb i tettru 
+I tsuɣ i tjelleb i tettru 
 
 Tdewwiô trennu 
 
 Têebbek g-wudem-is txebbec 
 
-Teqqer-as anna$ a yelli 
+Teqqer-as annaɣ a yelli 
 
-Iççi$ a yelli 
+Iççiɣ a yelli 
 
 Deg-yifassen-ines tkerrec 
 
@@ -4834,7 +4834,7 @@ Amzun theddeô i wéekka
 
 Amzun dkr’i tt-id-iqsen 
 
-Mi tekker $er-sen 
+Mi tekker ɣer-sen 
 
 Am akken tumen tezmer 
 
@@ -4842,11 +4842,11 @@ Tenna-yasen s wurfan
 
 I wid akk illan 
 
-Win mi fki$ k’ad t-id-yerr 
+Win mi fkiɣ k’ad t-id-yerr 
 
 Tefkiv-iyi tiqeîîiî 
 
-Ur m-ru$ u d ciî 
+Ur m-ruɣ u d ciî 
 
 Wemcic i das-yenna 
 
@@ -4906,28 +4906,28 @@ I Wgellid am akka
 
 A Sidi Sselîan mel-iyi 
 
-A$ersiw agi 
+Aɣersiw agi 
 
 Isem-is d wacu yella 
 
 D gma-s t-teslit-inu 
 
-Ur éri$ d acu 
+Ur ériɣ d acu 
 
 Ad t-id-yaren s agama-s 
 
 G-yiwet n tala n lmal 
 
-Mi yeswa yu$al 
+Mi yeswa yuɣal 
 
-D a$wzal g-lewûifa-s 
+D aɣwzal g-lewûifa-s 
 
 Ccix lefhem-is d ameqqran 
 - 66 - 
 
 Iomel leqqran 
 
-Di$ $er-s tazmert meqqren 
+Diɣ ɣer-s tazmert meqqren 
 
 Ula di ssêur d lεalem 
 
@@ -4951,13 +4951,13 @@ Issew-as deg-sen ciîuê
 
 D ddeεwa l-lfuttuê 
 
-Irna inna-yas di$-en 
+Irna inna-yas diɣ-en 
 
-Ma yella tlulev d a$$zal 
+Ma yella tlulev d aɣɣzal 
 
-Qqim d a$$zal 
+Qqim d aɣɣzal 
 
-Ma d amdan u$al-ed akk-en 
+Ma d amdan uɣal-ed akk-en 
 
  
 
@@ -4983,11 +4983,11 @@ Tevûa tennecôeê
 
 Urfan leêzen deg-s ufgen 
 
-Tamu$l’i s-ijerêen tiî 
+Tamuɣl’i s-ijerêen tiî 
 
 Tbeddel tajliî 
 
-Tu$al d sseεd icebêen 
+Tuɣal d sseεd icebêen 
 
  
 
@@ -5019,7 +5019,7 @@ Duqen-tt s waîas l-lbenna
 
 Taqûit tfuk dayen 
 
-Teooa-ya$-d ayen 
+Teooa-yaɣ-d ayen 
 
 Ara nettawi d lmeεna 
 
@@ -5027,7 +5027,7 @@ Tamacahutt-iw tekfa
 
 Teooa-d lmeεna 
 
-Ëki$-tt i tarwa l-leowad 
+Ëkiɣ-tt i tarwa l-leowad 
 
 Uccen amcum bu lêirfa 
 
@@ -5035,11 +5035,11 @@ Iôuê-ed s tuffra
 
 Ikka-d lwad lwad 
 
-Iwwet-a$-d s waεwin neéra 
+Iwwet-aɣ-d s waεwin neéra 
 
 Neçça-t i meôôa 
 
-Newwet-it nen$a-t cceh 
+Newwet-it nenɣa-t cceh 
 
 Tayevnin i-gifen ta 
 
@@ -5089,23 +5089,23 @@ I yettakken udi d tasa maççi d tisita.
 
 -  Tafunast igujilen,ur tettnuz ur tettmasa. 
 
--  D  acu  i  k-ice$ben  a  aggur  i  mi  akka  deg-wudem-ik 
+-  D  acu  i  k-iceɣben  a  aggur  i  mi  akka  deg-wudem-ik 
 
-l$iv ? 
+lɣiv ? 
 
 D imeîîi n ugujil meskin,mi yettwet yegguni lêiv. 
 
--  Win i wumi yemmut baba-s,ur t-yu$ w’ara. 
+-  Win i wumi yemmut baba-s,ur t-yuɣ w’ara. 
 
 Win i wumi temmut yemma-s,ur s-d-iggri w’ara. 
 
--  -Win i tu$ yemma,nek d arbib-is. 
+-  -Win i tuɣ yemma,nek d arbib-is. 
 
 -  D arbib i d-iooan lmut. 
 
 - 70 - 
 
--  D avar n ugujil i yes$ersen taôakna 
+-  D avar n ugujil i yesɣersen taôakna 
 
 -  Tekker tgujilt ad teddu,qersen îîbul 
 
@@ -5117,11 +5117,11 @@ Imi d yemma temmut,awer d-tegwri tmeîîut.
 
 -  Deεwessu n lwaldin tuεeô,tin n dderya ktaô. 
 
--  Win ib$an lxiô, issekker-ed agujil s lêir. 
+-  Win ibɣan lxiô, issekker-ed agujil s lêir. 
 
--  Ad-d-tesmektiv agujil $ef-yimeîîawen. 
+-  Ad-d-tesmektiv agujil ɣef-yimeîîawen. 
 
--  Ur d-smektay ara agujil $ef-yimeîîawen. 
+-  Ur d-smektay ara agujil ɣef-yimeîîawen. 
 
  
 
@@ -5137,17 +5137,17 @@ Imi d yemma temmut,awer d-tegwri tmeîîut.
 
 1- Tleêêu tmessey (tmessel) ticebbavin. 
 
-2- Tleêêu txeddem ti$rifin. 
+2- Tleêêu txeddem tiɣrifin. 
 
-3- Tetteddu tetteg ti$rifin. 
+3- Tetteddu tetteg tiɣrifin. 
 
 4- Tleêêu tetteg tacebbaî. 
 
 5- Ilul-ed içça iûerûir. 
 
-6- Ye$li-d ar lqaεa,yu$ abeqqa. 
+6- Yeɣli-d ar lqaεa,yuɣ abeqqa. 
 
-7- Taêellabt n uyefki tu$al,$ef-wudem ur ten$il. 
+7- Taêellabt n uyefki tuɣal,ɣef-wudem ur tenɣil. 
 
 Tifin (Tifrat) (taôezmi) n tiqqnaé 
 
@@ -5193,7 +5193,7 @@ Agdil: Ecran
 
 Aggay: Groupe 
 
-Tas$ireî: Production 
+Tasɣireî: Production 
 
 Tanezwit: Diffusion 
 
