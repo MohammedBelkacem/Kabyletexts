@@ -7,7 +7,7 @@ import argparse
 import csv
 import text_cleaning as tc
 
-fileName="../corrected/Aklanntayri.pdf.txt"
+fileName="../corrected/Azalntayri.pdf.txt"
 
 vocabulary = open("result.txt", "wt", encoding="utf-8")
 with open(fileName, "rt", encoding="utf-8") as originalFile:
