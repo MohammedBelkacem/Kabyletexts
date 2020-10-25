@@ -3,6 +3,7 @@ ed    d
 -ed-    -d-
 -en    -n
 -en-    -n-
+-yi     -iyi
 -yas    -as
 -yak    -ak
 -yasen    -asen
