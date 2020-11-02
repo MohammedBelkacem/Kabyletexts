@@ -464,10 +464,6 @@ s
 
 
 
-- 19 -
-
-
-
 tinnuzɣa,  ulamma  d  tigzi-agi  i  asen-ittaken  tamudi-nni  n
 iẓubaẓ imnewwlen i uḥelli n yiseɣ unnig.
 III-  Maca  ugar  tigini,  ixawiyen  n  wenbaḍ,  n  leḥkem,  d
@@ -494,15 +490,13 @@ umezruy.  Ayagi  d  ayen  smangen  aṭas  n  madden  mebla
 ma ulseɣ-d, yerna ur bɣiɣ ara ad yettwafhem wayagi belli
 
 
-12  Imziyen  agi  yak  -yadalli-  d  ayen  ibanen  kkan-as-d  i  wmaray  seg
+Imziyen  agi  yak  -yadalli-  d  ayen  ibanen  kkan-as-d  i  wmaray  seg
 ismares  ara  s  ṣṣifa-s  tasertant  ur
 waddad-ines  udmawan.  Ur
 yesnezgem  ara  ula  ciṭuḥ  belli  d  netta  i  d  anebbaḍ,  s  timmad-is  ɣer
 webrar-is.
 
 
-
-- 20 -
 
 
 
@@ -529,7 +523,7 @@ nsen.
 
 
 
-13  S  Ddemma  ttuzulen  ɣef  wegdud  amat  “salutate  plebem”  :  igad  i
+S  Ddemma  ttuzulen  ɣef  wegdud  amat  “salutate  plebem”  :  igad  i
 ttettren  tuɣac  n  inafranen  yewwi-d  fell-asen  ad  asen-yessiwel  ad  d-
 asen s yiman-nsen, imi amdan-nsen ad asen-ssiwlen igad yesseklasen,
 yellan di tnamit ttwafranen-d seg waklan yeɣṛan i gellan ddukulen d
@@ -567,7 +561,7 @@ timatulin:
 tiwlafin-agi
 
 
-15 Igad i d-yefrurun seg iɣeṛmanen, di twuriwin tunnigin,sɛan azref ad
+Igad i d-yefrurun seg iɣeṛmanen, di twuriwin tunnigin,sɛan azref ad
 ḥerzen deg yemṛaḥen-nsen iwlafen n imenza-nsen, i yeddmen s tgella
 tinawurin-agi
 llant  ccmeɛ  d-ittbegginen
@@ -771,7 +765,7 @@ tabṛatt  ad  att-yefk
 i  Mikibsa.  Hatah  wegbur-ines
 
 
-27 Tasnakudt (chronologie) n Salustyus ur telli ara d taseddit (pécise).
+27 Tasnakudt  n Salustyus ur telli ara d taseddit .
 Asutel n numanse ifuk aseggas n (133 dat S.Ɛ) s uɣelluy n temdint deg
 ufus  n  Skibyu.  LLmut  n  Mikkibsa  tella-d  aseggas  118.  U  yella  ira
 Yugurten ad d-yawi mmi-s zdat tmettant-is s kraḍ iseggasen s tnigi n
@@ -901,16 +895,16 @@ Yugurten,  yuɣal  d  amedya  ansay  zzeg-s  akin. Akka  dɣa  ara  yesbibb
 
 
 
-(decision)
+
 
 igettwaddmen  d  smus
 
-imserhu (honorifique) ɣur inumidiyen. Imi iḥettem gma-s
+imserhu  ɣur inumidiyen. Imi iḥettem gma-s
 ɣef  uqadeṛ  n  utay  (leɛmer),  sakin  iqbel  ad  yeqqim  ɣef
 tama  nniḍen.  Ulamma  ayagi  yeḍra-d  s  kra  n  uḥenkes.  Di
 lawan  udiwenni  aɣezfan  ɣef  wayen  yerzan  tarrayt  n
 usefrek n tgelda, issumer-asen-d Yugurten, deg wayen i d-
-issumer  ad  issiren  (abolir)  yal  tanaḍin  (decrets),  yal
+issumer  ad  issiren    yal  tanaḍin ,  yal
 tiɣtasin
 iseggasen
 iɛeddan ; tagnitt deg aydeg yella Misibsa tesseɛya-t tewser
